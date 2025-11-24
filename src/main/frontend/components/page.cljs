@@ -721,9 +721,13 @@
             ;; referenced blocks
             (when-not (or whiteboard? tag-dialog? linked-refs? (and block? (not db-based?)))
               [:div {:key "page-references"}
-               (rum/with-key
-                 (reference/references page {:sidebar? sidebar?})
-                 (str title "-refs"))])
+               (ui/foldable
+                [:h2.font-medium.opacity-70 "Linked References"]
+                (fn []
+                  (rum/with-key
+                    (reference/references page {:sidebar? sidebar?})
+                    (str title "-refs")))
+                {:default-collapsed? (= 0 (state/get-ref-open-blocks-level))})])
 
             (when-not block-or-whiteboard?
               (when (and (not journal?) (not db-based?))
@@ -736,7 +740,11 @@
                           (or class-page? property-page?)
                           (and block? (not db-based?)))
               [:div {:key "page-unlinked-references"}
-               (reference/unlinked-references page {:sidebar? sidebar?})])])])
+               (ui/foldable
+                [:h2.font-medium.opacity-70 "Unlinked References"]
+                (fn []
+                  (reference/unlinked-references page {:sidebar? sidebar?}))
+                {:default-collapsed? true})])])])
       [:div.opacity-75 "Page not found"])))
 
 (rum/defcs page-aux < rum/reactive
