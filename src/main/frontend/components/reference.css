@@ -29,3 +29,8 @@
 .custom-query-page-result {
   @apply p-4 my-1 rounded bg-gray-03;
 }
+
+/* Hide inner view header when references are wrapped in lazy-loading foldable */
+.lazy-loaded-references .ls-view-head {
+  display: none;
+}
