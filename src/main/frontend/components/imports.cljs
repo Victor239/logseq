@@ -301,6 +301,13 @@
                         :info false)
     (log/error :import-ignored-files {:msg (str "Import ignored " (count ignored-files) " file(s)")})
     (pprint/pprint ignored-files))
+  (when-let [ignored-blocks (seq @(:ignored-blocks import-state))]
+    (notification/show! (str "Import skipped " (count ignored-blocks) " "
+                             (if (= 1 (count ignored-blocks)) "block" "blocks")
+                             " due to errors. See the javascript console for more details.")
+                        :warning false)
+    (log/error :import-ignored-blocks {:msg (str "Import skipped " (count ignored-blocks) " block(s)")})
+    (pprint/pprint ignored-blocks))
   (when-let [ignored-assets (seq @(:ignored-assets import-state))]
     (notification/show! (str "Import ignored " (count ignored-assets) " "
                              (if (= 1 (count ignored-assets)) "asset" "assets")

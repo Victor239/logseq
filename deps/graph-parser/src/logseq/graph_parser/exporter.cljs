@@ -1295,6 +1295,23 @@
     ;; Order matters as previous txs are referenced in block
     (concat properties-tx deadline-properties-tx asset-blocks-tx [block'])))
 
+(defn- safe-build-block-tx
+  "Wrapper around build-block-tx that catches exceptions and logs invalid blocks
+   instead of failing the entire import. Returns empty seq for blocks that fail to build."
+  [db block* pre-blocks per-file-state {:keys [import-state log-fn file] :as options}]
+  (try
+    (build-block-tx db block* pre-blocks per-file-state options)
+    (catch :default e
+      (let [title-str (str (:block/title block*))
+            block-info {:block/uuid (:block/uuid block*)
+                        :block/title (subs title-str 0 (min 100 (count title-str)))
+                        :reason (.-message e)
+                        :file file
+                        :error (ex-data e)}]
+        (log-fn :ignored-block "Block failed to import and was skipped" block-info)
+        (swap! (:ignored-blocks import-state) conj block-info)
+        []))))
+
 (defn- update-page-alias
   [m page-names-to-uuids]
   (update m :block/alias (fn [aliases]
@@ -1530,6 +1547,9 @@
    :ignored-files (atom [])
    ;; Vec of maps with keys :path, :reason and :location (optional).
    :ignored-assets (atom [])
+   ;; Vec of maps with keys :block/uuid, :block/title, :reason, :file and optionally :error.
+   ;; Blocks are ignored when they fail to import due to errors
+   :ignored-blocks (atom [])
    ;; Map of annotation page paths and their parsed contents
    :pdf-annotation-pages (atom {})
    ;; Map of property names (keyword) and their current schemas (map of qualified properties).
@@ -1790,8 +1810,8 @@
         pre-blocks (->> blocks (keep #(when (:block/pre-block? %) (:block/uuid %))) set)
         blocks-tx (->> blocks
                        (remove :block/pre-block?)
-                       (mapcat #(build-block-tx @conn % pre-blocks per-file-state
-                                                (assoc tx-options :whiteboard? (some? (seq whiteboard-pages)))))
+                       (mapcat #(safe-build-block-tx @conn % pre-blocks per-file-state
+                                                     (assoc tx-options :whiteboard? (some? (seq whiteboard-pages)))))
                        vec)
         {:keys [property-pages-tx property-page-properties-tx] pages-tx' :pages-tx}
         (split-pages-and-properties-tx pages-tx old-properties existing-pages (:import-state options) @(:upstream-properties tx-options))

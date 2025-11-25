@@ -186,6 +186,7 @@
         "Created graph has no validation errors")
     (is (= 0 (count @(:ignored-properties import-state))) "No ignored properties")
     (is (= 0 (count @(:ignored-assets import-state))) "No ignored assets")
+    (is (= 0 (count @(:ignored-blocks import-state))) "No ignored blocks")
     (is (= []
            (->> (d/q '[:find (pull ?b [:block/title {:block/tags [:db/ident]}])
                        :where [?b :block/tags :logseq.class/Tag]]
@@ -240,6 +241,7 @@
       (is (= 0 (count @(:ignored-properties import-state))) "No ignored properties")
       (is (= 0 (count @(:ignored-assets import-state))) "No ignored assets")
       (is (= 1 (count @(:ignored-files import-state))) "Ignore .edn for now")
+      (is (= 0 (count @(:ignored-blocks import-state))) "No ignored blocks")
       (is (= 5 (count @assets))))
 
     (testing "logseq files"
@@ -620,6 +622,7 @@
     (is (empty? (map :entity (:errors (db-validate/validate-db! @conn))))
         "Created graph has no validation errors")
     (is (= 0 (count @(:ignored-properties import-state))) "No ignored properties")
+    (is (= 0 (count @(:ignored-blocks import-state))) "No ignored blocks")
     (is (= 0 (->> @conn
                   (d/q '[:find [?ident ...]
                          :where [?b :block/tags :logseq.class/Tag] [?b :db/ident ?ident] (not [?b :logseq.property/built-in?])])
