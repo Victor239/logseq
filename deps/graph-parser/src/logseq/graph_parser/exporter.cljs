@@ -1862,8 +1862,8 @@
       (notify-user {:msg (str "Failed to process file: " file "\nError: " (.-message e))
                     :level :error
                     :ex-data {:file file :error e}})
-      ;; Re-throw so the caller can handle it
-      (throw e))))
+      ;; Return nil to allow the import to continue with other files
+      nil)))
 
 ;; Higher level export fns
 ;; =======================
