@@ -294,49 +294,53 @@
     (log/info :org-files (mapv :path org-files))
     (notification/show! (str "Imported " (count org-files) " org file(s) as markdown. Support for org files will be added later.")
                         :info false))
-  (when-let [ignored-files (seq @(:ignored-files import-state))]
-    (notification/show! (str "Import ignored " (count ignored-files) " "
-                             (if (= 1 (count ignored-files)) "file" "files")
-                             ". See the javascript console for more details.")
-                        :info false)
-    (log/error :import-ignored-files {:msg (str "Import ignored " (count ignored-files) " file(s)")})
-    (pprint/pprint ignored-files))
-  (when-let [ignored-blocks (seq @(:ignored-blocks import-state))]
-    (notification/show! (str "Import skipped " (count ignored-blocks) " "
-                             (if (= 1 (count ignored-blocks)) "block" "blocks")
-                             " due to errors. See the javascript console for more details.")
-                        :warning false)
-    (log/error :import-ignored-blocks {:msg (str "Import skipped " (count ignored-blocks) " block(s)")})
-    (pprint/pprint ignored-blocks))
-  (when-let [ignored-assets (seq @(:ignored-assets import-state))]
-    (notification/show! (str "Import ignored " (count ignored-assets) " "
-                             (if (= 1 (count ignored-assets)) "asset" "assets")
-                             ". See the javascript console for more details.")
-                        :info false)
-    (log/error :import-ignored-assets {:msg (str "Import ignored " (count ignored-assets) " asset(s)")})
-    (pprint/pprint ignored-assets))
-  (when-let [ignored-props (seq @(:ignored-properties import-state))]
-    (notification/show!
-     [:.mb-2
-      [:.text-lg.mb-2 (str "Import ignored " (count ignored-props) " "
-                           (if (= 1 (count ignored-props)) "property" "properties"))]
-      [:span.text-xs
-       "To fix a property type, change the property value to the correct type and reimport the graph"]
-      (->> ignored-props
-           (map (fn [{:keys [property value schema location]}]
-                  [(str "Property " (pr-str property) " with value " (pr-str value))
-                   (if (= property :icon)
-                     (if (:page location)
-                       (str "Page icons can't be imported. Go to the page " (pr-str (:page location)) " to manually import it.")
-                       (str "Block icons can't be imported. Manually import it at the block: " (pr-str (:block location))))
-                     (if (not= (get-in schema [:type :to]) (get-in schema [:type :from]))
-                       (str "Property value has type " (get-in schema [:type :to]) " instead of type " (get-in schema [:type :from]))
-                       (str "Property should be imported manually")))]))
-           (map (fn [[k v]]
-                  [:dl.my-2.mb-0
-                   [:dt.m-0 [:strong (str k)]]
-                   [:dd {:class "text-warning"} v]])))]
-     :warning false))
+  (when (and import-state (:ignored-files import-state))
+    (when-let [ignored-files (seq @(:ignored-files import-state))]
+      (notification/show! (str "Import ignored " (count ignored-files) " "
+                               (if (= 1 (count ignored-files)) "file" "files")
+                               ". See the javascript console for more details.")
+                          :info false)
+      (log/error :import-ignored-files {:msg (str "Import ignored " (count ignored-files) " file(s)")})
+      (pprint/pprint ignored-files)))
+  (when (and import-state (:ignored-blocks import-state))
+    (when-let [ignored-blocks (seq @(:ignored-blocks import-state))]
+      (notification/show! (str "Import skipped " (count ignored-blocks) " "
+                               (if (= 1 (count ignored-blocks)) "block" "blocks")
+                               " due to errors. See the javascript console for more details.")
+                          :warning false)
+      (log/error :import-ignored-blocks {:msg (str "Import skipped " (count ignored-blocks) " block(s)")})
+      (pprint/pprint ignored-blocks)))
+  (when (and import-state (:ignored-assets import-state))
+    (when-let [ignored-assets (seq @(:ignored-assets import-state))]
+      (notification/show! (str "Import ignored " (count ignored-assets) " "
+                               (if (= 1 (count ignored-assets)) "asset" "assets")
+                               ". See the javascript console for more details.")
+                          :info false)
+      (log/error :import-ignored-assets {:msg (str "Import ignored " (count ignored-assets) " asset(s)")})
+      (pprint/pprint ignored-assets)))
+  (when (and import-state (:ignored-properties import-state))
+    (when-let [ignored-props (seq @(:ignored-properties import-state))]
+      (notification/show!
+       [:.mb-2
+        [:.text-lg.mb-2 (str "Import ignored " (count ignored-props) " "
+                             (if (= 1 (count ignored-props)) "property" "properties"))]
+        [:span.text-xs
+         "To fix a property type, change the property value to the correct type and reimport the graph"]
+        (->> ignored-props
+             (map (fn [{:keys [property value schema location]}]
+                    [(str "Property " (pr-str property) " with value " (pr-str value))
+                     (if (= property :icon)
+                       (if (:page location)
+                         (str "Page icons can't be imported. Go to the page " (pr-str (:page location)) " to manually import it.")
+                         (str "Block icons can't be imported. Manually import it at the block: " (pr-str (:block location))))
+                       (if (not= (get-in schema [:type :to]) (get-in schema [:type :from]))
+                         (str "Property value has type " (get-in schema [:type :to]) " instead of type " (get-in schema [:type :from]))
+                         (str "Property should be imported manually")))]))
+             (map (fn [[k v]]
+                    [:dl.my-2.mb-0
+                     [:dt.m-0 [:strong (str k)]]
+                     [:dd {:class "text-warning"} v]])))]
+       :warning false)))
   (let [{:keys [errors datom-count entities]} (db-validate/validate-db! db)]
     (if errors
       (do

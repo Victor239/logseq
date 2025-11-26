@@ -1308,6 +1308,7 @@
                         :reason (.-message e)
                         :file file
                         :error (ex-data e)}]
+        (js/console.warn "[Import] Block failed to import:" (:block/uuid block*) (.-message e))
         (log-fn :ignored-block "Block failed to import and was skipped" block-info)
         (swap! (:ignored-blocks import-state) conj block-info)
         []))))
@@ -1794,66 +1795,75 @@
                       :or {notify-user #(println "[WARNING]" (:msg %))
                            log-fn prn}
                       :as *options}]
-  (let [options (assoc *options :notify-user notify-user :log-fn log-fn :file file)
-        {:keys [pages blocks]} (extract-pages-and-blocks @conn file content options)
-        tx-options (merge (build-tx-options options)
-                          {:journal-created-ats (build-journal-created-ats pages)})
-        old-properties (keys @(get-in options [:import-state :property-schemas]))
-        ;; Build page and block txs
-        {:keys [pages-tx page-properties-tx per-file-state existing-pages]} (build-pages-tx conn pages blocks tx-options)
-        whiteboard-pages (->> pages-tx
-                              ;; support old and new whiteboards
-                              (filter ldb/whiteboard?)
-                              (map (fn [page-block]
-                                     (-> page-block
-                                         (assoc :logseq.property/ls-type :whiteboard-page)))))
-        pre-blocks (->> blocks (keep #(when (:block/pre-block? %) (:block/uuid %))) set)
-        blocks-tx (->> blocks
-                       (remove :block/pre-block?)
-                       (mapcat #(safe-build-block-tx @conn % pre-blocks per-file-state
-                                                     (assoc tx-options :whiteboard? (some? (seq whiteboard-pages)))))
-                       vec)
-        {:keys [property-pages-tx property-page-properties-tx] pages-tx' :pages-tx}
-        (split-pages-and-properties-tx pages-tx old-properties existing-pages (:import-state options) @(:upstream-properties tx-options))
-        ;; _ (when (seq property-pages-tx) (cljs.pprint/pprint {:property-pages-tx property-pages-tx}))
-        ;; Necessary to transact new property entities first so that block+page properties can be transacted next
-        main-props-tx-report (d/transact! conn property-pages-tx {::new-graph? true ::path file})
-        _ (save-from-tx property-pages-tx options)
+  (try
+    (let [options (assoc *options :notify-user notify-user :log-fn log-fn :file file)
+          {:keys [pages blocks]} (extract-pages-and-blocks @conn file content options)]
+      (when (or pages blocks) ;; Only proceed if there's something to process
+        (let [tx-options (merge (build-tx-options options)
+                                {:journal-created-ats (build-journal-created-ats pages)})
+              old-properties (keys @(get-in options [:import-state :property-schemas]))
+              ;; Build page and block txs
+              {:keys [pages-tx page-properties-tx per-file-state existing-pages]} (build-pages-tx conn pages blocks tx-options)
+              whiteboard-pages (->> pages-tx
+                                    ;; support old and new whiteboards
+                                    (filter ldb/whiteboard?)
+                                    (map (fn [page-block]
+                                           (-> page-block
+                                               (assoc :logseq.property/ls-type :whiteboard-page)))))
+              pre-blocks (->> blocks (keep #(when (:block/pre-block? %) (:block/uuid %))) set)
+              blocks-tx (->> blocks
+                             (remove :block/pre-block?)
+                             (mapcat #(safe-build-block-tx @conn % pre-blocks per-file-state
+                                                           (assoc tx-options :whiteboard? (some? (seq whiteboard-pages)))))
+                             vec)
+              {:keys [property-pages-tx property-page-properties-tx] pages-tx' :pages-tx}
+              (split-pages-and-properties-tx pages-tx old-properties existing-pages (:import-state options) @(:upstream-properties tx-options))
+              ;; _ (when (seq property-pages-tx) (cljs.pprint/pprint {:property-pages-tx property-pages-tx}))
+              ;; Necessary to transact new property entities first so that block+page properties can be transacted next
+              main-props-tx-report (d/transact! conn property-pages-tx {::new-graph? true ::path file})
+              _ (save-from-tx property-pages-tx options)
 
-        classes-tx @(:classes-tx tx-options)
-        {:keys [retract-page-tags-tx] pages-tx'' :pages-tx} (clean-extra-invalid-tags @conn pages-tx' classes-tx existing-pages)
-        classes-tx' (concat classes-tx retract-page-tags-tx)
-        ;; Build indices
-        pages-index (->> (map #(select-keys % [:block/uuid]) pages-tx'')
-                         (concat (map #(select-keys % [:block/uuid]) classes-tx))
-                         distinct)
-        block-ids (map (fn [block] {:block/uuid (:block/uuid block)}) blocks-tx)
-        block-refs-ids (->> (mapcat :block/refs blocks-tx)
-                            (filter (fn [ref] (and (vector? ref)
-                                                   (= :block/uuid (first ref)))))
-                            (map (fn [ref] {:block/uuid (second ref)}))
-                            (seq))
-        ;; To prevent "unique constraint" on datascript
-        blocks-index (set/union (set block-ids) (set block-refs-ids))
-        ;; Order matters. pages-index and blocks-index needs to come before their corresponding tx for
-        ;; uuids to be valid. Also upstream-properties-tx comes after blocks-tx to possibly override blocks
-        tx (concat whiteboard-pages pages-index page-properties-tx property-page-properties-tx pages-tx'' classes-tx' blocks-index blocks-tx)
-        tx' (common-util/fast-remove-nils tx)
-        ;; (prn :tx-counts (map #(vector %1 (count %2))
-        ;;                        [:whiteboard-pages :pages-index :page-properties-tx :property-page-properties-tx :pages-tx' :classes-tx :blocks-index :blocks-tx]
-        ;;                        [whiteboard-pages pages-index page-properties-tx property-page-properties-tx pages-tx' classes-tx blocks-index blocks-tx]))
-        ;; _ (when (not (seq whiteboard-pages)) (cljs.pprint/pprint {#_:property-pages-tx #_property-pages-tx :pages-tx pages-tx :tx tx'}))
-        main-tx-report (d/transact! conn tx' {::new-graph? true ::path file})
-        _ (save-from-tx tx' options)
+              classes-tx @(:classes-tx tx-options)
+              {:keys [retract-page-tags-tx] pages-tx'' :pages-tx} (clean-extra-invalid-tags @conn pages-tx' classes-tx existing-pages)
+              classes-tx' (concat classes-tx retract-page-tags-tx)
+              ;; Build indices
+              pages-index (->> (map #(select-keys % [:block/uuid]) pages-tx'')
+                               (concat (map #(select-keys % [:block/uuid]) classes-tx))
+                               distinct)
+              block-ids (map (fn [block] {:block/uuid (:block/uuid block)}) blocks-tx)
+              block-refs-ids (->> (mapcat :block/refs blocks-tx)
+                                  (filter (fn [ref] (and (vector? ref)
+                                                         (= :block/uuid (first ref)))))
+                                  (map (fn [ref] {:block/uuid (second ref)}))
+                                  (seq))
+              ;; To prevent "unique constraint" on datascript
+              blocks-index (set/union (set block-ids) (set block-refs-ids))
+              ;; Order matters. pages-index and blocks-index needs to come before their corresponding tx for
+              ;; uuids to be valid. Also upstream-properties-tx comes after blocks-tx to possibly override blocks
+              tx (concat whiteboard-pages pages-index page-properties-tx property-page-properties-tx pages-tx'' classes-tx' blocks-index blocks-tx)
+              tx' (common-util/fast-remove-nils tx)
+              ;; (prn :tx-counts (map #(vector %1 (count %2))
+              ;;                        [:whiteboard-pages :pages-index :page-properties-tx :property-page-properties-tx :pages-tx' :classes-tx :blocks-index :blocks-tx]
+              ;;                        [whiteboard-pages pages-index page-properties-tx property-page-properties-tx pages-tx' classes-tx blocks-index blocks-tx]))
+              ;; _ (when (not (seq whiteboard-pages)) (cljs.pprint/pprint {#_:property-pages-tx #_property-pages-tx :pages-tx pages-tx :tx tx'}))
+              main-tx-report (d/transact! conn tx' {::new-graph? true ::path file})
+              _ (save-from-tx tx' options)
 
-        upstream-properties-tx
-        (build-upstream-properties-tx @conn @(:upstream-properties tx-options) (:import-state options) log-fn)
-        ;; _ (when (seq upstream-properties-tx) (cljs.pprint/pprint {:upstream-properties-tx upstream-properties-tx}))
-        upstream-tx-report (when (seq upstream-properties-tx) (d/transact! conn upstream-properties-tx {::new-graph? true ::path file}))
-        _ (save-from-tx upstream-properties-tx options)]
+              upstream-properties-tx
+              (build-upstream-properties-tx @conn @(:upstream-properties tx-options) (:import-state options) log-fn)
+              ;; _ (when (seq upstream-properties-tx) (cljs.pprint/pprint {:upstream-properties-tx upstream-properties-tx}))
+              upstream-tx-report (when (seq upstream-properties-tx) (d/transact! conn upstream-properties-tx {::new-graph? true ::path file}))
+              _ (save-from-tx upstream-properties-tx options)]
 
-    ;; Return all tx-reports that occurred in this fn as UI needs to know what changed
-    [main-props-tx-report main-tx-report upstream-tx-report]))
+          ;; Return all tx-reports that occurred in this fn as UI needs to know what changed
+          [main-props-tx-report main-tx-report upstream-tx-report])))
+    (catch :default e
+      (js/console.error "[Import] Error in add-file-to-db-graph for file:" file e)
+      (notify-user {:msg (str "Failed to process file: " file "\nError: " (.-message e))
+                    :level :error
+                    :ex-data {:file file :error e}})
+      ;; Re-throw so the caller can handle it
+      (throw e))))
 
 ;; Higher level export fns
 ;; =======================
@@ -1865,15 +1875,18 @@
          export-file (fn export-file [conn m opts]
                        (add-file-to-db-graph conn (:file/path m) (:file/content m) opts))}
     :as options}]
-  ;; (prn :export-doc-file path idx)
+  (js/console.log "[Import] Processing file" (inc idx) ":" path)
   (-> (p/let [_ (set-ui-state [:graph/importing-state :current-idx] (inc idx))
               _ (set-ui-state [:graph/importing-state :current-page] path)
               content (<read-file file)
               m {:file/path path :file/content content}]
+        (js/console.log "[Import] Exporting file:" path)
         (export-file conn m (dissoc options :set-ui-state :export-file))
+        (js/console.log "[Import] Successfully processed:" path)
         ;; returning val results in smoother ui updates
         m)
       (p/catch (fn [error]
+                 (js/console.error "[Import] Error processing file:" path error)
                  (notify-user {:msg (str "Import failed on " (pr-str path) " with error:\n" (.-message error))
                                :level :error
                                :ex-data {:path path :error error}})))))
@@ -1884,6 +1897,7 @@
   [conn *doc-files <read-file {:keys [notify-user set-ui-state]
                                :or {set-ui-state (constantly nil) notify-user prn}
                                :as options}]
+  (js/console.log "[Import] Starting doc files export. Total files:" (count *doc-files))
   (set-ui-state [:graph/importing-state :total] (count *doc-files))
   (let [doc-files (mapv #(assoc %1 :idx %2)
                         ;; Sort files to ensure reproducible import behavior
@@ -1892,15 +1906,23 @@
                                    [(not (string/starts-with? (node-path/basename path) "hls__")) path])
                                  *doc-files)
                         (range 0 (count *doc-files)))]
-    (-> (p/loop [_file-map (export-doc-file (get doc-files 0) conn <read-file options)
-                 i 0]
-          (when-not (>= i (dec (count doc-files)))
-            (p/recur (export-doc-file (get doc-files (inc i)) conn <read-file options)
-                     (inc i))))
-        (p/catch (fn [e]
-                   (notify-user {:msg (str "Import has unexpected error:\n" (.-message e))
-                                 :level :error
-                                 :ex-data {:error e}}))))))
+    (if (empty? doc-files)
+      (do
+        (js/console.log "[Import] No doc files to process")
+        (p/resolved nil))
+      (-> (p/loop [_file-map (export-doc-file (get doc-files 0) conn <read-file options)
+                   i 0]
+            (if (>= i (dec (count doc-files)))
+              (do
+                (js/console.log "[Import] Completed all" (count doc-files) "files")
+                nil)
+              (p/recur (export-doc-file (get doc-files (inc i)) conn <read-file options)
+                       (inc i))))
+          (p/catch (fn [e]
+                     (js/console.error "[Import] Unexpected error during doc files export:" e)
+                     (notify-user {:msg (str "Import has unexpected error:\n" (.-message e))
+                                   :level :error
+                                   :ex-data {:error e}})))))))
 
 (defn- default-save-file [conn path content]
   (ldb/transact! conn [{:file/path path
@@ -2110,12 +2132,15 @@
   [repo-or-conn conn config-file *files {:keys [<read-file <read-and-copy-asset rpath-key log-fn]
                                          :or {rpath-key :path log-fn println}
                                          :as options}]
+  (js/console.log "[Import] Starting file graph export with" (count *files) "files")
   (reset! gp-block/*export-to-db-graph? true)
   (->
-   (p/let [config (export-config-file
+   (p/let [_ (js/console.log "[Import] Reading config file...")
+           config (export-config-file
                    repo-or-conn config-file <read-file
                    (-> (select-keys options [:notify-user :default-config :<save-config-file])
                        (set/rename-keys {:<save-config-file :<save-file})))]
+     (js/console.log "[Import] Config loaded successfully")
      (let [files (common-config/remove-hidden-files *files config rpath-key)
            logseq-file? #(string/starts-with? (get % rpath-key) "logseq/")
            asset-file? #(string/starts-with? (get % rpath-key) "assets/")
@@ -2124,30 +2149,39 @@
                           (filter #(contains? #{"md" "org" "markdown" "edn"} (path/file-ext (:path %)))))
            asset-files (filter asset-file? files)
            doc-options (build-doc-options config options)]
+       (js/console.log "[Import] Processing" (count doc-files) "doc files," (count asset-files) "asset files")
        (log-fn "Importing" (count doc-files) "files ...")
        ;; These export* fns are all the major export/import steps
        (p/do!
-        (export-logseq-files repo-or-conn (filter logseq-file? files) <read-file
-                             (-> (select-keys options [:notify-user :<save-logseq-file])
-                                 (set/rename-keys {:<save-logseq-file :<save-file})))
-        ;; Assets are read first as doc-files need data from them to make Asset blocks.
-        (read-and-copy-asset-files asset-files
-                                   <read-and-copy-asset
-                                   (merge (select-keys options [:notify-user :set-ui-state :rpath-key])
-                                          {:assets (get-in doc-options [:import-state :assets])}))
-        (export-doc-files conn doc-files <read-file doc-options)
-        (export-favorites-from-config-edn conn repo-or-conn config {})
-        (export-class-properties conn repo-or-conn)
-        (move-top-parent-pages-to-library conn repo-or-conn)
-        {:import-state (-> (:import-state doc-options)
-                           ;; don't leak full asset content (which could be large) out of this ns
-                           (dissoc :assets))
-         :files files})))
+        (do (js/console.log "[Import] Exporting logseq files...")
+            (export-logseq-files repo-or-conn (filter logseq-file? files) <read-file
+                                 (-> (select-keys options [:notify-user :<save-logseq-file])
+                                     (set/rename-keys {:<save-logseq-file :<save-file}))))
+        (do (js/console.log "[Import] Reading and copying asset files...")
+            ;; Assets are read first as doc-files need data from them to make Asset blocks.
+            (read-and-copy-asset-files asset-files
+                                       <read-and-copy-asset
+                                       (merge (select-keys options [:notify-user :set-ui-state :rpath-key])
+                                              {:assets (get-in doc-options [:import-state :assets])})))
+        (do (js/console.log "[Import] Exporting doc files...")
+            (export-doc-files conn doc-files <read-file doc-options))
+        (do (js/console.log "[Import] Exporting favorites...")
+            (export-favorites-from-config-edn conn repo-or-conn config {}))
+        (do (js/console.log "[Import] Exporting class properties...")
+            (export-class-properties conn repo-or-conn))
+        (do (js/console.log "[Import] Moving top parent pages to library...")
+            (move-top-parent-pages-to-library conn repo-or-conn))
+        (do (js/console.log "[Import] Import completed successfully!")
+            {:import-state (-> (:import-state doc-options)
+                               ;; don't leak full asset content (which could be large) out of this ns
+                               (dissoc :assets))
+             :files files}))))
    (p/finally (fn [_]
+                (js/console.log "[Import] Cleaning up...")
                 (reset! gp-block/*export-to-db-graph? false)))
    (p/catch (fn [e]
               (reset! gp-block/*export-to-db-graph? false)
-              (js/console.error e)
+              (js/console.error "[Import] Fatal error during import:" e)
               ((:notify-user options)
                {:msg (str "Import has unexpected error:\n" (.-message e))
                 :level :error
