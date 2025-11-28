@@ -1,0 +1,19 @@
+- Meta
+- ## Sorted by priority
+	- ((63ff81aa-c2ff-4993-bcdb-776da4aa373a))
+	- [[Reminders]]
+	- ((63ff81a9-8306-4b54-8bbd-21f55dbfe67e)) : ((66cf8ec0-5d51-4f78-8f1a-6741761548b1))
+	- [[Next Action]]
+	- logseq-coding : ((629d61d2-59e9-4b53-9c33-d383e3d3c339))
+	- See [[Programming]] learning / action habit
+		- make time for leetcode and interviews
+	- ((63ff81a9-8306-4b54-8bbd-21f55dbfe67e)) : ((644c0b30-795d-4324-ab14-7296f00c8d20)) : ((66cf8ec0-9259-4ddc-bf05-a4b7236bf07b))
+	- ((63ff81a9-8306-4b54-8bbd-21f55dbfe67e)) : ((65f6bbda-41d4-495e-9e27-043ee1060089))
+	- ((635eb19f-7392-4555-bfc8-ff59910b1ba8))
+	- ((64e0946e-9467-42fb-9699-505a0dcc4efe))
+	- [[Media]] : ((62d0352e-70d8-40a3-8d59-b63a7929d9fc))
+	- ### To sort out before readding
+		- ((685ef48a-c004-42e9-b4e0-836a303c1e00))
+- Related:
+	- ((644c0b47-5f03-4b45-a480-0c02a878d2df))
+	- ((644c0a9c-ca51-4995-b0f8-862a96ba3c99))

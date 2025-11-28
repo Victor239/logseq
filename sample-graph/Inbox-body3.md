@@ -1,0 +1,3754 @@
+- Fat Loss
+    collapsed:: true
+	- Bulletproof Rapid Fat Loss Protocol: How to Lose Fat Way Faster Than You Should
+	    collapsed:: true
+		- 461 comments
+			- Being fat sucks.
+		- It’s bad for every part of your body. Your body is actually breaking down, your relationships suffer, you brain doesn’t work right, your joints hurt, you lose muscle, and you just don’t look good in the mirror. Conventional wisdom says you should start cutting fat and calories and run on a treadmill for an hour a day. Then you’re made to feel as if it’s your fault because their advice doesn’t work.
+		- After living this for years when I weighed 300 pounds, I know how frustrating this can be. Luckily, losing fat doesn’t have to be that hard.
+		- In an earlier post, you discovered how to increase muscle growth, brain function, and longevity with regular Bulletproof Intermittent Fasting. Now, you can learn how to lose massive amounts of fat with the Bulletproof Rapid Fat Loss Protocol.
+		- A Word of Warning
+		- It’s a safer and better idea to just use Bulletproof Intermittent Fasting and the Bulletproof Diet to lose weight. It falls off faster than you’d think – 30-40 pounds in 6-8 weeks is reasonable for people with at least 60lbs to lose. But for some people, 6 weeks is an eternity, and they’re going to lose weight NOW whatever it takes. Your body stores toxins in your fat, including unoxidized substances that your liver didn’t have energy to oxidize for excretion, as well as heavy metals and pesticides. (We confirmed this via direct assay as a part of an immunology lab testing company I helped to found.)
+		- Very rapid weight loss will release those toxins, and this can make you very sick. It can even kill you. If you’re not set up to oxidize, bind, and excrete those toxins, when you melt the fat, those toxins will harm your tissues again, including your liver, kidneys, and brain.
+		- I built this protocol for people who simply won’t take my advice to be patient and eat the Bulletproof Diet while using Bulletproof Intermittent Fasting. It uses biohacking techniques I pioneered on myself to reduce – but not eliminate – the risks of rapid fat loss. It prevents the metabolic harm and brain fog that come with very low calorie diets (or multiple day fasts), and it does everything I can think of to maintain health in the face of additional toxins. This is also not intended for people who are already fairly lean (10-14% body fat). It is designed for obese and severely overweight people who want to lose fat as fast as possible.
+		- See your health care provider before and while you do this, and get your liver enzymes and kidney function tested as we recommend below. If your liver or kidneys are already stressed, you need to fix that before using this protocol. Stick to the Bulletproof Diet, enhancing metabolism, and removing toxins in that case.
+		- Bulletproof Rapid Fat Loss Protocol
+		- Goal: Lose as much fat as possible as fast as possible.
+		- The Rapid Fat Loss Protocol combines a modified cyclical ketogenic diet with mTOR stimulation, mitochondrial optimization, and ongoing toxin binding. The result is massive rapid fat loss with fewer – or no (we think) - metabolic problems associated with VLCD (very low calorie diets). It will combine a 6 day ketogenic phase using Bulletproof Coffee, followed by a 1 day high carb re-feeding.
+		- This is the exact same protocol I used to melt 75 pounds of fat off of one of my clients – in 75 days. You’ll learn about that story in a post soon.
+		- Step 1: Eat Bulletproof and Test Yourself.
+		- It is best to eat a strict Bulletproof Diet for at least a week or two beforehand to store extra nutrients. This also helps reset your hormonal status if you’ve been yo-yo dieting. You don’t have to do this, but it’s a good idea. You may find that eating The Bulletproof Diet is enough of a stimulus for weight loss, and that fasting is unnecessary. You also need to get used to digesting fat if you’ve been on a low fat diet.
+		- Testing: Test your liver enzymes, vitamin D levels, and blood lipids before the fast. These tests will be taken again after the fast. Go to your doctor if you feel really unwell at any time during this process.
+			- Liver & kidney function
+			- Vitamin D Levels (25OHD) while you’re at it
+			- Blood lipids Step 2: Drink Bulletproof Coffee
+		- Bulletproof Coffee is a mix of brewed Upgraded Coffee Beans (or other beans that meet the standards for toxins defined on the blog…about 92% of beans have toxins in them that affect your weight loss), grass-fed butter, and pharmaceutical grade MCT oil. You can find the complete recipe here.
+		- Adding an extra tablespoon of MCT oil increases thermogenesis and ketone formation. (careful – if you’ve never had MCT oil, work your way up. Too much MCT oil can give you the runs. People who eat it normally, or who eat coconut oil, have no problems.)
+		- Drink as much Bulletproof Coffee as you like in the morning, subject to your caffeine tolerance. Do not eat anything else during the day – only about 500ml or less of Bulletproof Coffee. You can have another cup before 2:00 PM if you get hungry and the caffeine is not a problem. No coffee after 2:00 PM so you can sleep. Drink lots of water, always with a pinch of pink Himalayan salt in it. (don’t waterboard yourself, just remember to stay hydrated). If you hate coffee or you’re caffeined out, you can use green tea. Or just eat some butter with pink Himalayan salt sprinkled on it. Just eat no protein and no carbs.
+		- You will continue this process for five or six days. Then (see step 3) you have a food day.
+		- The fat on this program makes you feel MUCH better than you do on a fast or a low fat diet. Most people can continue to work (in office jobs) at normal levels. In fact, most people feel like rock stars, with even more energy than normal. This is not a diet to use while you’re working out excessively, although a short workout once a week right before you eat will help.
+		- This might seem extreme, but remember that you won’t be short on calories, you won’t get cold, or stupid, or cranky like you do on a low calorie diet. You’re just firmly telling your body that if it wants to survive (trust me, it does), then it has to learn to burn fat VERY well.
+		- You probably will need to take a capsule of Betaine HCL, a digestive aid, with your coffee to help your body digest and emulsify the fat you’ll eat.
+		- Supplements are not optional for safety reasons. Besides the branched chain amino acids, activated charcoal, and lipoceutical glutathione, almost everyone should be taking these supplements anyway.
+		- Step 3: Supplement
+		- 1000IU per 25 pounds of body weight of Vitamin D3. Adjust this dose based on your lab results. Target 70-90.
+		- 500mg of magnesium with 200mg of potassium at night. Here’s a good capsule based form as an alternative to Natural Calm.
+		- 1 capsule of krill oil each day (with Bulletproof Coffee).
+		- 1 capsule (2000mcg) of vitamin K2.
+		- 1-2 grams (or more) of unbuffered vitamin C every 8 hours.
+		- 1tsp Lipoceutical Glutathione away from other fat, twice per day (very important for liver function)
+		- 5 grams of branched chain amino acids (BCAAs) twice a day.
+		- 2-10 capsules (560 mgeach) of activated charcoal 2-3 times a day. Take these away from other supplements or drugs, as charcoal binds all toxins, including pharmaceuticals. Too much is constipating.
+		- 1 tsp of pink Himalayan salt in the morning in a large glass of water (if it gives you diarrhea, reduce to 1/2 or 1/4 tsp). This gives you a small burst of energy in the A.M. Repeat the pink Himalayan salt throughout the day if it tastes good or makes you feel better. At least a pinch in each glass of water is important for electrolyte formation.
+		- If you ever feel tired or week, take up to 10-20 grams of L-Glutamine. Do not exceed 40 grams in a single day.
+		- A sample day might look like this:
+		- 6:00 AM: Wake up.
+			- 1tsp Lipoceutical Glutathione (up to 1 Tbs is better, but it gets expensive)
+			- Pink Himalayan salt 7:00 AM:
+			- Drink Bulletproof Coffee.
+			- Vitamin D3
+			- Betaine HCL capsule
+			- 5 grams of BCAAs
+			- 1 gram of vitamin C.
+			- 1 capsule of krill oil.
+			- 1 capsule of vitamin K2. 10:00 AM:
+			- 2-4 capsules of activated charcoal (taken away from other stuff) 11:00 AM
+			- 20 grams of L-Glutamine. 1:00 PM:
+			- 1/2 cup of Bulletproof Coffee with a betaine HCL capsule 4:00 PM:
+			- 5 grams of BCAAs 6:00 PM:
+			- 2-4 capsules of activated charcoal. 7:00PM:
+			- Eat some butter (your body will tell you how much, at least 1 Tbs) with a betaine HCL capsule 9:00 PM:
+			- 500mg of magnesium
+			- 200mg of potassium What to Expect
+		- You will feel hungry sometimes, but you can eat more fat if you do. The first three days, you may need L-glutamine. If your body is really toxic, you may feel headaches or like you got the flu. It passes in a couple days. If you need painkillers, go for aspirin, NEVER Tylenol. Tylenol will hurt your liver and make it hard to detox because it depletes glutathione.
+		- Then, expect to feel really good, to not miss food, to have great energy, and for it to not be that hard to stick to.
+		- You will find that you lose up to 8 lbs quickly, which is your glycogen (and water) going down. Then you will plateau for a few days. I recommend you weigh-in only once per week, which will stop the emotional ups and downs. The mirror is your scale the rest of the time. The weight will come off in chunks after that. Nothing for a couple days, then sometimes 3-5 lbs in one day. It just keeps happening. But the mirror never lies.
+		- If you feel really unwell, stop the program, and call your doctor. Protocols like this one have been in use for a while (without the mTOR from coffee or the detoxing agents, which are 100% bulletproof additions) with good safety.
+		- Now the fun part…
+		- Step 4: Re-Feed after at least 5 days of eating only fat
+		- Over the past five or six days of this protocol, you’ve been in deep ketosis and burning only fat, but you haven’t had to be particularly calorie restricted. In order to reset leptin levels and prevent a large drop in energy levels, you need to re-feed. Contrary to our normal recommendations, you need to pound down the carbs. When it comes to normalizing leptin levels, fat has no effect, while carbs are going to send them sky high.
+		- This is not a “cheat day.” This does not give you license to drown yourself in sugar and frankenfoods. That will set you back several days. You need to eat as many sweet potatoes and other Bulletproof starchy tubers as you like. Eat a large amount of grass-fed meat, pastured eggs, and wild seafood for protein.
+		- Don’t think going low-carb on the overfeed day is going to improve the results. It will make them worse. You do not need to avoid fat, but you do need to work on making sweet potatoes, yams, and white rice the bulk of your diet for this one day. You can drown your sweet potatoes in butter or not; it doesn’t matter as long as you eat the potatoes. It’s important to choose glucose based carb sources like sweet potatoes and Taro over fruit. Fructose is 10-20% more lipogenic (fat forming) during overfeeding than glucose.
+		- The re-feed occurs one out of every 6 or 7 days. Most people choose to fast for 6 days and save one day of the weekend for their re-feed day.
+		- What to Expect
+		- You will relish the day and you will eat like a king (or queen). You’ll sleep really well. When you wake up, you will have some water weight, and may gain a pound or two. Don’t worry, you shouldn’t have weighed yourself. Go back on the coffee and keep it up. Stop the program if you feel really unwell and call your doctor if necessary.
+		- Step 5: Retest
+		- Take the same tests as you did before the protocol. Your HDL will probably be higher. Your LDL will probably be higher – sometime sky high – which is normal as you’re metabolizing years of toxins stored in your body. They drop over time but will not be excessively low. That’s not good for your brain or your hormones.
+		- How long do you continue this process?
+		- Until you’ve lost your desired amount of fat mass. Most people can reach 10-14% body fat on this protocol without a problem.
+		- If you need some extra motivation, read this article about a man who fasted for 382 days and lost 275 pounds with no ill effects.
+		- What if you don’t need to lose fat?
+		- Bulletproof Intermittent Fasting is a perfect way to take advantage of the health benefits of intermittent fasting for people who don’t feel good skipping meals. It allows you to maintain your mental performance while reaping many of the benefits of intermittent fasting.
+		- Starving yourself on low calorie diets is bad for you, but intermittent fasting supercharges metabolic health, fights cancer, improves blood lipids, and makes your brain healthier. Don’t believe it? Read on…
+		- Fasting increases the action of insulin and improves glucose uptake.
+		- In rats, fasting increases lifespan (PDF).
+		- Intermittent fasting is better than caloric restriction in improving metabolic syndrome in overweight women.
+		- Alternate day fasting lowers triglycerides and LDL cholesterol. This is also true for obese adults.
+		- Fasting is better than caloric restriction for fighting cancer in mice.
+		- Intermittent fasting extends life in almost all species.
+		- Fasting increases autophagy which increases cell health.
+		- Intermittent fasting decreases oxidative stress and increases cellular stress resistance (IF makes you more resilient).
+		- Intermittent fasting can even decrease the negative effects of chemotherapy and help cocaine addicts recover.
+		- Maybe most importantly, intermittent fasting increases neuronal plasticity and neurogenesis (brain health).
+		- It’s obvious there are serious benefits to be had from intermittent fasting. The problem is some people don’t feel well skipping meals. As with everything, there’s a way to hack this problem.
+		- A study published in the American Journal of Physiology found that carbohydrate restriction was one of the main reasons intermittent fasting works. You can get many of the benefits of intermittent fasting just by limiting carbohydrate intake.
+		- Bulletproof Intermittent Fasting takes all of this information and applies it in a simple way for you to become more powerful. This method can be used for both fat loss, life extension, and as you’re going to read in another article: mental performance.
+		- If you plan on trying The Rapid Fat Loss Protocol, please leave a comment or let us know the results you achieve. But remember – you can lose the weight on just the Bulletproof Diet.
+	- Cheat Day Strategies
+	    collapsed:: true
+		- Cheat Day Strategies
+		- Cheat Day Strategies
+		- Here are some strategies you might find useful. They are how I approach cheat days and holiday feasts, and what I encourage my clients to do. First, however let me address what you should not be doing.
+		- 1. Don't stress it.
+		- Some people "pre-compensate" holidays by training themselves into the ground and/or reduce calories significantly in the days leading up to the feast. I highly recommend you do not do this, since I can almost guarantee that you will end up eating a lot more than you would normally if you approach holidays or feasts in a "deprived" mindset.
+		- I touched on this issue in "Intermittent Fasting, Set-Point and Leptin." On the folly of "planning" a big meal or refeed at the end of the diet instead of taking it nice and easy, I said:
+		- "...I would sit and plan my big refeed meal at the end of the diet. I would count every day like an inmate counting the days to his release from prison. And once I reached my goal, I would go bonkers, eat a bunch of crap, take several steps back and then go back to dieting in a feeble attempt to make up for my screwed up 'refeed' (aka binge in my case)."
+		- Take it nice and slow - don't do anything stupid in the days before. No need to train your butt off and deplete glycogen, no need to up your cardio to two hours a day. You'll just end up eating more junk if you do. This is due to a combination of psychology and physiology (i.e. plummeting leptin.)
+		- The topic of calorie-compensation is a well-known phenomenon; it's part of why exercise doesn't produce the predicted weight loss in some people. This is based on studies on Average Joes and Janes, and do not apply in most circumstances to the people reading this article. However, with specific reference to holiday eating and cheat days, I definitely notice a tendency in myself to eat more than I normally would if I train or reduce calories in the day leading up to the occasion.
+		- Surely some people get away with it and don't compensate but in my experience those who think they are exempt from the rule are the ones to which the rule applies.
+		- 2. Create a calorie buffer.
+		- On the day of the feast, you'll want to make sure you have a buffer saved up for the occasion. You'll either want to reduce your meal frequency as much as you can or reduce your calorie intake in the meals leading up to the feast.
+		- If possible, fast up until the big meal. This is easy and a bit of a no-brainer for those used to intermittent fasting. If you are used to 16-hour fasts per my usual recommendations, it should not be an issue to prolong it further, i.e. doing a 20-24 hour fast ("Eat Stop Eat"-style).
+		- Make sure you eat a high-protein meal on the day before, as usual - preferably with fiber to slow down absorption. That's also a good practice for regular Leangains-fasts but it's even more so important for >16-hour fasts to avoid hunger pangs in my experience. Should hunger become unbearable, which I've never experienced even during prolonged fasting, drink some coffee and/or eat a plate of fibrous vegetables.
+		- The second best strategy if you're not used to intermittent fasting is to use a "high-protein low-everything-else"-diet leading up to the feast. This will maximize satiety for the lowest amount of calories. Here's an example assuming you have your big feast planned for dinner or around evening, 5-8 PM or so:
+		- 10-12 PM: 40-50 g protein, trace carbs and fat (~200-250 kcal)
+		- 2-3 PM: Same as above.
+		- 5-8 PM: The grand feast. Be it Thanksgiving Dinner, cheesecake mastery or whatever else you have planned that involves eating yourself silly.
+		- For a regular guy, the above plan allows about 2000 calories of goodness during the big meal until any significant fat gain occurs. Still, if you're like me you can eat a whole lot more than that in one sitting. Next we'll have a look at what you can do for damage control during the meal itself.
+		- By the way, here's a pro tip: If you don't know how to make a "high-protein, low-everything-else"-diet bearable, you need to try protein fluff. I've yet to encounter a more satiating and tasty high-protein treat.
+		- Protein fluff; I mistakenly wrote that you'd need casein or milk-protein isolate for this, but people report getting respectable fluffs with some whey protein brands as well. Give it a go - you'll love it.
+		- 3. Protein priority.
+		- In the short-term, splurging on high-carb, high-protein and low-fat foods would lead to insignificant fat gain, as glycogen stores would soak up most of the carbs (which would severely limit DNL.) However, such an approach is not very appealing, or realistic, if you want to experience the splendor of Thanksgiving and Christmas. I don't know about you, but I never think of the gifts on Christmas - I think of all the food I get to eat :D
+		- Here's how I suggest you approach the eating spree that is about to ensue:
+		- * Vary fat and carb intake to personal preference but make protein a high priority. "Protein first - carbs and fat for taste". If you think of your meals like this, it'll automatically raise the percentage of protein during the meal, increasing TEF and satiety.
+		- * In regards to the order which you eat your foods, I suggest mainly focusing on protein, fat and volume (i.e. veggies) first and then add carbs in later. In my personal experience, this tends to maximize both short-term and long-term satiety and reduce calorie intake later on. Fat has a latent effect on appetite-suppression, so eating more fat earlier on makes sense.
+		- * Do not neglect food volume - if possible, try to fill up on veggies in your early meals and save the more calorie-dense stuff for later on.
+		- * Sucrose, fructose and liquid calories, i.e. treats, cakes and alcohol, should preferably be added in last, when you're full from the main meal(s).
+		- 4. Limit choices, not amounts.
+		- Studies show that when people are presented with multiple food-choices, they eat more. In fact, calorie intake during a buffet scales almost linearly with the amount of different foods to choose from. If I offered you unlimited amounts of turkey and cheesecake, you'd likely only eat so much of it before you felt "full" and satisfied.
+		- However, if I threw a third food into the mix, like potatoes or chocolate pudding, you'd end up eating a lot more - even if you weren't a fan of potatoes or chocolate pudding in normal circumstances. Humans are wired a bit funny and some behaviors are maladaptive in our environment of excesses. Having a taste of everything was a good strategy during our evolution, since it protected again micronutrient-deficiencies.
+		- By "mentally limiting" the food choices you allow yourself, i.e. only eating that which you absolutely love and crave, can be a very effective strategy in regulating calorie intake without feeling deprived. Remember, you don't need to taste of every damn food or treat that is offered. Stick to that which you truly enjoy eating and skip the rest.
+	- Cheat Mode: The Official Guide
+	    collapsed:: true
+		- Cheat Mode: The Official Guide
+		- Cheat Mode: The Official Guide
+		- By
+			- Like Cheat Mode? I’m giving the guide out for free but you can show your appreciation by donating in the sidebar to the right
+		- Cheat Mode: A scientific and surprisingly healthy way to lose fat and build muscle while fucking moderation in the ass: An Official Guide.
+		- Consider this article as the official ‘Guide’ to Cheat Mode (CM). It outlines the major sections of CM and important criteria to note.
+		- It should go without saying that to follow Cheat Mode you kinda need to follow Cheat Mode, but this sentence came into existence because people assume that they can manipulate critical criteria without consequences.
+		- Cheat Mode is designed for people who want the generic goal of ‘Building muscle while losing fat’. It is also designed to be the first daily lifestyle diet for people who thrive on extremes rather than moderation.
+		- (1) The morning fast
+		- The morning fast is the time where you do not eat. The ‘In-depth’ article can be found here.
+		- As it pertains to our goals, the morning fast is a time where we do not want to:
+			- Consume many, if any, calories
+			- Do not break the glucagon-dominant state that is dubbed the ‘fasted state’
+		- You are allowed many things during the fast
+			- Stimulants such as coffee, tea, or thermogenic (fat-burning) pills
+			- Any manner of artificial non-caloric sweetener
+			- Minimal fatty acids. A little bit of cream in coffee or some fish oil tablets. Keep it below 50kcal
+		- It should last around 8 hours or so, but don’t stress if you deviate by an hour or so to fit with your schedule.
+		- (2) The pre-workout meal
+		- An meal consisting of protein and fats as the major source of calories. Vegetable intake is emphasized as well for the fiber and micronutrient content. This is to aid in digestion throughout the day and get some calories in outside of the post-workout feast.
+		- Skipping this meal and then consuming ample amounts of liquids on an empty stomach (workout nutrition) may result in not-too-solid results in the washroom. Given how dietary fat is also not emphasized during the feast, this is a good time to get them in.
+		- The only goal of this meal is to not significantly secrete insulin or not contain too many carbohydrates. Grains, fruits and dairy are out.
+		- Make sure it’s fully digested before your workout.
+		- (3) The workout
+		- The workout itself must be heavy resistance training, either power/strength based (such as 5×5 or Olympic weightlifting) or a more volume based bodybuilding approach. There is no way around this.
+		- The workout takes place in the late afternoon, the timing of which is based on how long one has been awake (assuming waking up at around 6-8 am or so). Working out at 2:00 will work to a degree, so will working out at around 8:00 or so. 4:00 pm is usually advised because it is a random number I have gotten used to using.
+		- If you sleep 8 hours a night, it may help to view this as getting to the gym 6 hours before you plan to fall asleep (so if you want to sleep at midnight, arrive at the gym at 6pm), this number just seems to work.
+		- As you can tell by the assortment of numbers above, the exact hour the workout arrives does not matter much as long as it is in the afternoon. Of course, it has to be in the afternoon. Morning weight-lifting workouts in Cheat Mode just do…not…work.
+		- As to why heavy weightlifting is needed, each contraction helps create signals inside muscles which control the metabolic fate of the feast. The contractions must be powerful and they must be numerous.
+		- The effects of cheat mode, given an excessive feast, hinge on the effort put forth during workouts.
+		- To reiterate:
+			- Cardio will not work
+			- Circuit training will not work
+			- HIIT will not work
+			- Half-assing it will not work
+			- Lifting heavy shit repeatedly and really fast will work
+		- (4) Workout Nutrition
+		- Workout nutrition as it pertains to Cheat Mode is nutrition consumed before or during your evening workout. The In-depth article can be found here
+		- Different options are given for workout nutrition based on where on a spectrum your body recomposition goals lay. Workout nutrition exists for focusing on fat loss, focusing on muscle mass accrual, and a balanced approach.
+		- It should be noted that all choices will build muscle and lose fat over the course of the day, but the degrees of which they do this differs.
+		- Choose which workout nutrition you want to follow, consume it as your stomach allows, and let it let you lift heavier shit while controlling body fat levels.
+		- (5) The post-workout feast
+		- The post workout feast is the time where you are allowed junk food and some other treats with minimal hindrance to your goals, fashioned after Carb-backloading. This meal is excessive and worth the wait. The ‘In-depth’ article can be found here.
+		- Essentially, we wait until late in the day until GLUT4 (insulin-responsive) glucose uptake in both fat and muscle cells is drastically impaired, and then we partially reverse that on muscle cells only with the weightlifting. We also control inflammation and insulin secretion earlier in the day to sensitize cells at this time for when we consume delicious excess, at the time when it can most benefit muscle and not fat.
+		- The post workout feast is a single meal with most of the days calories in it, consumed right after exercise. Certain criteria must be met for the feast to be beneficial:
+			- You must have completed the fast without any flaws
+			- You must have just finished a hard workout
+			- You must consume ample protein during the feast, animal sources are recommended
+			- You must consume delicious carbohydrates
+		- Certain other criteria, although not needed, are advised:
+			- It is recommended to get ample soluble fiber during this meal
+			- It is recommended to limit fructose, as you only have so much liver glycogen buffer room
+			- It is recommended to avoid excessive fatty acid consumption
+		- This meal can be the last of the day if you want, or you may have smaller meals afterward. The smaller meals should be more moderate though, and with a higher percent protein and less carbohydrates (relative to this feast).
+		- In regards to fructose and fats (I did not clarify these in the In-depth article):
+			- You deplete some liver glycogen during exercise, and fructose can harmlessly go here. The metabolic fate of fructose if liver glycogen stores are full is different and not too beneficial for our purposes. Fructose is also contained in most junk food (via sucrose), and thus over-consumption is very possible.
+			- Fatty acids will acutely go to adipose in a state of excess insulin. They can easily be taken out later during the fast, but if they do not need to be consumed than there is no reason to focus on them. Their fate is not wholly bad, so they should not be avoided either. Omega-6 fatty acid consumption (the inflammatory kind) may be beneficial at this time as well due to inflammation and muscle repair, another reason not to completely avoid fats, but just moderate them.
+		- Also, NO alcohol should be consumed alongside this feast. If ethanol gets priority oxidation in the body (and it will, since it is a toxin) then the metabolic fate of all carbohydrates and protein changes drastically and not for the better.
+		- Separating alcohol and the feast is the best case scenario, but due to the timing of the workout and size of the meal this would be pretty much impossible to do without becoming sleep deprived. Don’t lift on days you plan to drink, just do a control day then.
+		- (6) Control days
+		- Control days are days where you do not lift weights, they are designed to optimize and preserve health and as a preemptive strike against possible harms done on weightlifting days. They are guided by the Paleo principles. The ‘In-depth’ article can be found here.
+			- Eat mostly Paleo foods; some leeway is fine, but keep it minimal
+			- Eat a minimum of four meals a day
+			- Try to get more fatty acids, fibers, and vegetables on these days since they are under-consumed on work days
+			- You may intermittent fast, or you may resume day-long eating habits
+			- Relax; don’t lift heavy shit
+		- Sample Cheat Mode Diets
+		- The following are sample diet plans for low, moderate, and high caloric intake. To calculate how many calories you should consume, start with your approximate BMR (use any formula online and use that as a guesstimate) and then add or subtract calories depending on your goals to get your daily allotment; similar to any diet plan. 500kcal increments are good to start, with modifications later on based on how you feel and how the diet has been working for you.
+		- The Light-Palate
+			- Fast: Pop a few fish oil tablets between drinks of tea
+			- 2.5 hours out from the workout: 400kcal meal. 40g protein (40%) 25g fats (56%), trace carbs from veggies
+			- Workout nutrition: Fat-loss protocol
+			- Feast: 800kcal meal. 50% carbohydrate (100g) 30% protein (60g) 20% fat (18g)
+		- The Basic Recomp
+			- Fast: Drink coffee with some cream. Take some ephedrine
+			- 2 hours out from the workout: 500kcal. 40% protein (50g) and 60% fats (33g). Some trace carbs from veggies.
+			- Workout nutrition: Basic recomp approach
+			- Feast: 1500kcal. 50% carbohydrate (187g) 40% protein (150g) 10% fat (17g)
+		- The Angry Bear
+			- Fast: Pulse ephedrine and caffeine with some fish oil, drink some black coffee straight out of the pot. Sneak some yohimbine HCl in there as well. Dominate life.
+			- 2 hours out from workout: 500kcal, 40% protein (50g) and 60% fats (33g). Some trace carbs from veggies.
+			- Workout nutrition: The Muscle building Approach protocol
+			- Feast: Two scoops of whey with 15g Metamucil to get requirements out of the way.A few burgers or sandwiches (3-4) with some chocolaty treat on the side; a few (3-4) bowls of chili or borscht as well. A few babies.
+			- Relatively ‘Light’ snack: What you didn’t eat before, carried on over later in the night. Maybe make some protein pudding with casein protein and cottage cheese.
+		- (Angry Bear contains some dramatic rhetoric by the way. You still work with your calories as denoted above. I thought this would be obvious with the ‘drink coffee straight from the pot’ and ‘conquer life’, but I apparently overestimate people’s reading comprehension at times. Either that or people are just looking for reasons to hate on CM)
+		- Other considerations given to certain Population subsets
+		- (1) Beginners to weight lifting
+		- If you are beginning weightlifting and follow Cheat Mode, you may not experience as ‘magical’ effects of the feast not going to fat stores. This is mainly because that, as a beginner, you do not have enough experience under weights to know what a true, powerful muscle contraction feels like. This is expected, and you learn with time.
+		- You can either practice some moderation with the feast, or you can accept that you may not lose fat as fast (or at all) with a large feast until you get more experience under the weights.
+		- Beginners also typically have less muscle mass, the reasons of why this matter follows.
+		- (2) Women
+		- The factors that guide the beneficial metabolic fates of nutrients arise from muscle contractions. Women (and beginners) typically have less muscle mass and thus less of these factors overall will be produced.
+		- The feast can still be a feast, but you cannot consume an entire pizza at this time. Practice some moderation (in relation to the true Cheat Mode’s ideals, this moderation may still very well be a large bowl of ice cream and some cookies alongside your protein and veggie containing meal)
+		- (3) Formerly or currently obese individuals
+		- Nothing inherently biological is stopping cheat mode from working in obese individuals or formerly obese individuals. It’s just that we, the formerly or currently obese, have an in-human ability to consume (how do you think we got there in the first place?).
+		- I personally have experienced binges of over 6,000kcal when I was given the excuse to, buffered by my insatiable obese-man appetite and the supposed ‘promise’ of it not going to fat stores.
+		- For these reasons, obese individuals and formerly obese individuals who retain the inhuman ability to consume should act smart. You can eat junk, you can eat a lot of it; you should not eat everything you physically can.
+		- The mechanisms that Cheat Mode offers to protect against fat gain can be overrun, if enough if consumed. Normal human satiety should kick in well before this point, but it does exist.
+		- (4) Those with metabolic abnormalities
+		- Cheat Mode has been cleared for metabolically healthy individuals (those with no significant metabolic abnormalities). These person’s bodies are able to regulate the extremes that make up Cheat Mode and significantly benefit from it.
+		- If you suffer from metabolic abnormalities such as dyslipidemia, diabetes mellitus, hypertension, or organ failure/damage (and any other disease states), then do not undertake Cheat Mode as there is no assurance how your body will respond.
+		- A much better approach would be to follow something similar to Cheat Mode, but without the Cheat. Follow the morning and workout protocols, but consume basic Paleo-themed meals after the workouts. These meals may be larger than average though.
+		- If you are on any medication, then please talk to your doctor before changing anything in your routine significantly. This should go without saying though.
+		- (5) The pregnant or lactating, children, the elderly, and individuals under the age of 18.
+		- No, just No.
+		- The first two categories (Pregnant or Lactating and Children) should not fast due to very high metabolic needs (benefit of food intake is greater than the benefit of fasting), I cannot condone such drastic dietary protocols in the elderly due to unforeseen circumstances and physiological weaknesses, and I cannot recommend this to individuals under the age of 18 since they may still be growing and thus need to avoid fasting.
+		- I realize that some individuals around the age of 18 may be done growing, but I cannot outright recommend Cheat Mode for them.
+		- If you fall in one of these categories, no Cheat Mode for you. No questions, no debate, end of discussion.
+		- Like any diet or exercise change, one should consult their physician or medical practitioner to see their current state of health prior to adapting Cheat Mode. None of the above should be taken as medical advice, only dietary; none of it assumes more importance than prescribed medications or diagnosed disease states.
+	- Deconditioning Diet
+	    collapsed:: true
+		- Insulin increases prior to and during eating, as a response to unconditioned and conditioned food cues such as taste, odor, texture, appearance and peripheral environmental stimuli.
+			- If you have cravings, wait until 15-30 minutes after they subside to a low rumble before eating. Never reinforce a raging hunger craving by eating when it is most intense, or you will reinforce it!
+		- Prepare “emergency” snacks. You may find the above recommendations easy to follow most of the time. Usually you can convince yourself to postpone a snack time craving until the next meal, since you can eat as much as you want at mealtimes. But every so often you may get a horrendous craving for something caloric between meals or after dinner. You need to plan for this and always have available high caloric, non-insulinogenic snacks. It is important that these snacks have no or little glucose or starch, and even protein should be minimized. A high fat snack is best. Here are some of my favorites:
+			- (a) a sugarless cream soda: in a tall glass, pour two tablespoons heavy whipping cream over ice cubes. Fill the glass with Calistoga or other sparkling water. You can even add a little flavoring like vanilla or orange extract if you want (and vary this to keep it interesting), but nothing with sugar or other carbs
+			- (b) herb tea or decaf coffee with heavy cream; the cream makes this luxurious and filling. Don’t worry about the saturated fat, because you will “burn” it, and not store it, if there are no carbs;
+			- (c) EVCO (extra virgin coconut oil: this contains medium-chain triglycerides (MCTs) which are readily metabolized to give instant energy and appetite suppression; can be taken straight, combined with heavy cream, or “floated” in tea or coffee
+			- (d) macademia nuts (a truly high fat nut)
+			- (e) non caloric drinks sweetened with max 1 tsp of pure non-insulogenic sugar: preferably erythritol or xylitol; don’t add sucrose, HFCS, or other glucose containing sugars
+			- (f) ultra low glycemic fruits: a small serving blueberries, strawberries, apples, oranges or grapes — the three least insulinogenic fruits. No bananas, watermelon, figs or other sugary fruits! You can pour cream or erythritol-sweetened cream over the fruit.
+			- Start a craving log. the nature of the craving (general hunger or for a specific food
+				- what may have set off the craving. Seeing or smelling food? A stressful conversation? Tired after work? Or just the time of day? If you don’t know, speculate
+					- Trying to eliminate cue-response, not spontaneous hunger (i.e. stop bingeing in response to seeing food)
+			- Never eat when you're hungry
+				- This reinforces appetite
+			- Replacement Routines for Hunger
+				- e.g. Next Action, capping, shower
+				- Make a list of two or three activities you like to do that do NOT involve eating or being near food, that you can do immediately after your your cue exposure session, and that you can sustain for at least 15 minutes. Be ready to do one of these activities after your next craving, and vary the activities. They could include going for a short walk, making a phone call, taking a bath. The more active the better –watching TV or reading a book may not get your mind off food.
+			- Cue Exposure without Eating
+				- Follow my normal routine of opening cupboards etc
+				- Intensity - distance, smell, % completion of routine, no of deep inhales, hunger, time of day, stress
+				- Vary across contexts - don't eat whilst others are, walk though places with strong food smells,
+				- Have your planned activities ready and in your head. If it helps, implement the plan right after your cue exposure session. You may find that you don’t need to.
+				- To keep the cravings in check, I recommend saturating your sense of smell by alternating between smelling the trigger foods and other fragrant food smells that don’t give you cravings. Smelling a variety of spices (curry, oregano, rosemary, ginger) works especially well. The idea here is that multiple fragrances will fully saturate your sense of smell and dampen the craving response.
+			- Eat later. Keep your eating confined to defined meal times, if you can manage to, and never eat immediately after doing food cue exposure session. Always insert at least 30 minutes (or a 15 minute counter-conditioning session) between the cue exposure and the meal. Eating must come at least 15 minutes after the cue exposure session. If you can wait 30 minutes or an hour that’s better, but 15 minutes will work. That’s because pre-prandial insulin secretion is brief, and ends within about 15 minutes. Most importantly–do not eat the very food you were craving! Eat something else, preferably in a different food class. If you craved a sweet, eat something not sweet, like meat or cheese. If you craved something spicy, eat something bland. You can eat a whole meal if it is time for that. You can return to the craved food on a day that you aren’t craving it.
+			- Beware of extinction bursts and resurgence. remember, the worst time to give in to a craving is during an extinction burst or resurgence, because this will strengthen it just like hitting the jackpot strengthens a gambling habit (intermittent reinforcement
+			- Advanced: Meal skipping and/or vary meal times
+				- Become independent from food cravings completely and gain freedom to eat when you want (requires good insulin sensitivity)
+				- You want to do two things: increase intervals without food and disrupt patterns. This will really help to get rid of cravings that are based on time of day cues. Eventually, try to skip the hardest meal of the day for you–probably dinner. Note your reactions in your craving log. Your endpoint should be no more than two meals a day. If you can handle one meal a day, great, but consider two meals a victory.
+	- Dehydration techniques
+	    collapsed:: true
+		- Dehydration techniques ](null)[ Bodybuilder and boxer or MMA fighter weight losing techniques? It should be noted that dehydration can result in internal organ failure, coma, and even death, particularly when diuretics are used. The death of Austrian bodybuilder Andreas Munzer should serve as a reminder of what can happen when the use of drugs like Aldactone and Lasix (the latter and fast-acting insulin are arguably the two most dangerous drugs used in sports) is taken lightly. From a post-mortem article in The Observer:His blood was viscous and slow-moving. His potassium levels were excessively high. He had been dehydrated by the diuretics he used in the days before his last competitions. His liver was melting. A post-mortem would find that it had dissolved almost completely.](null)[](null)[http://en.wikipedia.org/wiki/Weight_cutting
+		- Latent Heat and Electrolyte Reuptake Modification
+		- It is contended that there are two appropriate vehicles for the facilitation of short-term water loss (diuresis): the manipulation of thermoregulation, and the manipulation of hormones related to electrolyte balance and water retention. In other words, you can combine 1) increased water excretion through the skin via temperature treatments with 2) increased water excretion through urination, which is dependent on the modification of kidney function.
+		- If you weigh 200 lbs., 120 of those pounds are water, which is distributed between three systems: blood, cell interiors (as pertaining to powerlifting, muscle fibers), and the spaces between the blood vessels and the cells dependent on them. Approximately 8% of your total water volume is contained in blood plasma, 67% is contained in the cells themselves, and 25% is found in the spaces between the two, which includes subcutaneous water. It is imperative that athletes understand the distribution areas from which excess water, and not life-sustaining water, can be most safely excreted, pulling from critical systems only as a last resort. Thermoregulatory and mild electrolyte manipulation, with potassium-sparing supplementation for the latter, provides a compelling combination of efficacy and safety. Bear in mind that “safety”, particularly when used in the context of something that is inherently dangerous, is relative.
+		- Exercise, whether running or otherwise, is not used for dehydration, as it places a load on the muscular and nervous systems when recovery is impaired, decreasing the force production capacity we want to preserve for competition.
+		- Additionally, athletes should never dehydrate for the first time before competition. Just as with any technique, dehydration should be practiced within 85-90% of competition requirements at least two times in pre-season to ensure each athlete understands the individualized performance consequences and required recovery times.
+		- Rehydration and additional hyperhydration are also accomplished through two primary vehicles: increasing the speed of water absorption, and increasing the volume of water that can be retained in the body for muscular performance purposes. This is done primarily with purified water and modified molecules of glucose.
+		- By scientifically hydrating and increasing arterial blood plasma volume, you increase blood pH levels (alkaline), increasing the ability of hemoglobin to bind to oxygen. The end result is that proper hydration increases oxygen delivery to body tissue. A 1-1.5 quart loss of water can result in as much as a 25% decrease in aerobic endurance for this reason. By increasing plasma and cellular hydration you can conversely increase oxygen delivery and uptake, with a subsequent increase in endurance (hypothesized by some to be primarily dependent on aerobic mitochondrial activity).
+		- Thermoregulation: Humidity and Brevity
+		- Torranin has demonstrated that dehydration decreases both isometric and dynamic muscular endurance by 31% and 29%, respectively, following only a 4% reduction in body-mass by sauna exposure. This would still only represent an 8 lb. reduction for a 200 lb. competitor, a moderate decrease by weight-class competition standards. This further establishes the functional impairments caused by dehydration and the paramount importance of limiting the time spent in this state.
+		- It is the author’s empirical experience that target dehydration should be accomplished over as short a period of time as safely possible, and that moderate dehydration sustained over multiple days only exacerbates the inherent problem of maintaining glycogen stores and muscle tissue integrity.
+		- Saturday Weigh-In: 9am
+		- If weigh-ins are hypothetically held at 9am Saturday morning, restrict additional salt intake beginning at Thursday dinner. No red meat or starchy carbohydrates (bread, rice, potatoes) should be consumed on Thursday night or on Friday, as both of these food product categories cause the disproportionate storage of water (3 grams of water per 1 gram of glycogen; creatine and fibrous tissue water retention in red meat). Drink your normal volume of liquids in the form of purified or distilled water until Friday morning, at which point water consumption, limited still to purified or distilled water, should be reduced to 1/3 your normal volume. If you don’t want to do the math, just drink 1/3 cup every time you would drink a full cup.
+		- On Friday night, following a early (5-6pm) and light dinner consisting primarily of vegetables, thermoregulatory work should begin and water consumption should be eliminated until weigh-ins. Non-prescription diuretics, discussed in the following section, would be consumed at breakfast, lunch, and dinner on Friday, in addition to upon waking on Saturday.
+		- 10-Minute Sessions
+		- The bathtub is the preferred tool for dehydration based on the outside humidity in total submersion, which is 100%. The higher the humidity, the less the evaporation, and the more your body must sweat to cool core body temperature. This is why athletes will sweat more in a steam room than in a dry sauna. Fill the bathtub with water that does not burn the hand but causes moderate pain if the hand is moved underwater. Your target weight by bedtime should be 2-3 lbs. MORE than your necessary competition weight, as you will evaporate that volume range of water during 6-9 hours of sleep.
+		- Set an alarm clock next to the bath for 10 minutes, and preferably have someone who will also alert you at the 10-minute mark. Submerge your entire body and head in the bathtub, entering which should take at least 2 minutes. For ease of entry and to minimize movement, sit cross-legged at the front of the bath and lay down slowly, putting your head underwater so that only your face is exposed to the air and pointing towards the ceiling. If you feel faint at any point or when you reach 10 minutes, exit the tub and run cold water over your scalp but no other areas; ideally, place an ice pack on your head and neck instead of using water. Towel off, but do not shower, as you will reabsorb water through the skin. The author has seen elite wrestlers make the mistake of taking a shower the morning of weigh-ins, only to find they have gained 2-3 lbs.! Do not make this mistake – avoid showers completely until weigh-ins. After toweling off and urinating following the first 10-minute session, weigh yourself on two scales, taking the average of four weighings: two on each scale to account for any mechanical inaccuracies. Many athletes will lose too much weight the first time they use a bathtub, and this only extends the necessary recovery period. Take a 5 minute break near a cooling source or at room temperature if you have not made weight, and repeat 10-minute submersion sessions with 5-minute cooling breaks until you are 4-5 pounds from your required weight. At least two pounds will be lost as a result of the potassium-sparing diuretics detailed in later sections, and if you lower your body weight excessively, you should consume water to ensure you are 2-3 pounds HEAVIER than your required weight before sleep.
+		- Two practical suggestions from Matt Kroczaleski:
+		- When there’s a very short timeframe, the only thing that matters for the weigh in is how much the food physically weighs, not the calorie content when I consume it. I allow myself two pieces of bread with peanut butter usually spaced out evenly during the cut. The first piece is typically consumed about eight hours into the cut (about 10–12 hours out from the weigh in) and the second piece about six hours later. I always feel a renewed energy and sense of well-being after these small snacks. I don’t allow myself to drink ANYTHING during the cut because this is counterproductive to what I’m trying to achieve.
+		- I will chew on and spit out ice chips during my five minute breaks, but that’s as close as I come to drinking any type of fluids during the weight loss process.
+		- Potassium-Sparing Non-Prescription Diuretics: Blood Flow and Sodium Filtering
+		- Nearly all diurectics produce their effects of diuresis by directly or indirectly acting on the kidneys. There are two primary types oral or injectable diurectics, those that increase blood flow to the kidneys and those that inhibit reabsorption of electrolytes by the nephrons or loop of Henle in the kidneys.
+		- It is best to think of the kidneys as the body’s blood filters — Each day, 150-200 quarts are filtered through the kidneys, where toxins, excess water, and unneeded minerals are removed. If you increase the amount of water that is excreted per quart of blood, and simultaneously increase the volume of blood passing through these filters per hour, the effect is pronounced diuresis through dramatically increased urination.
+		- Prescription diuretics, especially loop diuretics such as Lasix, often cause excessive depletion of calcium, magnesium, and potassium, ions that regulate electrical transmission and heart function. Moderate potassium insufficiency can cause DNA damage and muscular cramping, most certainly resulting in impaired lift performance. More severe depletion, which can have an onset of minutes with intravenous injection, has resulted in organ failure and cardiac arrest for athletes who do not understand the serious nature of these medications. Diuretics are designed for the treatment of hypertension and congestive heart failure.
+		- The author has found two compounds particularly effective for short-term water loss that mitigate the above problems: dandelion root (taraxicum officianalis), and caffeine, a xanthine alkaloid we’re all familiar with.
+		- Dandelion root has the highest vitamin A of any known plant (14,000iu per 100g of raw material) and a high choline content. Dandelion root is one of few commonly available plants that increases sodium chloride excretion by the renal (kidney) tubule while simultaneously exhibiting potassium-sparing properties. When sodium excretion is increased, the kidneys increase water excretion to maintain electrolyte and osmotic balance. Dosages for dehydration, based on a 4:1 extract, are 250-500mg 3x daily with meals.
+		- Caffeine not only increases sodium chloride excretion but acts primarily by increasing renal blood flow and stimulating parietal cells to increase gastric secretions. The latter combines with dandelion’s effect of increased bile flow to not only increase water excretion but food elimination (gastric emptying). Dosages for dehydration are 200-400mg caffeine (preferably caffeine anhydrous) 2-3x daily with meals. 200mg is roughly equivalent to two cups of drip coffee, or one medium cup of french-pressed coffee.
+		- Used in combination for a 200 lb. competitor, 250-500mg of dandelion root would be taken with 200-400mg of caffeine at all three Friday meals (remember that dinner is early, 5-6pm), and upon waking 3 hours prior to weigh-in at 9am. It is recommended that the athlete also supplement each meal with a non-prescription 99mg potassium product.
+		- Phase Two – From 165 lbs. to 193 lbs.
+		- How do you use sugar alcohols, skin protectants, and insulin mimickers to recover from dehydration and move from a precompetition 187 lbs. and weigh-in of 165 lbs. to 193 lbs.? How can an athlete retain 50% more intramuscular fluid for improved oxygen delivery and power output?
+		- Just because you’ve weighed in doesn’t mean you are ready to compete. Far from it.
+		- Proper cellular hydration is required for glycogen synthesis and muscular contraction. Dehydrate a muscle by just 3% and you cause an approximate 10% loss of contractile strength and 8% loss of speed. Ball State University research has demonstrated a 7% decrease in speed over 10 kilometers by runners dehydrated by just 2%-3% of total body mass. For a 150 lb. strength athlete, this represents a very meager 3-4.5 lbs. of water loss.
+		- This further establishes the paramount importance of rapid rehydration for optimal safety, recovery, strength performance following voluntary dehydration, particularly when the percent of total Lean Body Mass (LBM) is significant (the author has supervised, but does not advise, up to an 18% reduction).
+		- One objective during the dehydration stage is the preservation of muscle fiber and blood plasma fluid volume with simultaneous excretion of extraneous subcutaneous water, which is located between the skin and muscle.
+		- Similarly, the objective during rehydration is the increase of muscle cell and blood plasma fluid volume to predehydration or hyperhydration levels in the shortest time possible. What is hyperhydration? In the context of powerlifting, hyperhydration is a state produced when one artificially increases the amount of water the body can retain for improved power output and oxygen delivery. To that end, athletes I’ve worked with have used the following modifiers and tools, whose usage and dosages are included later in this article:
+		- Blood plasma volume:
+		- Room-temperature baths, PJ-A3AH MicroStructured™ water unit, Glycerol, glycerin, 1,2,3-propanetriol, electrolyte supplementation
+		- Muscle cell hydration (sarcoplasmic hypertrophy):
+		- Room-temperature baths, Panasonic PJ-A3AH MicroStructured™ water unit, 4:1 carbohydrate/protein ratio, glucose, glucose disposal agents and insulin mimickers, creatine monohydrate
+		- Using Skin as a Water Channel
+		- In the exact reverse of the dehydration protocol, it is advised that while consuming bio-engineered water (below), the athlete capitalize on the largest organ in the body as an initial vehicle for water uptake: skin. Take a 15-minute bath in room temperature water, preferably with Epsom salt for systemic magnesium supplementation and muscular relaxation (decreased electrolyte supply often causes muscle cramping).
+		- Understanding the Small Intestine, Gastric Emptying, and Aquaporins
+		- It is critical that any athlete with a short time span for rehydration increase gastric emptying, or the speed at which liquids pass from the stomach to the small intestine for absorption. Blood plasma fluid volume optimization precedes muscle cell hyperhydration, as the solids consumed for glycogen restoration will decrease the speed of liquid gastric emptying. This needs to be accomplished before glycogen is restored by ingestion of solids.
+		- Also note that most commercially-available sports drinks (Gatorade, Powerade, etc.) and so-called “replacement fluids” contain much too high a concentration of sugars (high-fructose, dextrose, glucose, sucrose, maltodextrin) or other solutes to move efficiently from your stomach to the primary site of absorption in the small intestine. This does not mean you avoid solutes entirely, as I’ll point out below with ORS (oral replacement salts); it just means that you need to precise.
+		- The optimal process of initial rehydration would move ingested H20 from the digestive tract (specifically, the small intestine) to the bloodstream quickly and without volume loss, and then through the semi-permeable cell membrane, again without volume loss (“loss” defined by eventual excretion, rather than retention, of water). Protein channels in the cellular membrane, called “aquaporins”, only permit single-file influx of water molecules in clusters 3-6 angstroms in diameter. Unfortunately, 50-85% of purified water molecule clusters are 11-13 angstroms in diameter. Thus, while more efficiently assimilated than unpurified water, you may still excrete 50-85% of the purified water you ingest. For optimal hydration, defined by maximum H20 uptake % per ml ingested, there is a newer and more effective option: purified micro-clustered water. Through the process of electrolysis, basic tap water is restructured into smaller clusters of 5-6 water molecules, as identified with Nuclear Magnetic Resonance (NMR) and Raman Spectroscopic Meters (NMR 0-17 peak shift from 130 Hz to 65 Hz).
+		- Important note: the scientific literature available in English on micro-clustered water is confusing at best and convoluted with nonsense. The above explanation of “restructuring” was provided by an importer and could fall in the latter category. In fact, I’m inclined to believe this is the case.
+		- The results discussed below, however, are from self-experimentation after purchasing the Panasonic PJ-A3AH from the same importer who had obtained several units after seeing them used in Japanese hospitals to treat burn victims.
+		- I find the experimental results hard to explain as placebo effect: I and several other athletes were able to each drink more than 70 ounces from the Panasonic PJ-A3AH microclustered water unit (nearly 9 tall glasses of water), with no discomfort or excretion even 5 hours later. Divided by 16 oz. and multiplied by 1.5, one might extrapolate that the equivalent of approximately 6.56 pounds (1 gallon is 8.33 pounds) of tap water were assimilated. All of the athletes involved hydrate throughout the day and generally urinate at least once per 1.5-2 hours.
+		- Regardless, the Panasonic unit is difficult to find, as are filters, so purified or distilled water can be used in substitution. Water molecules can move across the cell membrane, not just via aquaporins, albeit at a slower speed.
+		- To avoid hyponatremia, or water intoxication, in both cases, it is recommended that you consume 75mg of sodium per 8 ounces of water (approximately 1/3 teaspoon per quart) to maintain electrolyte and water homeostatis. If you don’t, salt-dependent thirst-drive will be inhibited prematurely to prevent over-dilution of the blood. During a three-hour rehydration period, subjects consuming moderately sodium-infused water restored 82 percent of lost fluids versus 68 percent for subjects consuming water alone (Maughan RJ). Glucose can additionally increase absorption of water through the intestinal wall.
+		- An even easier option is to also consume an ORS (oral replacement salt) drink like Pedialyte, which is popular among wrestler. The reasons to do so are clear in this comment from reader Craig Weller:
+		- I once participated in a hydration lab as part of a combat medicine course.
+		- A premise of the course was that many modern rehydration methods are ineffective and even counterproductive.
+		- Participants were split into four groups and hydrated with either plain water, water with ORS, Gatorade or IV’s. My notes are several states away right now, but I think the amounts were around one gallon per hour for four hours.
+		- Most participants in the Gatorade group developed fairly bad diarrhea. I was in the plain water group, which developed symptoms of hyponatremia. It was surprisingly miserable. The IV group (plain saline) developed ridiculous edema. They looked like Michelin men.
+		- The only group that didn’t suffer much was the ORS group. They didn’t have the edema, hyponatremia (headache, fatigue, etc) or diarrhea of the other groups. As I recall, they also didn’t excrete quite as much (we measured urinary excretion down to the milliliter and graphed it over the four hours).
+		- All groups except for the ORS group reported adverse effects for around 24 hours after.
+		- Most of that seems fairly common-sense, but experiencing it firsthand was a dramatic learning experience.
+		- The Sweetest Alcohol for Rehydration: Consuming Hand Moisturizer
+		- Glycerol (1,2,3-propanetriol), commonly sold in supermarkets as “glycerin” for skin moisturizing, is a sugar alcohol with hygroscopic (water-binding) properties. Glycerol is used in meal-replacement bars to maintain softness and used in hand moisturizer because of its ability to pull water from the air. Glycerol is a three-carbon alcohol, which along with Free Fatty Acids (FFA) are produced when a triglyceride (stored fat/adipose tissue) is glycolyzed. It is theorized that glycerol drives water into blood plasma by increasing absorption of water in the distal tubules and collecting ducts of the kidney. Those who has read this entire post will recognize that we manipulated kidney function in the opposite manner initially to increase water excretion.
+		- Glycerol-induced rehydration significantly increases plasma volume restoration within 60 minutes and at the end of a 180-minute rehydration period. Total urine volume is lower and percent rehydration is subsequently greater following glycerol usage (Scheett TP). In submaximal ergometer testing, mean heart rate was lower following glycerol ingestion by 4.4 +/- 1.1 beats/min (p = 0.01). Endurance time was prolonged after glycerol use in two studies: Study I (93.8 +/- 14 min vs. 77.4 +/- 9 min, p = 0.049) and Study II (123.4 +/- 17 min vs. 99.0 +/- 11 min, p = 0.03), demonstrating that pre-exercise glycerol-enhanced hyperhydration both lowers heart rate and prolongs endurance time (Montner P). The ingestion of glycerol improves hydration beyond that provided by equal volumes of Gatorade or water alone (Griffin SE).
+		- Serum glycerol concentrations are normally 0.05 mmol/L at rest but can be increased to 20 mmol/L by ingesting 1-1.4g/kg of Lean Body Mass (LBM) of a 40% glycerol solution with 20-26 mL/kg LBM of water. Averaging these amounts and converting them to US English volume measurements, one should consume .543g/lb LBM of glycerol and .3984 fluid ounces/lb. LBM.
+		- 150 lb. athlete: 81.45 grams of glycerol with 59.76 fluid ounces (1.86 quarts) of water (preferably microclustered) 200 lb. athlete: 108.6 grams of glycerol with 79.68 fluid ounces (2.49 quarts) of water 250 lb. athlete: 135.75 grams of glycerol with 99.6 fluid (3.11 quarts) ounces of water
+		- It is critical that the supplemental water is consumed with glycerol; otherwise, water will be pulled into blood plasma from the only available source, muscle cells and surrounding tissue.
+		- Glucose and Insulin for Increasing Hydration Speed
+		- Carbohydrates are converted to glucose through digestion and unused blood glucose is stored as glycogen in the liver and muscles. In part 2, our athlete did not consume starches from Thursday lunch to weigh-ins at 9am on Saturday, and he will have depleted glycogen stores by necessity: each gram of glycogen holds 3 grams of water.
+		- To optimally rehydrate after initial bioengineered water/sodium/glycerol consumption, one must optimize glycogen stores so the full water storage capability of the body is restored. This is accomplished by consuming macronutrients (protein, carbohydrates) with glucose disposal agents to enhance sensitivity to insulin, as storage hormone released by the pancreas. Insulin also stimulates glycogen synthase, as enzyme necessary for glycogen synthesis.
+		- Several principles must be followed:
+		- 1. Consume your first meal 90-120 minutes after post-weigh-in glycerol and purified/distilled water ingestion.
+		- 2. Consume carbohydrates (CHO) with protein to optimize insulin response, but do not consume more protein than permitted by a 4:1 ratio of carbohydrates to protein. More protein will interfere with water retention. Caseinates (cottage cheese or milk) or whole food proteins are preferred to whey, which is a fast-acting protein that can cause catabolism after 1.5 hours.
+		- 3. Take 100mg of Alpha-Lipoic Acid (ALA or thioctic acid) per 75 pounds of bodyweight + 50mcg of chromium polynicotinate (not picolinate) with each meal following weigh-ins. Both compounds increase insulin sensitivity and deposition of nutrients into muscle cells. The latter is a niacin-bound chromium referenced as 50x more bioavailable than chromium picolinate for purposes of glucose disposal and insulin mimicking.
+		- 4. Consume 5g creatine monohydrate and at least 75mg of salt with each meal, as both will work in conjunction with CHO as water “carriers” to increase absorption through the intestinal lining.
+		- The Hyperhydration Advantage: Underutilized and Underestimated
+		- By understanding engineered H20, its modifiers, and the science of hyperhydration, it is possible to weigh-in at 165 lbs. and compete 12 hours later at 193 lbs. It is also possible to consume 1.5 gallons of water in 16 ounces or increase protein synthesis 3-fold while simultaneously optimizing fat-oxidation.
+		- Few elite athletes understand, let alone capitalize on, the hydration modifiers that represent next-generation tools for improving oxygen delivery and sports performance. It is precisely this broad ignorance that makes engineered hyperhydration one of the most valuable tools for athletes seeking a legal and safe performance advantage with results that rival any dietary supplement currently available.
+		- Last but not least: do your research and don’t treat this as a low-stakes game. It will kill you. Here are three examples in one five-week period.
+	- Fat Cells Feel the Cold, Burn Calories for Heat
+	    collapsed:: true
+		- by Elizabeth Norton on 1 July 2013, 6:33 PM | 20 Comments
+		- Share on email Email
+		- Share on print Print
+		- |
+		- Share on facebook
+		- Share on twitter
+		- 46
+		- Share on reddit
+		- Share on stumbleupon
+		- More Sharing Services More
+		- Previous Article Next Article
+		- Enlarge Image
+		- sn-fatcells.jpg
+		- Burning fat in the cold. White fat cells sense cold directly, and release energy to warm up.
+		- Credit: Biophoto Associates/Science Source
+		- Transforming fat cells into calorie-burning machines may sound like the ultimate form of weight control, but the idea is not as far-fetched as it sounds. Unexpectedly, some fat cells directly sense dropping temperatures and release their energy as heat, according to a new study; that ability might be harnessed to treat obesity and diabetes, researchers suggest.
+		- Fat is known to help protect animals from the cold—and not only by acting as insulation. In the early 1990s, scientists studying mice discovered that cold temperatures trigger certain fat cells, called brown adipose tissue, to release stored energy in the form of heat—to burn calories, in other words. Researchers have always assumed this mechanism was an indirect response to the physiological stress of cold temperatures, explains cell biologist Bruce Spiegelman of Harvard Medical School, Boston. The activation of brown fat seems to start with sensory neurons throughout the body informing the brain of a drop in temperature. In response the brain sends out norepinephrine, the chief chemical messenger of the sympathetic nervous system, which mobilizes the body to cope with many situations. In experimental animals, stimulating norepinephrine receptors triggered brown adipose tissue to release its energy and generate heat, while animals bred to be missing these receptors were unable to mount the same fat cell response.
+		- People also have brown adipose tissue that generates heat when the body is cold. And unlike white fat, which builds up around the abdomen and contributes to many disorders including heart disease and diabetes, this brown fat is found in higher proportions in leaner people and seems to actively protect against diabetes.
+		- In brown fat, the heat-generating process depends on a protein called UCP1; the protein is also thought to be central in brown fat's ability to prevent diabetes. Researchers are now exploring ways of activating this molecular pathway. But in trying to figure out exactly how fat cells respond to the body being cold, Spiegelman and colleagues discovered that plain old "white" fat cells have a few surprises left. In a study appearing online today in the Proceedings of the National Academy of Sciences, the researchers exposed various kinds of fat cells to cold temperatures directly. "We were a little surprised that no one had tried this before," Spiegelman says.
+		- The researchers cooled several types of lab-grown human fat cells—brown, white and "beige" (white adipose tissue with some brown cells mixed in)—to temperatures between 27˚ and 39˚C for four hours, eight hours, or up to ten days. White fat cells and beige cells responded to cooling in dramatic fashion. In these cells, levels of the UCP1 were doubled by 8 hours after the treatment. The change in UCP1 also proved to be reversible: Its levels returned to normal once the cells' temperature was lowered to 37 degrees. But in brown fat cells, no induction of the protein was observed, indicating that cold temperatures don't mobilize these cells by flipping this particular switch.
+		- The researchers also found that white fat cells obtained from mice lacking receptors for norepinephrine were still able to respond to cooling by turning on UCP1—showing that the heat-generating pathway is both specific to those fat cells and independent of the sympathetic nervous system .
+		- The finding won't lead to an antifat pill any time soon, Spiegelman says, but it does give scientists new avenues to explore. "It's a piece of the basic science, adding to an evolving awareness that fat cells have many lives that we never knew about. Now we know they can sense temperature directly. The next question is, how do they do it, and can that ability be manipulated?"
+		- "The paper is filling in an emerging picture that adipose tissue can be a more flexible, adaptive organ than we once thought," says Sven Enerbäck, a physician and adipose tissue researcher at the University of Gothenburg in Sweden. "The finding raises the question of whether this new pathway has widespread effects on the animal as a whole."
+		- Finding that white fat cells directly detect and react to cold is a surprising development, notes cell biologist Peter Tontonoz of the University of California, Los Angeles, because it shows that the sympathetic nervous system isn't the whole story when it comes to heat generation by adipose tissue. He's curious whether the heat-generating pathway in white fat is a routine part of everyday temperature regulation. "Even if it isn't," he adds, "it could still be targeted by small molecules or other drugs."
+	- Fat Loss Drugs
+	    collapsed:: true
+		- Ephedrine
+			- Checked Bodymedia today and my BMR was over 3000 on ABA days this week - completely forgot about ephedrine. Wow that stuff is powerful.
+			- Average +400kcal from ECA stack
+			- Only thermogenic that also has an appetite-suppression effect, the rest stimulate it
+		- Clenbuterol
+			- 24/7 effect, supposedly higher calorie burning that ephedrine
+		- T3 (Cytomel)
+			- http://www.muscletalk.co.uk/If-clen-can-improve-Fat-loss-by-10-what-is-T3-capable-off-m3250980.aspx
+		- DNP
+			- Extremely dangerous http://augmentationlimitless.blogspot.co.uk/2012/12/mitochondria-1-ice-baths-and-24.html
+	- Fat Loss Principles
+	    collapsed:: true
+		- REQUIREMENTS:
+		- No hunger problems
+		- No nutritional issues (20g+ carb, fat, protein to make up 1g per kg/pound? + stored fat
+		- No libido problems
+		- No adverse affects on happiness or thoughts
+		- Why can you gain fat even without carbs?
+		- Look into bodybuilder cutting protocols - t3 etc
+		- Calorie counting? look at biochemistry behind it and weight gain
+		- + muscle gain, req insulin?
+		- Brief HIT before/after eating
+		- GLUT-4 transporters on muscles activated for glucose
+		- Just keeping a food diary doubles fat loss - Harvard research
+	- FAT LOSS
+	    collapsed:: true
+		- PAGG
+		    collapsed:: true
+			- Policosanol 20-25mg
+			- Alpha Lipoic Acid (ALA) 100-300mg - depending on acid reflux
+				- Increases GLUT-4 receptors on muscle membrane (more glucose absorption which is insulin independent) RATHER than as storing them as fat
+			- Green tea flavonols (decaffeinated with 325mg+ EGCG)
+				- Increases GLUT-4 receptors on muscle membrane +
+				- Inhibits GLUT-4 recruitment on fat cells
+				- Also causes fat cell death (apoptosis)
+				- 560mg ie 340mg t, 45% = 155 egcg
+			- Garlic extract 200mg+ (tim ferriss uses 650mg)
+			- Notes
+				- AGG before each meal, PAG (minus green tea) before bed
+				- 6/1 schedule through week (1 day off), 1 week off every 2 months
+				- cissus quadrangularis - 7.2g (2.4g x3 day before meals)
+					- Joint repair, anabolic and minimise fat gain whilst overfeeding/for fat loss
+					- http://healthsupplementwholesalers.com/products/cissus-quadrangularis 20:1 100g $9
+		- "If I wanted to help an obese coaching client lose weight Id use a multi-pronged approach. 1st Barriers by not buying junk food (short term habit change). 2nd Replace food items by spending time to cook low carb paleo meals, especially vegetables and protein. 3rd food diary (at the time of eating). 4th weighing foods and calorie counting. 5th food deconditioning. 6th intermittent fasting. 7th ketogenic/ketogains
+		- green tea, thermogenesis
+		- electrolytes - sodium, potassium, etc
+		- used for neurotransmitters i.e. essential for communication in brain
+		- Body weight set point theory: body senses nutrient quality of food, then sets weight at point high enough to ensure adequate nutrient intake
+		- APPETITE SUPPRESSION STACK
+		- Alpha-Lipoic Acid
+		- Dosage: 600mg
+		- Very reliable for reducing appetite in research animals via suppressing hypothalamic AMPK (a mechanism similar to the hormone leptin). Surprisingly little research into humans, but the beginning bit of research tends to agree with the large body of animal research.
+		- There is a possibility that it is not effective in humans (this has been noted with Garcinia cambogia and (-)-hydroxycitric acid), so this one remains preliminary
+		-
+		- Caralluma fimbriata
+		- Dosage: 14g
+		- 14g is the dose of the plant (or vegetable) used, and the study that was conducted in humans used a 14:1 concentrated extract (so, 1g of this extract was needed to be equivalent)
+		- Appears to reduce hunger, but may take time to work; limited amount of evidence though, and more historical usage of being a famine vegetable to suppress hunger and appetite.
+		- Dosage: 300-500mg
+		- 5-HTP is a supplement that is known to increase satiety (rather than reduce appetite) and should be coingested with food. It has only currently been tested in overweight and obese individuals, but appears to reliably reduce food intake to around 60% of baseline values (placebo groups tend to hit 80%).
+	- Filling foods
+	    collapsed:: true
+		- First, let me dispel a myth.
+		- Carbs Cause Weight Gain?
+		- Low-carb diets often lead to rapid initial weight loss due to the fact that our glycogen (carb) stores become emptied, which also take in 4g of water for every 1g of carbohydrate. The average man's glycogen stores are somewhere around 600g so the first 3kg of weight loss might not even be fat loss at all.
+		- Sustained weight loss on a low-carb diet however is a common occurence and that is mainly because most people cut out their carbohydrate sources which have low satiety:high calorie ratio e.g. chocolate, sweets, crisps and instead replace it with high satiety meats and filling veggies.
+		- Carbs, in and of themselves do not cause weight gain, what matters is 1) the type of carb we eat and 2) how much of it.
+		- How to Really Stay Full
+		- In general, it goes protein > fat > carbohydrate in terms of satiety. Protein keeps you the fullest for the least calories consumed, which is why 250g+ of protein is recommended daily on the Leangains diet. Eat as much of this as you can e.g. tuna, egg whites, low fat cottage cheese, protein fluff.
+		- For weight loss, lean meat such as skinless chicken breasts is going to help you lose weight faster because it's got less fat (and therefore less calories) but it gets old fast. Switch it up to fatty cuts of meat and fish once in a while but poultry like chicken and turkey as well as lean mince etc will keep your calorie intake low.
+		- Vegetables are highly touted as filling foods because despite the fact they are technically carbs, many have so much fibre that stuffing yourself with them will massively curb your appetite e.g. broccoli, kale, spinach, in soups, etc.
+		- Finally, the satiety index/Fullness factor. Google them for a full overview of the most filling foods but the top ones that consistently come up are potatoes, eggs, fish, apples, porridge and beef steak.
+		- > choice of food depends on concurrent goals
+		- e.g. no money goals = high satiety (protein) e.g. grassfed meat, biltong, liquid egg whites
+		- Extreme saving goals = soup (filling/cheap), eggs, whey protein
+		- "Imagine you only had one dish," he says. "How much could you eat?" - reduce variety
+		- soup - filling and low calorie
+	- Flavor control diets
+	    collapsed:: true
+		- Flavor control diets / Getting Stronger
+		- A number of recent weight loss methods have been developed that explicitly recognize a close relationship between flavor and appetite. These methods include:
+			- Flavor-calorie dissociation as advocated by Seth Roberts in his Shangri-La Diet
+			- Sensory-specific satiety, as advocated in David Katz’s Flavor Point Diet
+			- Tastants, another approach to sensory-specific satiety, as advertised in Alan Hirsch’s Sensa Weight-Loss Program.
+			- Odor inhalers, a third approach based on sensory-specific satiety, as described in Alan Hirsch’s book Scentsational Weight Loss](http://www.amazon.com/Scentsational-Weight-Loss-Natural-Appetite/dp/0684845660/ref=sr_1_1?ie=UTF8&s=books&qid=1263189667&sr=1-1), and marketed by him as ”diet pens” offered by [SlimScentsAt first, some of these approaches appear to be mutually incompatible. The Shangri-La theory argues that strong or familiar flavors enhance appetite when they become associated with caloric foods. The other three approaches, by contrast, claim that intense flavors or aromas suppress appetite, based upon the principle of “sensory-specific satiety”, whereby an increase in the intensity of a single flavor or odor induces satiety. However, on closer examination, all of the above theories are consistent with one another, as I will try to show. Furthermore, they each provide some useful clues about how to achieve a long term weight loss and relief from hunger cravings by paying attention to the role of flavor and other food cues. Finally, as I will attempt to persuade you, only one of the above diets is truly a type of Deconditioning Diet that can lead to long term, permanent reduction in appetite, based on the principles of Hormetism.
+		- This post is one of the longer, more complex ones I’ve written so far. It’s almost like a full chapter in a book. For that, I apologize. But if you hang in there and try to follow the twists and turns in the science, I think at the end of this post you’ll find that certain puzzle pieces start to fit into place, leaving us with a framework that helps us to figure out some truly effective new methods of controlling appetite and weight. If you want to skip to the punch line, you can find the simple explanation at the bottom of this post, below the dotted line, under the heading “A Unified Explanation of Flavor Control Diets” and “Lessons Learned”. But for those who want to understand the science, read on….
+		- I’d like to briefly review these weight loss programs and the underlying theoretical explanations for two reasons. First, I think that while the diets are useful, the explanations offered as to why they work are in several instances incorrect. I believe that the insulin response theory of appetite provides a more adequate explanation, and one which resolves the apparent contradiction between the two theories. Second, and more importantly, I think the insulin response theory of appetite, in combination with the philosophy of Hormetism, provides a scientific basis for the Deconditioning Diet. As detailed on the Diet page of this website, the Deconditioning Diet is a weight loss program that offers the prospect of permanent and lasting changes to appetite and long term weight loss without dependence on consuming or using specific dietary agents or devices, such as is required by all four of the above flavor control weight loss methods.
+		- The Shangri-La Diet. I credit Seth Roberts’ book by this name for first making me aware of the connection between flavor, appetite and weight control. I tried the diet and it works. I lost 10 pounds rather easily by using Roberts’ concept of flavorless calories to suppress appetite. Roberts discovered his diet while vacationing in France. He tried some French sodas with “unfamiliar” flavors and found they suppressed his appetite almost totally. He found himself skipping meals or forgetting to eat, and he lost weight on the trip. He hypothesized that it was the unfamiliar flavors in combination with the calories from sugar that led to his appetite suppression. When he got home, he figured out that consuming sugar water with no added flavor would be as effective and simpler than using unfamiliar flavors. Consuming daily fructose water left Roberts hungry enough to eat only “about one meal every two days”, and he steadily lost about 2 pounds a week, dropping from 185 to 150 pounds in short order. He satisfied his desire for non-caloric flavors by drinking tea and chewing gum, and his desire for texture by consuming small portions of crunchy or chewy snacks like apples, nuts, or jerky. Roberts then generalized his diet to stipulate ingesting small 200-calorie doses of flavorless calories, at least an hour before or after any meal. “Flavorless” in this case means undetectable by the nose. The sweetness of sugar appears not to count as a flavor, because it is detected only on the tongue and not by the nose. (A test of whether something is a flavor is that it will become undetectable if you pinch your nose while tasting. Sweetness, saltiness, and sourness are detected by the tongue only). So besides sugars like sucrose and fructose, Roberts found that vegetable oils work well, particularly low flavor oils like extra light olive oil (ELOO) and certain nut oils. On his website, Roberts hosts a forum where an on-line community of SLD diet followers have extended the methodology to include variations such as “nose clipping” (wearing a nose clip or pinching your nose to suppress flavors while eating regular foods) or formulating various flavorless drinks and meals. The SLD diet has clearly been successful for a great number of people, many who have found it to be the least painless way to regain control of their eating and lose a large amount of weight, with great flexibility, no restrictions on the types of food you can eat, no calorie counting, and no sense of deprivation.
+		- [](http://gettingstronger.org/2010/02/flavor-control-diets/thermostat2/)
+			- Roberts’ theory of weight control can be summarized as follows: Foods with a weak flavor-calorie association will lower your body fat set point and cause you to lose weight; foods with a strong flavor-calorie association will do the opposite. He supports his theory of flavorless calories with evidence from the usually disparate fields of weight control (physiology) and associative learning (psychology). From weight control theory, he draws on the lipostatic theory of Gordon C. Kennedy. Kennedy conducted experiments with rats in the 1950s which suggested that weight or body fat is homeostatically controlled to a relatively constant “set point”. When rats were fed less calorically dense food, they first lost weight, but then adjusted by eating more of the low-cal chow to re-establish their “set point”, just as a thermostat will turn on a heater whenever the temperature of the building drops below its set point. Kennedy’s experiments were backed up by similar studies in other animals and humans. In particular, Roberts cites a series of experiments by Dr. Michel Cabanac, a physiology professor at Laval University in Quebec. Cabanac worked with human subjects, who generally find glucose water pleasant to sip. Cabanac slowly pumped glucose water directly into the stomachs of his subjects, and then had them sip sugar water. For the subjects who had sugar injected into their stomachs, the sipped sugar water became less pleasant, and they felt full. In a follow up experiment, subjects first lost 8 pounds by just eating less of their usual diet, then the glucose injection experiment was repeated. This time, the injected glucose water no longer reduced the pleasantness of the sipped sugar water, and the subjects remained very hungry. Roberts takes this to indicate that the increased appetite of this second group was caused by their actual weight being below their “set point” weight. In a further experiment, Cabanac found that letting subjects consume as much as they wanted of a restricted bland liquid diet let to significant weight loss without hunger. And one of Cabanac’s students found even faster weight loss and appetite suppression by directly injecting the liquid nutrition through a stomach tube. This suggested to Roberts that flavors raise set point, and lack of flavor (as in direct injection of sugar or food to the stomach) reduces set point. From associative learning, Roberts draws upon the very work of Pavlov that I have cited (for different reasons) on the Psychology page of this site. He cites several experiments that appear to establish the general principle of flavor-calorie associative learning. In one study with rats, Dr. Anthony Sclafini, a psychology professor at Brooklyn College in New York, allowed rats to drink water with two different flavors. Whenever they sampled Flavor 1, a caloric starch compound (Polycose) was injected into their stomachs, but when they drank Flavor 2, plain water was injected into their stomachs. The rats developed a strong preference for Flavor 1, and this preference persisted several days even after the injections were stopped. Since they could not “taste” the injected Polycose, Sclafini and Roberts take this to provide flavor-calorie associative learning.
+		- Putting these two lines of research together, Roberts concludes that consuming calories with familiar or strong flavors tends strengthen flavor-calorie association and preference for those flavors, and will raise the weight set point, whereas consuming flavorless calories or calories with unfamiliar flavors tends to reduce both the flavor preference and the set point. Roberts and his followers have used the hypothesized connection between flavor-calorie association and body fat set point to make predictions and extend the diet. For example, Roberts predicted and confirmed that appetite suppression and weight loss can also be achieved by consuming foods with unfamiliar flavors, so one variation of SLD is to add “crazy spices” to foods to break the flavor-calorie association, or by using nose-clipping to suppress detection of flavors while eating.
+		- However, the success of the SLD diet in itself does not prove that Roberts’ explanation for why it works is correct. I believe that Roberts explanation is incorrect for several reasons: (1) the set point theory is not empirically testable; (2) Roberts learning theory is based on a misunderstanding of Pavlov’s theory of associative learning; (3) Roberts’ learning theory makes several false predictions and fails to explain other facts about weight loss; (4) there is an alternative explanation for why SLD works that can better explain these other facts about weight loss. I’ll take up these criticisms in order.
+		- Lipostatic set point theory of weight control. According to Roberts, if you weigh less than your set point, “you will be hungry and think about food” and the bigger the gap, “the more you will think about food, and the more food it will take to feel full when you eat. It is nearly impossible to weigh much less than your set point for a long time–the hunger becomes unbearable.” (SLD, p.9) Similarly, if you weigh more than your set point you will not be hungry and “When you eat, you will feel full rapidly.” It is apparently not your weight, but your body fat content, that is compared with a set point. “When your body-weight regulatory system detects that you have less fat on your body than your set point, it makes you more hungry than usual between meals and increases how much food you need to eat to feel full.” (SLD, pp. 41-2)
+		- And yet the lipostatic set point does not seem to operate like temperature set point on a thermostat. Whenever the temperature is below the thermostat set point, the heater turns on immediately, or after a short delay. And whenever the temperature is above the set point, the heater never turns on–until temperature drops on its own, or with the assistance of air conditioning. But this is not the case with body weight “set point”. When you weigh 8 pounds less than your set point, you don’t eat continuously in one session until the set point is reached. Likewise if you weigh 8 pounds more than your set point, you don’t totally stop eating until your weight drops to the set point level. Instead, most people have a certain rhythmic frequency of eating alternating with not eating. Something else regulates this rhythm of meals even when we far from set point. (As I’ll suggest below, that “something” is the hormone insulin).
+		- Roberts acknowledges that set point is not fixed, and he posits that your set point is directly influenced by what you eat. He explains that between meals, your set point goes down gradually, and the higher your set point, the faster it goes down. But, according to Roberts, your weight goes down faster than your set point, which is “why not eating causes hunger–and why diets that deprive you of food don’t work.” Eating foods with flavor-calorie association will immediately raise set point; and the stronger the association, the greater the increase in set point.
+		- But this is an odd sort of set point that is never really set! The very thing that is controlled by set point (eating) itself causes the set point to change. It is as if a thermostat setting were itself influenced by the temperature in the house, rather than by the intentional decision of the house occupants. The set point concept starts look very flexible, with a lot of external influences and circular feedback loops. (It reminds me of how epicycles were added to the Ptolemy’s geocentric theory of the solar system in order to explain the apparent zigzagging of observed orbits of plants and stars around the earth, until Copernicus eventually came up with the simpler heliocentric theory in the 16th century). If set point is always changing, how could you verify this? It just seems like a convenient theoretical entity that can never be proven or disproven. Roberts’ claim that highly flavored caloric foods cause weight gain because they are “high set point foods” is an example of this circular reasoning.
+		- [](http://gettingstronger.org/2010/02/flavor-control-diets/jack-sprat/)
+			- There is also one other weird aspect of the lipostatic theory of weight control. It seems to commit us to the view that each of us has a “natural” set point weight or fat mass, which we cannot change. Unless, that is, we following the Shangri-La Diet and we commit ourselves to eating bland foods, at least periodically–forever. If we are born with a “fat” set point weight and eat flavorful caloric foods, we are destined to get fat. Naturally thin people who can eat flavorful foods are just lucky, because…they are born with a low set point. Somehow, I doubt this. This does not mean we should throw out the concept of a set point. We just have to pick a physiologically verifiable set point. True examples of set points and homeostasis are blood pH and body temperature which are controlled in a narrow range, under normal circumstances. There is not anything that you can do to alter these set points, and nor would you want to do so. Fevers, hypothermia, and ketoacidosis are indicators of disturbance or pathology, and the organism works hard to restore temperature or pH to the healthy set point values in such cases. Furthermore, the physiological basis of these homeostatic mechanisms for regulating body temperature and blood pH are well known. So I think that extending the set point concept to such a variable quantity as body weight is neither legitimate nor useful, and there burden of proof should be on its advocates to demonstrate an empirical basis for it.
+		- Roberts does acknowledge physiology when he claims that set point is related to the concentration of leptin in the in the bloodstream:
+		- In order to regulate the amount of body fat, the brain must be able to know how much body fat you have, just as a thermostat needs a built-in thermometer to keep track of the room temperature. Leptin serves as the brain’s body-fat thermometer: The concentration of leptin in your blood tells your brain how much fat is in your body. Leptin is produced by fat cells. When your body fat goes up, so does the amount of leptin in your blood. When your body fat goes down, leptin goes down. (SLD, p. 143)This is getting closer to a bona fide physiological explanation. In fact, I agree that hormones drive weight control, I just think that Roberts has chosen the wrong hormone. There are two problems with choosing leptin. First, while leptin does play a key role in signalling satiety to the brain, it is not the whole story. First, the leptin signal does not always work. People can become resistant to leptin. The brain can’t always “hear” leptin even when it is elevated, leading people to overeat. This is especially true with obese individuals. The leptin signal can also be blocked by ingesting a meal high in carbohydrates, since carbohydrates lead to high triglyceride levels in the bloodstream, and this can block the leptin signal, again leading to overeating. Furthermore, leptin is not the only player in hunger signaling. The brain integrates the signal from leptin with that of other appetite signallers, including hormones such as ghrelin, and neurotransmitters such as neuropeptide Y, serotonin, dopamine and various opioids. We need to look further up the stream to the root cause of hunger, not the “messengers”.
+		- Another problem with the leptin theory is that is inconsistent with at least two observational facts:
+			- The observed variability in body weights in the population. Leptin is known to increase in fat individuals and decrease in lean individuals. So lean individuals, who have lower levels of leptin, should be hungry and want to eat more, until their leptin reaches a “satiating” level. However, that would seem to rule out the existence of lean people. Everyone should eat until their leptin level reaches the “normal” level. And yet that is absurd, because most lean people are not ravenously hungry. That implies that every individual can have a different “normal” leptin level. That is in fact the case, but then it removes leptin as a homeostatic regulator of weight or body fat.
+			- The suppression of hunger observed during extended fasting. After an initial period of cravings, light-headedness or other hypoglycemic response, people who are fasting for extended periods of 12-24 hours or longer commonly report appetite suppression and a surge of energy. This cannot be explained by the lipostatic set point theory or Roberts version of it. To repeat what I wrote above, according to Roberts, your weight goes down faster than your set point, which is “why not eating causes hunger–and why diets that deprive you of food don’t work.” But if weight is dropping faster than set point during fasting, your hunger should increase monotonically, that is, it should get steadily more intense, without dissipating. Yet that is not what happens. After a period of adjustment, as insulin drops, glucagon rises along with adipose tissue lipase, and adipose tissue begins releasing free fatty acids into the bloodstream, while the liver breaks down glycogen into glucose and proteins into glucose via gluconeogenesis. So a constant level of glucose in the bloodstream is restored, and there is no sense of deprivation or “unbearable” hunger. Most people who fast, including myself, find it quite pleasant. I think the bad rap on fasting comes from people who have not studied the physiology of fasting and either haven’t tried it, or haven’t given their bodies enough time to adapt.
+		- The glucostatic theory. There is a much better alternative to the lipostatic theory of hunger and weight regulation: namely, the glucostatic theory of Jean Mayer, as it has been developed into a fuller theory of the homeostatic regulation of blood glucose by the hormone insulin. While there are many hunger signaling compounds, ultimately these signals are either responding to or predicting what is happening or likely to happen to blood glucose concentrations. In the glucostatic theory, there is also a set point that controls hunger, and it is blood glucose concentration. According to the glucostatic hypothesis, there is no body fat “set point” that our body attempts to defend, no “natural” level of fatness or leanness. This is evidenced by the fact that it is possible to gain or lose a lot of weight and main these changes. Whether we are fat or lean, our body strives to maintain glucose concentration within a physiologically tolerable range of about 70 to 150 mg/dL. Below that level, hypoglycemia sets off hunger pains, headaches and–in extreme cases–shock and coma. Above that level, there can be both acute problems with high blood glucose and chronic problems with elevated blood glucose, leading eventually to hyperinsulinemia and diabetes. There is an excellent discussion of the glucostatic and lipostatic theories of weight control in Chapter 24 of Gary Taubes’ Good Calories, Bad Calories, delineating further problems the lipostatic theory. This is not to say that weight is not remarkably stable in most people for long periods of time. But this stability is not the result of homeostatic control. Rather than being a “set point”, body fat may be a “settling point”. Taubes is very articulate on this point:
+		- Life is dependent on homeostatic systems that exhibit the same relative constancy as body weight, and none of them require a set point, like the temperature setting on a thermostat, to do so. Moreover, it is always possible to create a system that exhibits set-point-like behavior or a settling point, without actually having a set-point mechanism involved. The classic example is the water level in a lake, which might, to the naive, appear to be regulated from day to day or year to year, but is just the end result of a balance between the flow of water into the lake and the flow out. When Claude Bernard discussed the stability of the milieu interieur, and Walter Cannon the notion of homeostasis, it was this kind of dynamic equilibrium they had in mind, not a central thermostatlike regulator in the brain that would do the job rather than the body itself.This is where physiological psychologists provided a viable alternative hypothesis to explain both hunger and weight regulation. In effect, they rediscovered the science of how fat metabolism is regulated, but did it from an entirely different perspective, and followed the implications through to the sensations of hunger and satiety. Their hypothesis explained the relative stability of body weight, which has always been one of the outstanding paradoxes in the study of weight regulation, and even why body weight would be expected to move upward with age, or even move upward on average in a population, as the obesity epidemic suggests has been the case lately. (GCBC, pp. 428-9)In effect, the apparent stability of weight results from a relative constancy in many factors–hormone activation, food intake, physical activity–any change in which can shift this balance to a new stability point.
+		- The glucostatic theory also provides explain how appetite can change on a minute-by-minute basis. Typically, a drop in blood sugar is associated with hunger and the initiation of eating. While blood sugar can drift down on its own, the more usual scenario is that food cues such as aromas, or the time of day, lead to a psychologically triggered secretion of insulin are the immediate causes of a dip in blood sugar, with its attendant hunger signals. This usually occurs at meal times because of prior conditioning. Blood sugar can also drop when the body is running low on glycogen and is having difficulty switching over to fat or ketones, or when blood sugar is depleted by exercise or other activity that outstrips the ability to resupply glucose from the tissues.
+		- Unlike blood glucose and insulin–which can change by the minute and correlate well with the well known rhythms of appetite and satiety–body fat and body weight change much more slowly, and therefore do not seem to be good candidates for direct control, as required by the set point theory of weight regulation.
+		- Associative learning. There is a second problem with Roberts’ explanation of why the Shangri-La Diet works. One of Roberts central claims is that body fat set point is influenced by flavor-calorie association, and that the strength of the association between flavor and calories comes about by means of associative learning. In this regard, Roberts explicitly invokes Pavlov to explain why the the SLD requires that flavor and calories be detected at separate times:
+		- In Pavlov’s experiments, the bell was the signal and the food was the outcome. The food was given at the same time the bell was turned off. Had the food been given many minutes after the bell was turned off, the dog would not have associated them at all. (SLD, p. 47)Roberts further supports this contention about timing by citing experiments with rats indicating that “a flavor-calorie association was learned even when there was a thirty-minute gap between eating the flavor source and eating the calorie source” (p. 70), but a one-hour gap was sufficient to prevent such a learned association from forming. The flavorless calorie window of one hour stipulated for the SLD is based on the Pavlovian principle that “the more delayed the outcome, the weaker the association”.
+		- But I believe Roberts’ interpretations and conclusions regarding Pavlov’s finding are not correct here. First, Pavlov did in fact show in his experiments with dogs that a delay between a stimulus such as a buzzer, and a delayed feeding would merely reinforce a delay in the salivation. The dogs would wait the required amount of time:
+		- As his technique became more practiced, Pavlov’s laboratory began investigating the canine sense of time. After a dog was trained to salivate at a flash of light, the delivery of the stimulus was postponed by three minutes. Before long, the dog learned to anticipate the delay. Three minutes after the signal, the animal’s mouth would water. (The Ten Most Beautiful Experiments, p. 132).But second, note that Roberts in the previous quote is talking about an association between the bell and the food presentation (two stimuli). That is indeed associative learning, because both the bell and the food can be perceived. The bell and food repeatedly occur together, and become psychologically associated. This association is strengthen considerably by reinforcement. The bell is a conditioned stimulus (CS) and the food is an unconditioned stimulus (US) and classical conditioning is all about associating CS with US, by virtue of reinforcing the unconditioned response (UR). In this case the UR is salivation and an increase in appetite, and the reinforcement is the rise in the dog’s blood sugar that occurs after it eats the food. (If the food was taken away before being eaten, there would be no reinforcement).
+		- Yet in his explanation of why the Shangri-La diet works, Roberts talks about an “association” between flavor and calories. However it is a misapplication of the concept of associative learning to speak of “associating” a perceivable entity (flavor) with an unperceivable physiological reaction (detection of “calories”). The calories cannot be directly perceived by the sensory apparatus. Rather, the ingestion of food results in a physiological response, a rise in blood sugar, and its further consequence, secretion of insulin. There is a perceivable consequence of the calories (hunger), which is possible to associated with certain stimuli. But that is not what Roberts is claiming. He says that we learn to associate flavors with calories, not with hunger or satiety. The relationship between a perceivable stimulus and a physiological response, if reinforced, gives rise to classical conditioning. This is distinct from associative learning, in which two perceivable stimuli become associated with each other when they occur together repeatedly.
+		- Put another way: it is not strictly correct to say that people “learn” to make “associations” between flavors and calories, especially since they are not directly aware of the calories (other than by reading food labels). All we can discern is whether or not the flavorful food provides relief from hunger. Roberts sometimes seems to conflate awareness of calories–a requirement for associative learning–with physiological detection of calories. But physiological “detection” by the digestive system is not associative learning.Strictly speaking, it is not a flavor-calorie association, but rather an association between flavor and the satisfaction of appetite. An even better way is to formulate this as a stimulus-response relationship, since the primary response is physiological and not conscious. In this case direct response to the stimulus of flavor is insulin secretion, and indirect responses are blood sugar and appetite. Pavlov primarily studied the conditioning of stimulus-response relationships; the associative learning was merely an explanation for how a secondary, conditioned stimulus could become secondarily associated with the primary unconditioned stimulus.
+		- Even if we were to accept Roberts position that unconscious detection of caloric foods by the digestive system is sufficient for calories to play a role in “associative learning”, we are left without an explanation of how calories per se can be detected. In this regard, the digestive system does not recognize all “calories” as a monolithic unit of food, as Roberts seems to suggest. His explanation of how low carb and “good carb” diets work overlooks significant differences in how calories in different types of macronutrients interact with the digestive system. He seems to assume the only difference between carbohydrates, proteins and fats is how quickly they are released and detected:
+		- When a food is digested more slowly, the calories in that food are detected more slowly. Thus there is more of a gap between the signal (flavor) and the outcome (calories). I believe this is why low-carb and good-carb diets work: They replace foods that are digested quickly, such as bread, with foods that are digested slowly, such as vegetables. The foods that are digested more slowly have weaker flavor-calorie associations. They raise your set point less. (SLD, p. 47)But this does not seem very plausible. Low molecular weight oils can be digested and absorbed as least as quickly as most starches. The reason that oils lead to better appetite suppression and weight loss than simple carbs is not that they are detected more slowly, but rather than they induce little or no insulin response. Furthermore, fats will result in increased appetite in weight if they are combined with even a modest amount of carbohydrates, because the insulin response will cause them to become “fixed” with the glucose to form triglycerides in the adipose tissue. It is critically important to consider the types of macronutrients and how the endocrine and digestive system responds to them alone and in combination.
+		- A better explanation for Robert’s one-hour rule is based on the dynamics of insulin secretion, and the way that this can become conditionally mediated via sensory stimulation of the vagus nerve . When correctly understood in terms of insulin response, the one hour rule should be changed to an asymmetric rule. In fact, one should only need to wait about 15-30 minutes after ingesting non-caloric flavors before consuming calories, but depending on the meal size, one may need to wait an hour or more before consuming flavors after eating. This is because the pre-prandial insulin response is shorter and smaller than the post-prandial insulin response.
+		- In fact the one-hour rule must be differentiated even further, based on the macronutrient composition of the calories, and it leads to a number of predictions that diverge from the SLD:
+			- Wait at least 15-30 minutes after a flavor or aroma before ingesting carbohydrate containing foods. (This is to allow the pre-prandial insulin response to subside, and blood sugar to renormalize).
+			- Wait at least an hour after consuming flavorless carbohydrate-containing foods before ingesting flavors. (This is because the post-prandial insulin is much larger and takes longer to return to baseline than the transient flavor-induced pre-prandial insulin response).
+			- The same rules apply to meals which contain large amounts of protein. Protein is much less insulinogenic that carbohydrates, but large protein meals and certain types of protein are insulinogenic.
+			- You can eat fats and flavors together without any worry, because fat is not insulinogenic alone–it requires the presence of a little carbohydrate or a lot of protein to be removed from the bloodstream by insulin.The flavor-insulin response, which is mediated by the tractus solitarus in the brain and the vagus nerve, is a conditioned response. It will be strengthened whenever the flavor cue is concurrent or closely followed by a the ingestion of insulinogenic foods, foods which in themselves produce an insulin response when detected by the glucose receptors in the stomach and intestines. Essentially, the flavor-insulin response is a predictive response that readies the digestive tract for food that is coming, by making the food more absorbable. Secreting pre-prandial insulin for a pure fat meal or a small protein meal has no value, and that conditioned response will tend to extinguish. So that leads to another set of predictions. In particular, despite what Roberts claims, fats and sugars should work very differently in the SLD. So here are some predictions made by the insulin-regulated glucostatic theory of hunger, all of which are either not predicted by SLD or are diametrically opposed to what SLD would predict:
+			- Consuming pure fats like olive oil or heavy cream should suppress appetite even if they are flavored. This only works, however, if no more than a trace of carbohydrates or proteins. (This works because fats are noninsulinogenic).
+			- Increasing the dose size of oils even to large doses should increase appetite suppression
+			- Increasing the dose size of sucrose or glucose beyond the minimum dose, should reduce appetite suppression. A small amount of sucrose or glucose increases satiety because it raises blood sugar slightly, and flies “under the insulin radar”. Insulin is not secreted until blood sugar rises above a certain threshold, typically 120 mg/dL or so. But once it exceeds that threshold, insulin kicks in, and blood sugar drops.
+			- Sipping sucrose or glucose slowly will maintain appetite suppression. If this is done slowly enough, the addition to blood sugar just balances out the amount of blood sugar consumed to meet metabolic needs. But this is a careful balance.
+			- Increasing the dose of fructose, xylitol, erythritol, or other non-insulinogenic sugars should suppress appetite at any dose.Prediction 4 is consistent with SLD. Predictions 2 and 5 are consistent with SLD, but not predictable from it. Predictions 1 and 3 are contrary to the fundamental assumptions of SLD, and would not be predicted by it.
+		- For anyone who is interested in subjecting SLD to a test, I would be interested in their experience in attempting to verify or refute the above predictions, especially 1, 2 and 3.
+		- The Flavor Point Diet. (FPD). This diet, created by David Katz, is based on the concept of “sensory specific satiety”. Eating a meal with flavors in multiple “competing” categories such as sweet, salty, or savory, somehow stimulates the “appetite center” of your brain, causing overeating. Limiting the flavor categories in a meal or snack to one or two flavor types makes it easier–more rapidly and with less food– for your brain and stomach to reach the “flavor point”, a state of satiety that causes you to stop eating, with less food. This concept is reflected in the popular notion of “multiple stomachs”, whereby you can feel stuffed after eating one course of a meal, but you often seem to find additional appetite for dessert or something different. The FPD advises you to restrict the number of simultaneous flavors within a meal, but overcomes the potential boredom by allowing you to eat a variety of flavors over the course of a day or week–just not “excessive variety” all at one time. Katz bases most of his case for sensory specific satiety on the way in which flavors stimulate the production of neurochemicals that activate the hypothalamus:
+		- As soon as you taste food, the sensory information registers in the hypothalamus in the brain, which, depending on the flavor of the food, sends out signals to eat more or less. Because of this sensory relay system, the appetite center in your hypothalamus can become aroused–and in some cases overly aroused–by how a food tastes. (FPD, p. 4)As soon as you bite into any food, sensory stimulation of nerve endings on the tongue leads to the release of a number of chemicals, including opioids, into the bloodstream. You release more opioids–the body’s natural version of drugs like morphine–when you consume foods high in sugar and fat, creating a powerful, neurochemical drive to overeat those foods. These opioids and other chemicals enter the bloodstream and carry their messages to the hypothalamus, which sends out yet another set of chemicals to regulate appetite. The more flavors your taste buds register, the more stimulated the hypothalamus becomes, releasing the hunger-promoting neuropeptide Y. When you taste a lot of flavors at once, the brain releases a lot of neuropeptide Y. Meanwhile, in response to the smell and taste of food, your stomach produces the hormone ghrelin, which also stimulates appetite. It continues to produce this hormone until you eat enough food to literally fill your stomach and stretch the stomach wall. Farther down the line, in your intestines, levels of several hormones rise to varying degrees–depending on the nature of your meal–either inducing more hunger or turning off hunger. (FPD, p. 4-5)Katz claims that by “organizing” the flavors in our diet, we can manipulate this chain of chemical and signals and “subdue the appetite center in your brain sooner, before you’ve overeaten.” (p. 9) Katz also does acknowledge a role for insulin in controlling blood sugar, and points out that fast carbs cause a rapid blood sugar surge and an insulin spike which tends to overshoot and lead to a drop in blood sugar, whereas low glycemic carbs like oatmeal result in a lower rise in blood sugar, a slower release of insulin, “no rapid surge and dip in blood sugar levels” and sustained satiety. But he does not make any direct connection between flavor and the insulin response, putting the onus on the neurochemical triggers like opioids, neuropeptide Y, and ghrelin.
+		- The FPD establishes how flavors can begin a cascade that induces appetite. Katz is probably correct that the effects of individual flavors have a saturating effect on this response, and that the response can be increased by combining multiple flavors. I think that Katz overstates the role that neurotransmitters and leptin play in hunger and appetite. Neurotransmitters and leptin are are important as primarily signaling compounds to the brain, but they are not the primary causal agent in that chain. Insulin is much more directly involved in the control of appetite, because it is insulin that reduces blood sugar to physiologically unsustainable levels in the first place, and the signaling compounds are merely the messengers. Blaming these signalling compounds for hunger is like blaming a witness for the crime. Perhaps neuropeptides and leptin can signal hunger without concurrent insulin response. I think this is unlikely, but if it occurs, I suspect it is because these signals have independently become classically conditioned to respond to flavors and other food cues that have become associated with the presence of food. As with insulin, these neurotransmitter responses to sensory stimuli can be deconditioned upon experience. However, Katz treats the neurochemical responses to flavors as “hardwired”, overlooking the fact that they are learned or conditioned responses. The responses will strengthen if reinforced by eating food that increases blood sugar, and will weaken if not reinforced. His claim that sugar and fat alone cause the release of opioids into the bloodstream is not documented and seems unlikely. The tongue does not detect sugar and fat directly. In fact, some neurological research by Woolley et al at UCSF indicates that it is flavors, and not the macronutrient content of foods, that stimulate opioid secretion by the nucleus accumbens in the brain. To the extent that the hypothalamus is engaged, it requires a detectable signal such as flavor. As Teff showed (see Diet page), the tractus solitarus will trigger the vagus nerve to secrete insulin only in response to flavor and scents that it has learned and expects to be associated with blood-sugar raising foods.
+		- Sensa tastants. Closely related to the Flavor Point diet is the use of tastants as Alan Hirsch has developed for his Sensa Weight Loss Program. The Sensa tastants are intense non-caloric flavors that are sprinkled on foods to enhance flavor intensity. The tastants are matched the flavor class of the foods: savory tastants are sprinkled on savory foods, while sweet tastants are sprinkled on sweet foods. The principle of sensory-specific satiety is identical with that of the Flavor Point diet. One is still advised to eat only one or two “flavor categories” of food at a meal. The advantage of Sensa over FPD, perhaps, is that the satiating “flavor point” is reached earlier in a meal, with less food and fewer calories consumed than otherwise. It seems to me the the same result could be achieved by spicing your savory foods and adding non-caloric sweeteners to your desserts.
+		- As with FLP, however, tastants will do nothing to fundamentally alter or extinguish strong flavor-insulin responses. So one remains vulnerable to a strong appetite returning when combining foods, and has to observe the principle of limiting the number and variety of flavors at any given meal.
+		- The bottom line, with both FLP and Sensa, is that by confining yourself or intensifying a single flavor, you allow the insulin response to that specific flavor to saturate earlier, thereby limiting the appetite-inducing property of insulin. If you were to add more successive different flavors, you will tend to stimulate separate flavor-detection pathways and add another wave of insulin secretion and stoking of appetite.
+		- Odor inhalers (Scentsational Weight Loss). Direct exposure to saturating levels of food aromas is yet another way to exploit the sensory specific satiety mechanism. Even though it exploits the same mechanism, it is in an entirely different class and–as I will argue–odor inhalers have the potential to engender long term appetite deconditioning and weight loss.
+		- Alan Hirsch describes his discovery of this phenomenon in his book Sensational Weight Loss (SWL), and the same concept is exploited in the commercial “diet pens” sold by SlimScents. There are a number of other related pens and inhalers marketed as “aromatherapy”. Hirsch reports a remarkable conclusion from his six month study of the use aroma devices for to quell appetite and spur weight loss. The study included 3193 participants, 86% of whom were women, and most of whom were significantly overweight (average weight = 217 lb.). Participants were given small odor inhalers, similar to lipstick dispensers, containing pleasant smelling substances. Three aromas were used: green apple, peppermint, and banana. Hirsch found that varying the aromas was more effective than sticking with the same aroma. Participants were asked to open and sniff the aromas whenever they got hungry–three sniffs in each nostril. But otherwise there were no forbidden foods or other dietary restrictions. The results were impressive. The average weight loss was 5 pounds per month. Some people lost more than 100 pounds over the six month study. What is especially interesting to me, however, is that there was a permanent deconditioning effect, along the lines of the Deconditioning Diet (see Diet page). Here are Hirsch’s comments regarding “deprogramming” of the participants’ learned responses to flavors, leading to long-term changes in eating habits:
+		- Just as we have learned to respond to the smell of certain foods by feeling hungry and wanting to eat, we can, in a very real sense, “unlearn” or deprogram ourselves. For many people the smell of any food triggered hunger. Smell a doughnut, salivate; smell a pizza, and the stomach growls. Actually, most of us experience this much of the time; but in the overweight person, this conditioned, or learned, response can be quite. powerful. It’s exciting to realize that people can recondition themselves to smell an odor and not respond with hunger. In the absence of a food associated with the smell, hunger disappeared, the desire to eat subsided, and a pattern was broken. In many cases, this was a long-standing pattern that was broken during the six month study. (SWLP, p. 33-4)Further evidence of a long term change was reflected in the frequency of use of the odor devices during the study. At the beginning of the study, participants reported needing to sniff 200 times a day or more; by the end of the study, only occasional sniffing was needed to keep appetite in check. So the the aroma devices don’t themselves become habit forming–the dependence actually decreases over time as new eating habits are consolidated.
+		- In Chapter 4 of Scentsational Weight Loss, Hirsch provides some additional advice, namely that we pre-saturate our satiey centers by sniffing our meals before the first bite to letter the odor molecules fully stimulate the olfactory bulb. He recommends that we slowly chew and savor the flavor of each bite in order to “fool” the hypothalamus into “believing that more food has been ingested than is actually the case. He also recommends eating food warm or hot to maximize the aroma, adding spices whenever possible, and choosing the more strongly flavored versions of foods. ”For example, if you eat popcorn, eat the cheese-flavored varierty, or choose an onion bagel over a plain one.” (SWLP, p. 62).
+		- On the face of it, this advice is diametrically opposed to that of Seth Roberts’ Shangri-La Diet! Roberts argues that blander foods induce weight loss, whereas Hirsch is arging for more intensely flavored and spiced foods. Who is right and what gives?
+		- Here is where all three diets — SLD, FPD, Sensa, and SWL– come together. After promoting the enhancement of flavor, Hirsch adds:
+		- Try limiting your food choices at any one meal. We still encourage variety, but not necessarily all at one time. We have found that people who want to lose weight should eat only two or three different foods during a meal rather than eating a little bit of many foods…Avoid buffet tables and “all you an eat” food bars. Even salad bars can be dangerous…Even with a smell device, too many selections and unlimited choices spell potential overeating. (Sensa Weight Loss Program, p. 63-64)…………………………………………………………………………………………………………………………………………………………………………..
+		- A Unified Explanation of Flavor Control Diets. Here is my summary explanation that can account for the observed effects of all four dietary approaches: Familiar flavors can induce a pre-prandial insulin response which leads to increased appetite and weight gain. This preprandial insulin response saturates separately for each basic flavor type (savory, salty, sweet, etc.). This saturating pre-prandial insulin response is is a learned response, and one that is reinforced only if it results ultimately in a rise in blood sugar and psychological satiation. If that flavor or aroma is not followed by more eating, it will eventually diminish or extinguish as a cue.
+		- Here then is how this explains each of the four flavor control diets:
+			- SLD explanation. Eating foods that contain carbohydrates (and to a lesser extent, proteins) with strong, familiar flavors will lead to a rapid pre-prandial insulin response which may be enough to cause a dip in blood sugar, stoking hunger and leading to further eating. Eating a small amount of bland or flavorless carbohydrate will satisfy hunger by slightly raising blood sugar, and will induce only a small post-prandial insulin response, insufficient to cause a rapid decline in blood sugar, so appetite will remain suppressed. While SLD keeps insulin in check, it does so only so long as flavor cues are not present. But SLD does nothing to weaken the connection between familiar flavors stimuli and their insulin response, it merely eliminates the stimuli. One would expect appetite to return when the familiar flavors are re-introduced.
+			- FPD explanation. Eating foods with familiar flavors will induce two insulin responses: a small pre-prandial response and a larger post-prandial response. However, the pre-prandial insulin responses for that flavor peaks within about 4 minutes after exposure, and sensory detection of that flavor will rapidly saturate. After it saturates, any further exposure to that specific aroma (or aroma class) will not induce any further insulin response for an extended period of time — up to about an hour. However, introducing new flavors, aromas or other food cues will cause additional secretion of insulin, increasing appetite. The more intense the flavor or aroma, the faster the saturation.
+			- Sensa explanation. The explanation for Sensa is the same as that for the FPD. Activation of a sensory response to a flavor will induce a small and rapid pre-prandial insulin response. For a single flavor or aroma class, the detection of that flavor will saturate after a certain amount of time, after which it will not prompt any further insulin response. If multiple aromas are sniffed, then all those smell receptors will become saturated, after which any further pre-prandial insulin response will become muted. Since the Sensa tastants contain no or minimal calories, they provide a way to reach flavor saturation faster, with fewer calories. In that way, the use of tastants is more effective than the Flavor Point Diet, since fewer net calories are consumed while satisfying one’s appetite.
+			- SWL (odor inhalants) explanation. With sensory-specific satiety approahes like FPD and Sensa, the stimulus-response relationship between flavor and pre-prandial insulin response is reinforced. The stimulus may saturate, but the connection with the insulin response remains in place, so that at subsequent meals, the flavor will induce pre-prandial insulin. However, with SWL, the relationship between flavor and pre-prandial insulin is not reinforced, so it extinguishes! This is a crucial difference. For this reason, SWL is actually a deconditioning diet that results in long term changes in the flavor-insulin response that suppress appetite and lead to weight loss. Eventually, the aroma inhalers are no longer needed, or only rarely, to maintain the “deprogramming” that Hirsch alludes to. By contrast, SLD, FLP and Sensa are not deconditioning diets, but merely methods of suppressing or limiting appetite that work by either minimizing or saturating the stimulus of food cues, but doing nothing to weaken the flavor-insulin response.Lessons learned. Where does this leave us? There is a lot to be learned from all four flavor control diets. Flavors and aromas that become associated with foods, particularly carbohydrate-containing foods, strengthen the insulin-response to those flavors and aromas, increase appetite, and tend to increase the consumption of those foods, leading to weight gain. This insulin response and the resulting appetite can be significantly dampened by limiting the variety of flavors while eating. However, a much larger benefit is possible by using flavors to decondition your appetite:
+			- You can expose yourself to flavors without carbohydrates or other insulinogenic foods and this will dampen the flavor-insulin response, and lead to a decrease in appetite that is induced by food cues.
+			- By exposing yourself to a variety of flavors or aromatic stimuli without eating, you will saturate a fuller range of satiety centers and even more effectively block an insulin response. Sniffing a variety of aromas of different types–savory and sweet– without eating can be helpful in curbing appetite.These findings have been incorporated into the second phase of the Deconditioning Diet, as described on the Diet page in this website.
+		- Please leave a comment. You can also check out (and maybe start) a discussion on the Diet Forum linked to this blog.
+		- Like7 people like this. Be the first of your friends.
+		- If you enjoyed this post, make sure you subscribe to my RSS feed!
+		- Share this:
+			- Email
+			- Facebook7
+			- Twitter
+			- Print
+			- More
+		- LikeShare7 people like this. Be the first of your friends.
+		- More Sharing ServicesShare](http://www.addthis.com/bookmark.php?v=250) | [Share on facebook](http://gettingstronger.org/2010/02/flavor-control-diets/#) [Share on myspace](http://www.addthis.com/bookmark.php?v=300&winname=addthis&pub=unknown&source=tbx-300&lng=en-GB&s=myspace&url=http%3A%2F%2Fgettingstronger.org%2F2010%2F02%2Fflavor-control-diets%2F&title=Flavor%20control%20diets%C2%A0%2F%C2%A0%20Getting%20Stronger&ate=AT-unknown/-/-/52c91993b5798afe/2&frommenu=1&uid=52c91993589a2d6f&ct=1&pre=http%3A%2F%2Fgettingstronger.org%2Fwp-content%2Fplugins%2Fwordpress-toolbar%2Ftoolbar.php%3Fwptbto%3Dhttp%253A%252F%252Fgettingstronger.org%252F2010%252F02%252Fflavor-control-diets%252F%26wptbhash%3DaHR0cDovL2dldHRpbmdzdHJvbmdlci5vcmcvZGlldC88d3B0Yj5EaWV0PHdwdGI%252BaHR0cDovL2dldHRpbmdzdHJvbmdlci5vcmc8d3B0Yj5HZXR0aW5nIFN0cm9uZ2Vy&tt=0&captcha_provider=nucaptcha) [Share on google](http://www.addthis.com/bookmark.php?v=300&winname=addthis&pub=unknown&source=tbx-300&lng=en-GB&s=google&url=http%3A%2F%2Fgettingstronger.org%2F2010%2F02%2Fflavor-control-diets%2F&title=Flavor%20control%20diets%C2%A0%2F%C2%A0%20Getting%20Stronger&ate=AT-unknown/-/-/52c91993b5798afe/3&frommenu=1&uid=52c91993e167c223&ct=1&pre=http%3A%2F%2Fgettingstronger.org%2Fwp-content%2Fplugins%2Fwordpress-toolbar%2Ftoolbar.php%3Fwptbto%3Dhttp%253A%252F%252Fgettingstronger.org%252F2010%252F02%252Fflavor-control-diets%252F%26wptbhash%3DaHR0cDovL2dldHRpbmdzdHJvbmdlci5vcmcvZGlldC88d3B0Yj5EaWV0PHdwdGI%252BaHR0cDovL2dldHRpbmdzdHJvbmdlci5vcmc8d3B0Yj5HZXR0aW5nIFN0cm9uZ2Vy&tt=0&captcha_provider=nucaptcha) [Share on twitter
+			- Tags: Alan Hirsch](http://gettingstronger.org/tag/alan-hirsch/), [appetite suppression](http://gettingstronger.org/tag/appetite-suppression/), [classical conditioning](http://gettingstronger.org/tag/classical-conditioning/), [cravings](http://gettingstronger.org/tag/cravings/), [David Katz](http://gettingstronger.org/tag/david-katz/), [deconditioning](http://gettingstronger.org/tag/deconditioning/), [Diet](http://gettingstronger.org/tag/diet/), [fat loss](http://gettingstronger.org/tag/fat-loss/), [flavor](http://gettingstronger.org/tag/flavor/), [Flavor Point Diet](http://gettingstronger.org/tag/flavor-point-diet/), [Flavor-calorie association](http://gettingstronger.org/tag/flavor-calorie-association/), [Gary Taubes](http://gettingstronger.org/tag/gary-taubes/), [ghrelin](http://gettingstronger.org/tag/ghrelin/), [hunger](http://gettingstronger.org/tag/hunger/), [insulin](http://gettingstronger.org/tag/insulin/), [leptin](http://gettingstronger.org/tag/leptin/), [neuropeptide Y](http://gettingstronger.org/tag/neuropeptide-y/), [odor inhalers](http://gettingstronger.org/tag/odor-inhalers/), [Sensa](http://gettingstronger.org/tag/sensa/), [Seth Roberts](http://gettingstronger.org/tag/seth-roberts/), [Shangri-La Diet](http://gettingstronger.org/tag/shangri-la-diet/), [SlimScents](http://gettingstronger.org/tag/slimscents/), [tastants](http://gettingstronger.org/tag/tastants/), [weight loss
+		- Posted 28 Feb 2010 in Diet](http://gettingstronger.org/category/diet/), [Psychology
+		- by Todd
+		- previousThe physiology of stress
+		- nextCold showers
+		- 14 Comments
+		- Glen
+		- #1 08 June 2011 21:33
+		- This makes me curious about diet sodas. Given they have no calories but do have flavours I would have thought according to this theory they should help decondition people but it seems there is a positive correlation between weight gain and diet sodas. How does this fit in with this theory?
+		- — Reply
+		- Todd
+		- #2 09 June 2011 07:19
+		- Yes, there is some evidence that diet sodas are associated with weight gain. But my question is: do any of those studies look at consuming diet sodas alone, without any other caloric foods or beverages within a window of several hours? If any food is consumed within hours of the diet soda, the conditioned insulin response (plus additional metabolic signals) may be reinforced sufficiently to (a) enhance the degree of energy storage of those other caloric foods and beverages; (b) reinforce an appetitive response to the diet soda, that leads to additional eating and reduces ability to rely on stored glycogen and fat. The upshot is that you cannot look at a single food item — you have to consider the combined effect of all food items in the context of the daily dietary routine. Diet sodas can be considered “flame without fuel”, but the flame hangs around long enough after ingestion to ignite fuel that is added later, and the fuel makes the flame stronger the next time around.
+		- — Reply
+		- Dave Asprey, The Bulletproof Executive
+		- #3 19 June 2011 23:32
+		- Regarding evidence for points 1 and 2, my Bulletproof Coffee (http://www.bulletproofexec.com/how-to-make-your-coffee-bulletproof-and-your-morning-too/ )is a core part of my day. It results in weight loss and muscle maintenance (or growth) with little or no exercise.
+		- What’s in it? High end coffee (lots of flavor there) Grass-fed butter or ghee 100% capric/caprylic MCT oil ( http://www.upgradedself.com/Brain-Upgrades/MCT-Oil/flypage.tpl.html is a custom-blended 100% capric/caprylic MCT, which is why it’s on my site…)
+		- The results? I put between 100 and 200 grams of carefully chosen fat in the coffee. I measure it with a digital scale. I drink it for breakfast by 8am and have no desire for anything else until about 2pm. The amount of fat doesn’t seem to affect weight loss – I lose fat when I have this drink no matter what I do, as long as I don’t mix it with carbs. A limited amount of xylitol in it doesn’t hurt, but too much slows, but doesn’t stop, the weight loss effect.
+		- — Reply
+		- Todd
+		- #4 20 June 2011 13:23
+		- Dave,
+		- What a great example of convergent evolution. Your Bulletproof Coffee is something very similar to what I came up with and wrote about on a few threads on Seth Roberts’ forum using the designation “platinum calories”: basically adding fats like coconut oil to coffee or tea being the preferred embodiment:http://boards.sethroberts.net/index.php?topic=2169.msg95534#msg95534http://boards.sethroberts.net/index.php?topic=7508.0
+		- I personally find coconut oil to be very energizing. It’s one of the few fats which I’ve found actually lowers blood glucose, no doubt due to the high MCT content:http://boards.sethroberts.net/index.php?topic=7511.0
+		- I’d be interested to know what key differences you’ve found between grass-fed butter or ghee, and coconut oil. I suppose the grass-fed butter would contain a certain amount of omega 3 fatty acids and a different profile of short chain saturated fats than would typical grain fed butter. Can this be linked to differences in weight loss and mental energy?
+		- — Reply
+		- justin
+		- #5 01 August 2011 09:01
+		- Dave — I don’t see the MCT oil ratio in your coffee. What do you think the mechanism is for weight loss? Is it appetite suppression (as with platinum calories per Todd) or something else?
+		- What I’m a bit perplexed by is how 900 – 1800 calories in fat (as with the 100gm to 200 gm taken in) can actually spur fat loss assuming normal meals are eaten the rest of the day. I’d have guessed that great deal of this dietary fat is stored via ASL
+		- http://high-fat-nutrition.blogspot.com/2008/05/weight-loss-when-its-hard.html
+		- What am I missing?
+		- — Reply
+			-
+		- Todd
+		- #6 01 August 2011 13:48
+		- Hi Justin,
+		- Just doing a math check here. For platinum calories, I advise about a tablespoon of an oil in your coffee or tea. A tablespoon of oil is about 15 grams or 120 calories. My experience is that 2 hot beverages a day is plenty. So that brings us to 240 platinum calories per day.
+		- I’m not sure how Dave gets to 100-200 grams of fat in his coffee. That’s about 10 tablespoons of fat, which seems to be overkill. In fact, coconut or MCT oil tends to make me feel “wired” if I consume more than two tablespoons, so I’d be flying and perspiring with all that high octane stuff!
+		- ASL is not involved in MCT oil metabolism. Coconut oil is not metabolized the same way as higher chain fats — it goes goes straight to the liver where is is oxidized and converted to energy. Those medium chain fatty acids will not end up in adipose tissue:
+		- http://www.shoppharmacycounter.com/news.aspx?showarticle=37
+		- — Reply
+		- Jim Stone
+		- #7 13 August 2011 15:29
+		- I’m wondering if you could de-condition by taking a favorite food and, every day for a month, take a serving of it and chew it up and spit it out until it’s gone. Then rinse your mouth out and don’t eat anything for an hour or so. A doughnut a day. A slice of pizza per day. Whatever. Perhaps this has already been suggested??
+		- — Reply
+		- Todd
+		- #8 13 August 2011 15:59
+		- Jim,
+		- Your idea is not at all far-fetched. Heidi, one of the key contributors to the forum for this blog had precisely that idea and developed it into what she calls the Non-Addictive Food Diet. It involves “enlightened tasting” or chewing and spitting out favorite foods, as you suggest. Heidi has found it useful in deconditioning food addictions, which she believes are very specfic. Each type of food requires separate deconditioning, according to Heidi.
+		- Take a look, I think you might find this interesting: http://forum.gettingstronger.org/index.php/topic,24.0.html
+		- Todd
+		- — Reply
+		- Susan
+		- #9 15 August 2011 12:46
+		- Interesting commentary and predictions re: SLD! I would like to try out your predictions however I am finding that SLD no longer “works” for me. The first time I did it, it worked amazingly well – total appetite suppression, lost a lot of weight very easily. Successive attempts not so great – some appetite suppression but still takes will power. Would you have any idea why it would work great the first time but not work with successive attempts? Tried same oil, different oils (I realize you said it shouldn’t make a difference though), same time windows, in fact now I do 2 hour windows around meals.
+		- — Reply
+		- Todd
+		- #10 15 August 2011 14:32
+		- Susan,
+		- From having participated in the SLD forums for a few years, I recall that many people had the same experience as you: SLD worked like a charm the first time, but not so well for repeat attempts. Some folks attribute that to increased sensitivity to even subtle tastes in the oil. Many have been able to succeed by complete blocking the sense of smell using noseclips or just pinching your nose while taking the oil, being sure to rinse well with water to remove any residual taste before unblocking the nose. So you might try that.
+		- My own view is that SLD is treating the symptoms, rather than the cause, of an overactive appetite. The oil or sugar water is rapidly supplying your bloodstream with fat or sugar to forestall an otherwise anticipated dip in fuel that would occur at normal meal times or in response to sensory cues. So you remain always dependent on this stealth dose of nutrients, which works so effectively because the lack of flavor keeps the hormonal insulin response to a minimum. But your body can still “learn” to expect the habitual dose of oil, even without the flavor, because there are other triggering cues associated with your “habit” of taking the oil. Thus, I think SLD is almost doomed to failure, unless you somehow keep the routine fresh by changing oils, times of day, social and environmental cues, or whatever. But the appetite center in your brain is pretty smart and will outwit you in the end.
+		- That is precisely why I developed the Deconditioning Diet, which uses cue exposure and intermittent fasting to rewire the neural circuits in the appetite center of your brain that mediate between sensory cues and your digestive hormones and enzymes. Some may find the process bizarre, but by changing your brain, it gives long lasting appetite suppression! And you cease being dependent on taking some external substance like oil.
+		- I never get hungry between meals anymore, and my appetite is half what it used to be, and I’ve kept off my 35 pound weight loss for more than a year now. You might consider trying it.
+		- Todd
+		- — Reply
+			-
+		- Susan
+		- #11 15 August 2011 21:48
+		- I think you are right – I feel like I am getting outwitted. I wonder why the diet works longterm for some people. With the Deconditioning Diet, do you get rock solid appetite suppression? Or are you just not hungry? The thing that was so amazing with SLD was the AS and lack of cravings…required zero will power.
+		- — Reply
+			-
+		- Todd
+		- #12 15 August 2011 23:03
+		- Susan,
+		- LIke any diet SLD works better for some people than others. YMMV, as they say. Probably has to do with sensitivity to flavors. I do recall the “rock solid appetite suppression” of SLD. For me, it was a strong effect that kicked in from Day One. The Deconditioning Diet is different. It takes a few weeks to really notice a signficant difference, and the first 3 or 4 days can be tough. And you don’t get the rock solid AS, it’s more of a waning of appetite, with occasional weak hunger. But what I noticed most is that when you do eat, you get full much more quickly, and you are stuffed on half the amount it used to take.
+		- Of course, I’m reporting my own experience and that of several others who’ve had the experience. But I do know one person who had less success with it, and whose hunger never really went away. Again– Your MIleage May Vary. You won’t know until you try it. But the greatest benefit of all is that if it works, you have made a permanent change to your appetite and eating habits, and it requires absolutely no special supplements, diet pills, oils, or special foods. All that has changed is YOU.
+		- Todd
+		- — Reply
+		- Susan
+		- #13 18 August 2011 09:51
+		- Oh how I wish I could get that rock solid AS back! Do you think it is a result of truly keeping flavor disassociated with the oil? In that case, wouldn’t one get rock solid AS always from the sugar water? Or do you think even in this case, eventually the brain will learn it’s nutrition (calories) and order up an insulin response?
+		- There is something different between the rock solid AS, and simply keeping hunger away. I can see how keeping blood sugar low and steady would suppress the appetite. I’ve done that before. But what is the key to that rock solid AS where you simply cannot eat another bite even if it’s your favorite food? Something that is not going to wear off with time. That is the holy grail.
+		- — Reply
+		- Todd
+		- #14 18 August 2011 20:06
+		- Susan,
+		- It’s really an excellent question that you ask: What is the difference between “rock solid appetite suppression”, where you cannot eat another bite, and merely keeping hunger at bay, where you could probably eat if tempted, but are fine not eating. I suspect that “rock solid AS” is most dependable when you have elevated levels of blood glucose or fatty acids in your bloodstream. This can come either from (1) actually eating a large meal, which causes insulin to rise and eventually suppress appetite once it reaches the appetite centers of your hypothalamus or (2) getting glucose or fatty acids into your bloodstream without raising insulin, by methods such as SLD. The second method is tricky because you have to find the fine balance between adding nutrients to your bloodsteam without provoking enough insulin to store those nutrients away and depleting the bloodstream, thereby triggering hunger. Thus the only surefire way to suppress appetite is to stuff yourself. SLD works only as long as brain doesn’t outwit it by becoming more sensitive to flavor or other cues.
+		- I don’t think that sugar water is in principle different than oil so long as you can avoid even the trace of flavor. But even without flavor, if the amount of sugar ingested is too high, for some people it could elicit a postprandial insulin response and lead to a reactive drop in blood glucose. For others, sugar will raise blood glucose without triggering excess insulin, so it will keep you satiated. A lot depends upon individual variations in insulin response. The basic difference is that those who are insulin resistance are more vulnerable to having appetite triggered by excess glucose. SLD will typically work best on those who are more insulin sensitive, and those who have not developed a learned response to subtle flavors or cues that come along with the oil or sugar.
+		- — Reply
+		- 4 Trackbacks/Pingbacks
+			- Around the Web, Food Reward Edition | Perfect Health Diet 04 06 11
+			- Around the Web, Food Reward Edition | Everything about HEALTH 21 06 11
+			- I am human. On the origins of OEM Human. | oemHuman •X 19 07 11
+			- Does tasty food make us fat? / Getting Stronger 09 09 11
+		- Add Your Comment
+		- Name
+		- Mail
+		- Website
+		- You must be logged in to post a video comment.Notify me of followup comments via e-mail. You can also subscribe without commenting.
+		- Notify me of follow-up comments by email.
+		- Notify me of new posts by email.
+	- Diets
+	    collapsed:: true
+		- Velocity Diet - Basically living on protein shakes, fish oil and flaxseed daily (http://velocity.t-nation.com/free_online..._diet_30). I have personally lost 12lbs in 2 weeks on this.
+		- Lyle McDonald's Rapid Fat Loss - pretty much surviving on small protein meals and calorie restriction (chicken breasts, cottage cheese, egg whites, turkey, limited vegetables etc)
+		- (Slightly less results but easier to survive)
+	- Make toffee gelatin for 1 mug
+	    collapsed:: true
+		- Cut up 2 leaves and soak in 50ml cold water for 5m. Melt by placing bowl over pan of gently simmering water (don't boil or won't set well) then add this to rest of quantity of water. OR heat the entire quantity of water and melt, stirring for 2m.
+	- How to Lose 20 lbs. of Fat in 30 Days… Written by Tim Ferris
+	    collapsed:: true
+		-
+			- How to Lose 20 lbs. of Fat in 30 Days… Written by Tim Ferris
+		- Physical Performance, The 4-Hour Body - 4HB, Uncategorized
+		- Fat Loss via Better Science and Simplicity
+		- It is possible to lose 20 lbs. of body fat in 30 days by optimizing any of three factors: exercise, diet, or drug/supplement regimen. I’ve seen the elite implementation of all three in working with professional athletes. In this post, we’ll explore what I refer to as the “slow-carb diet”.
+		- In the last six weeks, I have cut from about 180 lbs. to 165 lbs., while adding about 10 lbs. of muscle, which means I’ve lost about 25 lbs. of fat. This is the only diet besides the rather extreme Cyclical Ketogenic Diet (CKD) that has produced veins across my abdomen, which is the last place I lose fat (damn you, Scandinavian genetics). Here are the four simple rules I followed…
+		- Rule #1: Avoid “white” carbohydrates
+		- Avoid any carbohydrate that is — or can be — white. The following foods are thus prohibited, except for within 1.5 hours of finishing a resistance-training workout of at least 20 minutes in length: bread, rice, cereal, potatoes, pasta, and fried food with breading. If you avoid eating anything white, you’ll be safe.
+		- Rule #2: Eat the same few meals over and over again
+		- The most successful dieters, regardless of whether their goal is muscle gain or fat loss, eat the same few meals over and over again. Mix and match, constructing each meal with one from each of the three following groups:
+		- Proteins:
+		- Egg whites with one whole egg for flavor
+		- Chicken breast or thigh
+		- Grass-fed organic beef
+		- Pork
+		- Legumes:
+		- Lentils
+		- Black beans
+		- Pinto beans
+		- Vegetables:
+		- Spinach
+		- Asparagus
+		- Peas
+		- Mixed vegetables
+		- Eat as much as you like of the above food items. Just remember: keep it simple. Pick three or four meals and repeat them. Almost all restaurants can give you a salad or vegetables in place of french fries or potatoes. Surprisingly, I have found Mexican food, swapping out rice for vegetables, to be one of the cuisines most conducive to the “slow carb” diet.
+		- Most people who go on “low” carbohydrate diets complain of low energy and quit, not because such diets can’t work, but because they consume insufficient calories. A 1/2 cup of rice is 300 calories, whereas a 1/2 cup of spinach is 15 calories! Vegetables are not calorically dense, so it is critical that you add legumes for caloric load.
+		- Some athletes eat 6-8x per day to break up caloric load and avoid fat gain. I think this is ridiculously inconvenient. I eat 4x per day:
+		- 10am – breakfast
+		- 1pm – lunch
+		- 5pm – smaller second lunch
+		- 7:30-9pm – sports training
+		- 10pm – dinner
+		- 12am – glass of wine and Discovery Channel before bed
+		- Here are some of my meals that recur again and again:
+		- Scrambled Eggology pourable egg whites with one whole egg, black beans, and microwaved mixed vegetables
+		- Grass-fed organic beef, pinto beans, mixed vegetables, and extra guacamole (Mexican restaurant)
+		- Grass-fed organic beef (from Trader Joe’s), lentils, and mixed vegetables
+		- Rule #3: Don’t drink calories
+		- Drink massive quantities of water and as much unsweetened iced tea, tea, diet sodas, coffee (without white cream), or other no-calorie/low-calorie beverages as you like. Do not drink milk, normal soft drinks, or fruit juice. I’m a wine fanatic and have at least one glass of wine each evening, which I believe actually aids sports recovery and fat-loss. Recent research into resveratrol supports this.
+		- Rule #4: Take one day off per week
+		- I recommend Saturdays as your “Dieters Gone Wild” day. I am allowed to eat whatever I want on Saturdays, and I go out of my way to eat ice cream, Snickers, Take 5, and all of my other vices in excess. I make myself a little sick and don’t want to look at any of it for the rest of the week. Paradoxically, dramatically spiking caloric intake in this way once per week increases fat loss by ensuring that your metabolic rate (thyroid function, etc.) doesn’t down regulate from extended caloric restriction. That’s right: eating pure crap can help you lose fat. Welcome to Utopia.
+	- How to Use Intermittent Fasting to Eat Like a
+	    collapsed:: true
+		- A diet should not spoil your Thanksgiving, Christmas (or any other holiday for that matter). It is unacceptable for anyone to go for a damn salad while all your family are pigging out at the dinner table. If you see anyone do this I give you permission to give them a good, firm slap. I expect and require you to stuff your face with all the delicious treats that the holidays bring. If you don’t, you’re missing out for no good reason.
+		- Would you like to know how these ‘Leangains people’ seem to all be eating huge cheesecakes that obviously go way over daily calories? Want to know how I helped client Dick Talens (Fitocracy.com co-founder) nail the Pho Challenge 5000kCal noodle bowl this week when all his friends failed? Keep reading.
+		- Here I’ll share with you some of the strategies that I use with clients when they have an event where they know they’re going to ‘eat big’. Though I get very specific with timing for them, you should be able to follow these ideas and employ them and have success yourself, whether you are a user of IF / Leangains or not.
+		- I’ll start with the simplest ideas and then work towards more detailed strategies.
+		- Important points to bear in mind:
+			- You will gain weight. This will be water weight and it is temporary. The reason is simple, your body sucks in 3-4g of water for every gram of carbs that you eat. Don’t panic, it will come off in a week. (Anyone that does IF experiences a small version of this, as their weight fluctuates 1-2kg up and down with the regular fasts in the week.)
+			- The amount of weight gain you experience due to the carbs will depend on the individual. Don’t panic.
+			- The next day when you jump on the scales, grinning like an idiot, despite me telling you not to, you will panic and want to e-mail me. Don’t. Put your scales somewhere really, really inconvenient (throw them on the roof?) and get them out only one week later.The first two strategies I will introduce below are focused on getting the overall weekly calorie figure back in balance in a relatively painless way. The weekly figure is what is important, not the daily figure. We can do this either by pre-empting the feast (eating less before) or modifying afterwards.
+		- Strategy 1: The 24 hour fast, twice the following week.This is based on Brad Pilon’s “Eat. Stop. Eat.” method outlined in the excellent book of the same title on Intermittent Fasting.
+		- I’m going to assume none of you reading this are scared about losing muscle while fasting. If you are new to this idea then let me just assure you that all the research points to no loss in muscle mass during short-term fasting (<72hrs) in individuals that weight train. I recommend Brad’s book for more details & if you’re interested in getting really detailed then Martin Berkhan’s “Top Ten Fasting Myths Debunked” article is awesome. (Actually it is a must read if you are serious about nutrition fat loss and weight training. Don’t be left in the dark ages.)
+		- What you have to do:
+		- Fast for 24 hours, two days of the week after your feast. Simple as that. You don’t have to make it any further complicated than eating dinner one evening, and then not eating anything until the following evening and just keeping portion sizes the same.
+		- “Ah, but what about training?” I hear you say, “What about recovery? When is optimal?”
+		- Ok, let us use the example of someone that eats their last meal of the day at 8pm, has a Sunday feast planned, weight-trains on Monday, Wednesday and Friday, and plans to go totally wild on the Sunday.
+		- Fast on Sunday until the feast then pig-out. (You’ll have a big calorie buffer from eating only one meal this day.)
+			- Train as usual but make Monday the heaviest lifting day. (Squats or Deadlift)
+			- Eat as normal Monday.
+			- Your 8pm dinner on Monday will be your last meal for 24 hours so eat whole foods and plenty of green vegetables for slow absorption/digestion.
+			- Skip Tuesday’s first meal. (or two if you are a 3 meals-a-day person.)
+			- Eat the usual rest-day dinner at 8pm Tuesday but do not increase the calories of it.
+			- Eat as usual meals on your Wednesday training day.
+			- Fast on Thursday until your 8pm dinner as with Tuesday.
+			- Continue as normal from Friday.By doing this you will be able to eat every day, and you will keep most of your calories post-workout when you need it most.
+		- This should bring the calorie surplus you ate on the weekend into balance for the week. By how much? Well for those that eat ’3-square-meals’ a day you will miss 4 meals out of 21 for the week giving you over a whole day’s calories back. For those that eat two meals a day this will be one day’s calories.
+		- I do not recommend doing the two 24 hour fasts beforehand as this will encourage you to over-eat on the Sunday.
+		- Strategy 2: One 40 hour fast.Exactly as it sounds. Sounds scary yes, but bear with me. Why 40 hours? Well Leangains users will usually have a 16 hour fasting set-up. So this is just skipping an entire day of meals followed by keeping to the usual ‘feeding-window’ the following day.
+		- So what would this look like if your schedule is as mentioned above?
+			- Feast on Sunday and finish eating by 8pm. (Your usual ‘feeding-window’ end time.)
+			- Monday, eat nothing, don’t train.
+			- Tuesday, break your fast at 12pm, rest-day macros. (Your usual ‘feeding-window’ lunch time.)
+			- Wednesday resume training schedule.This is arguably mentally tougher to do than the Strategy 1, however the advantage is that you get it over and done with in one day.
+		- Strategy 3: How to win food challenges or make Christmas dinner ‘extra-super’ tasty.This is quite simply Strategy 2 but performed before the feast.
+			- Friday training should be a lighter day if possible as the recovery needs are less. (Perhaps the ‘pressing’ day.) Finish eating at 8pm as usual.
+			- Saturday eat nothing. Sip 10g of BCAAs 4 times (40g total) at regular intervals throughout the day. Note: This is me being highly conservative here. Leaner people have a higher risk of muscle catabolism during a fast. It may be a non-issue which is where I believe the research points, however if some someone has a suggestion about this, or link to a study proving this necessary/unnecessary, posting in the comments would be appreciated.
+			- Sunday, wake up and have another 10g of BCAA’s. 12pm eat the most delicious Christmas lunch ever.This is the exact strategy I used with Dick when he asked me how he could complete the Pho Challenge without screwing up his diet. This will encourage overeating. So unless this is your goal then it’s probably best to go with strategy 1 or 2.
+		- [](null)
+		- “Because I was used to Intermittent Fasting, the 40-hour fast was easy. I got the occasional hunger pain, but they quickly went away, and actually the morning of the challenge I wasn’t hungry at all. I was actually much hungrier a few hours after the Pho Challenge when I broke the fast, and that meal barely made a dent in my bodyfat levels.”
+		- Optional modification to minimize fat spill-over would be to train the morning of the feast. Deadlifts or a Squats for maximal glycogen depletion will give you more of a calorie buffer, as most of the carbs will be preferentially shuttled into the muscles and liver. If you do this then you’ll need to drink BCAAs to stop muscle catabolism. Check the ‘fasted training’ and ‘early-morning fasted training’ guides here for timing relevant to you.
+		- -This is the strategy I’m going to use to take Martin Berkhan’s cheesecake mastery crown this Wednesday, by eating 5 cheesecakes in a row and be crowned undisputed King Cheesecake eater of the world. Leangains people -bring it!
+		- Strategy 4: Pig-out in a smart way.For the feast go for meat (protein) first, then veggies to fill yourself up before jumping in on the potatoes, rice, pasta, cake etc. You’ll limit your fat storage spillover in this way.
+		- Martin Berkhan had this to say about cheat days:
+		- “In regards to the order which you eat your foods, I suggest mainly focusing on protein, fat and volume (i.e. veggies) first and then add carbs in later. In my personal experience, this tends to maximize both short-term and long-term satiety and reduce calorie intake later on. Fat has a latent effect on appetite-suppression, so eating more fat earlier on makes sense.”Fasting on the day up until ‘the big meal’ is probably the easiest thing to do for those that use the Leangains approach. For those that aren’t used to this then he recommends a small protein meal, (low fat, low carbs) to ‘keep you going’ earlier in the day.
+		- If you’re interested in reading further about the science behind this, and other useful tips I recommend his article, “Cheat Day Strategies For A Hedonist“.
+		- ConclusionSo there you have it, three strategies to get you through the holidays without screwing your abs/diet and one to earn respect and win money off your friends.
+		- Notice how I haven’t counted anything out here? That’s purposeful. Don’t stress things. The holiday season is meant to be fun. Enjoy it!
+		- Update 19th June 2013:
+		- The above strategies should only be used very occasionally. I don’t recommend you make adjustments to your diet in the days previous or post to correct a planned binge or accidental binge unless you are on a deadline. It leads to a slippery slope subconsciously where you start believing that you can correct mistakes, which encourages further indulgence and jeopardises diet adherence.
+- Cyborg
+    collapsed:: true
+	- ‘DIY Cyborg’ implants computer chip in arm to track vital signs
+	    collapsed:: true
+		- ‘DIY Cyborg’ implants computer chip in arm to track vital signs - NY Daily News
+		- Tim Cannon, creator of the Circadia 1.0, had the device implanted in his arm without a doctor or anesthetic. Such devices could eventually give people control of their own biological destiny.
+		- Biohacker Tim Cannon, gets the first-ever computer chip implant that can record and transmit his biometrical data.
+		- MotherboardTV via YouTube
+		- Biohacker Tim Cannon gets the first-ever computer chip implant that can record and transmit his biometrical data.
+		- Forget fitness trackers — the next step in the "quantified self" movement is going cyborg.
+		- American biohacker Tim Cannon has invented a device implanted under the skin that tracks and transmits vital signs, with the lofty purpose of prolonging human life.
+		- RELATED: ROBOHAND USES 3-D PRINTING TO REPLACE LOST DIGITS
+		- The Circadia 1.0 is about the size of a deck of cards and sits beneath the skin on Cannon's forearm.
+		- MotherboardTV via YouTube
+		- The Circadia 1.0 is about the size of a deck of cards and sits beneath the skin on Cannon's forearm.
+		- The Circadia 1.0, developed through Cannon's company Grindhouse Wetware, records his body temperature and transmits the data via Bluetooth to his Android tablet and other devices.
+		- Doctors won't implant the non-medical device, so Cannon had a fellow body modification enthusiast do it for him without anesthetics, Vice's Motherboard reported.
+		- RELATED: BIONIC EYE GIVES HOPE TO THE BLIND
+		- Cannon demonstrates how the device lights up beneath his skin.
+		- MotherboardTV via YouTube
+		- Cannon demonstrates how the device lights up beneath his skin.
+		- He will use the data "to determine if there are certain things that are causing my temperature to fall or rise," and set it up to send him a text if it thinks he's getting a fever.
+		- "I think that our environment should listen more accurately and more intuitively to what's happening in our body," Cannon told Vice. "So if, for example, I've had a stressful day, the Circadia will communicate that to my house and will prepare a nice relaxing atmosphere for when I get home: Dim the lights, let in a hot bath."
+		- RELATED: SCIENTISTS WORK TO GROW ORGANS FOR TRANSPLANTS
+		- The Circadia transmits temperature data to his tablet — and future versions are expected to track pulse.
+		- MotherboardTV via YouTube
+		- The Circadia transmits temperature data to his tablet — and future versions are expected to track pulse.
+		- The device's only other function is the neat trick of lighting up Cannon's forearm tattoo, but he says the company is already working on the next iteration. The next phase of the Circadia will also track pulse, and will come in other shapes and sizes than the deck-of-cards-sized device that currently sits beneath the surface of his arm.
+		- The Circadia will be available for sale in the coming months, priced at around $500, Vice reported.
+		- Cannon is part of an international community of "biohackers," whose goal is to overcome the body's physical limits.
+		- Other cyborg-like developments could include artificial organs and brain implants that raise IQ.
+		- "The human body is really failing in almost every way," Cannon told Vice. "I want to live to be a thousand years old. I don't want to die. I don't understand why anybody would."
+		- tmiller@nydailynews.com
+	- The Ultimate Quantified-Self Device Already Exists: A Defibrillator
+	    collapsed:: true
+		- tracks heart rate, blood pressure, activity level, sleep patterns, weight, respiration
+	- https://en.wikipedia.org/wiki/Grinder_(biohacking)
+	- Bottlenose (Tactile detection of distant objects)
+	    collapsed:: true
+		- Home | About | Projects | Contact | Resources
+		- Bottlenose v0.1
+		- The Bottlenose takes in a large range of data such as sonar, UV, wi-fi and thermal information and translates it to a magnetic field via induction where it interacts with an implanted magnet (usually in the finger).
+		- Grindhouse Wetwares also provides a haptic version of the Bottlenose, which does not require a magnet implant. The haptic model vibrates with varying intensity in the presence of sensory information. Any sensor can be substituted or added to the provided kit - instructions on how to do this is provided in the video to the right.
+		- If you are interested in Bottlenose, navigate to the donations page.
+	- Magnetic implant
+	    collapsed:: true
+		- collaborate.biohack.me: Magnetic Implant Questions
+			- Q. Where can I get me some magnets?
+			- A. Well, one way would be to start a thread on the biohack.me forum under "Group-buy" asking for volunteers to share a batch of magnets that you buy, or to volunteer for someone else's group buy. If you want to get them on your own, you should be able to get some from V&P Scientific or magnets4less.
+			- Q: Where can I get neodymium magnets for implantation?
+			- A: First of all, for legal reasons, we cannot send you magnets when you specifically request them for that purpose. If you accidentally hurt yourself performing the procedure, we want to make sure we can't be held legally responsible.
+			- As for where to get the magnets, one such place is on this forum. We have previously organised a successful group buy of magnets, and if you wish to organise one of your own, you may post on the discussion forum under the category "Group-buy".
+			- Failing that, you should try either Steve Haworth's website, or else there is this supplier in Germany. If all else fails, you can get some neodymium magnets without coating fairly cheaply, but before implantation you must coat them with something bioproof, preferably hot glue or a silicone rubber called Sugru.
+			- Q. How do I get these things inside of me?
+			- A. You can find a list of piercers willing to do it at the wiki page on that subject.
+			- Q. Do these magnets erase hard drives/credit cards/whatever?
+			- A. No. The idea that magnets can erase hard drives or credit cards is actually a partial myth, in the sense that while it is possible for a magnetic field to erase these things, the field required to do this is out of the range of any household magnet, and far out of the range of the implants. If you're really concerned about your hard drive and don't want to take even this slim risk, solid state drives are another option, though an expensive one.
+			- Q. What happens if I get a MRI scan?
+			- A. Good question. It was originally thought that the MRI would rip an implant out of your finger (ouch!), but a few people have gotten MRI scans with the implants, with no ill effects. In fact, it's probably more likely for the implant's vibrations to cook your insides than for it to be ripped out (which I'm sure is very comforting). However, MRI technicians make a living out of covering up things that might cause problems, so there shouldn't be too much of a problem if you tell them about your implant. A MRI scan isn't an emergency procedure, so there's no chance that you'll be unconscious and unable to tell the technicians about the implant before the scan.
+			- Q. How likely is it that the implant will demagnetize in my lifetime?
+			- A. Not very. Ordinary magnets take thousands of years to demagnetize completely, and these neodymium ones should take even longer.
+			- Q. What are the advantages and disadvantages of different implant sizes and shapes?
+			- A. This is still a bit controversial, and there's not much of a consensus. There've been arguments on both sides of the size debate, ranging from things like sensitivity to likelihood of rejection to pain. Same thing with shape; usually, disk-shaped implants are used, but there have been recent attempts at using cylindrical ones.
+			- Q. Can I put an implant in my [insert body part here]?
+			- A. If you want to gain the "magnetic vision" sense, then the fingertips and the genitals are the only places they've been demonstrated to work. The lips are also a possibility, but this hasn't really been demonstrated.
+			- Q. Can I attach a magnet to a bone to keep it from moving around too much?
+			- A. We really suggest you don't mess around with/close to your bones, unless you really know what you're doing. Bones are covered in a sensitive skin and messing with them can really go wrong.
+			- Last edited 2012-11-21 00:10 UTC by iexiak (diff)
+		- Diary
+			- Diary of a Cyborg-Lite
+			- Recently Olivia received her first magnet implant becoming the first female in our organization to have one. Congrats Liv!!
+			- She recorded her healing process for us to refer back to and for the public to have a recorded first hand experience of her first week as a "cyborg-lite."
+			- Day 1 3/17/13-Sunday
+			- The procedure wasn’t too bad, not that I would ever go through that for many things. I’d say the pain was comparative to an entire session of getting a tattoo felt in a matter of 2 minutes. It sucked, but totally worth it.
+			- After the procedure, I started to feel the magnet getting situated in the skin. It felt like it was “turning.” I could feel the trauma that had just been administered, but in a way of the profound change is happening, not in a pain sense. After a few hours I tried out the microwave. That was a pretty cool feeling. I was able to feel it about 3-4 inches out from the side of it. I also tried bottlenose later in the day. Bottlenose was really awesome. The only thing was I was now able to understand the lag the guys were talking about. When I was scanning around the room and I was unable to sweep too fast because of the lag. I was able to locate Shawn and mike in the same room as me.
+				- The last big thing I experienced was what I call, the “grinder handshake.” The wonderful thing about having my right hand done is I can match my hand up with people who have their magnet in their left hand. Most people have their left hand done because of that whole being right handed thing. It was a whole different feeling. Instead of having a tingly feeling, I felt a repulsion from their finger. It felt really cool. I would have loved to play more but my finger started getting really sore after playing with all the different fields. The soreness felt like my finger was exhausted. I speculate that the exhaustion was due in part to the trauma occurring around the area, but also I think my brain was exhausted of learning the correlation of the new sense in relation to magnitude and distance of various objects. The power brick for my laptop’s charger felt like the EM field bit me when I accidentally grabbed it instead of my phone. It was a very weird sensation. Speaking of phones, my phone seems to give off a low field by the speakers and across the middle where the HTC logo is written. Hopefully this means I can find my phone in my purse finally. I am considering getting something that would emit a low field for my keys, and then I would always find shit in my purse. I left Tim’s house at about 11 to hang out with Emily.
+			- Day 2 3/18/13-Monday
+			- At around 2am Emily and I went to my place and I tried out my magnet a few times, but it was still very sore and did not enjoy entering fields. They tingled too much. I tried out a few things I was curious about though. I remember Shawn saying he was able to feel a field from our fan in the living room, so I tried it out but with no success. Sometimes it is hard to tell if I am in a field or if my finger is just throbbing. The bruising has gotten worse since yesterday, but I speculate it’s not so much bruising as just blood under the skin from where piercer Tim held my finger. I don’t feel like I lost any sensitivity from yesterday, maybe a little bit by the end of the day. I also was able to find a field on my computer. It is extremely subtle, but I think I would prefer it that way for my computer. Typing is hard today. My finger is healing nicely. The scar seems to be minimal so far. Stitches are very annoying and I am bandaging it up whenever I go out or am using my finger extensively. I am unable to stretch my finger out all the way or push on my finger from the mini knuckle and up.
+			- Day 3 3/19/13- Tuesday
+			- Missa took me to the bus station at 6:40am. I was playing with my phone while on the bus and I seem to have lost a lot of sensitivity. I am barely able to feel it, but this also indicates that things are healing quite nicely. These stitches really interfere with everything. Last night I had Missa trim the ends. They were catching on everything. I’ve bumped my finger a few times today, while grabbing my suitcase and backpack and stuff. The bumping didn’t hurt too badly though. My magnet seems to be nicely snuggled in there. Well done Tim! I checked the metro card machine, but didn’t feel anything. When I was in the deli around the corner from Mike’s place, the lottery scanner gave off a nice little field though. I feel like today was a profound day in identifying my magnet as part of me. Even with the decreased sensitivity, I’ve started identifying my magnet as a part of me. I am collecting data about the world around me. I don’t have the neural pathways built to translate the majority of data I am able to collect though. Nonetheless I am more than human. I have the ability to assess my environment and come to a decision based on more information. I have a clearer picture of the world. With this comes a bittersweet realization. The realization of how blind we are to our environment. There is so much that exists about where I live, the things I come in contact with, the air surrounding me and I am only able to get this small little glimpse of what is going on. I feel so blind, but in a humbling matter. It reminds me constantly of the work that needs to be done to progress humanity’s curious mind. I can’t wait for the future! :-D
+			- Day 4 3/20 Tuesday
+			- Today was incredible! When I entered the Penn Station near the strip of shops, I felt fields everywhere, intensely strong fields! Up to this point, I had never been unable to take my hand out of a field. At the station, my entire body was in fields, overlapping other fields, and no matter where I placed my finger I was still in this extremely strong field. I recommend this location for anybody with a magnet. It was wild.
+			- Lucas and I took the LIRR to Stony Brook. During the train ride, my finger would randomly “go off” when I was clearly not near a field. I’m not sure if this was related to the fields in the station leaving behind a sensory overload, causing random sensations or if this was just part of the recovery. Either way, it was an interesting experience. When we arrived at Stony Brook, I was ready to try out anything I came in contact with. I started off the math building, but there wasn’t too much there. One of the vending machines gave me a slight kick, but nothing too crazy. Next, I traveled to the gym. I just went to the lobby to charge my phone for a bit, but when my hand passed over the TV, I feel a lazy field being emitted. As far as I had experienced, I hadn’t found that newer TVs gave off anything. This makes me question if something was inefficient or broken in the circuitry. If so, I totally feel like an appliance whisperer. Afterwards I headed over to the chemistry building. I went up to the chem library where they had those devices that make sure you don’t steal any books when you leave, I’m not sure what they are called, but they look like metal detectors. The guys were pretty cool. I was actually scared at first to enter, so I didn't take my time walking through, but my finger didn't freak out, so I left and explored a little bit, and noticed a field being emitted from a small white square near the middle. It was a pleasant field. Some fields are just the right amount of intensity and I feel like they have different “patterns” that I can feel. It’s hard to explain, but each field has a unique pattern to it. Also like a bar code, but it’s very subtle and takes many interactions to start to notice most. This one was different, and I had a pleasant feeling from it. Next building was the Biology building. I liked the building for aesthetic reasons and because of my love for bio, but the only field I felt was when I plugged my phone in again. I wondered if this was a false alarm just due to recovery.
+			- I’m still unable to follow fields when I get quick grabs from them. By this point, my finger was quite sore and tired. I stopped looking for fields so I could recover, except when I went through Penn station again, but after that I stopped. The bruising seems to pretty much be done with though. I can see that the entire scar is healed over on the surface. It actually looks like my stitches traveled about 1mm towards the scar, which I found interesting. I guess it was compensation for the extra volume of the magnet. I would say today was the first day I was not aware I had a magnet due to pain. I am still bandaging it every time I go out or sleep.
+			- Day 5 3/21/13 Thursday
+			- Today was actually kind of a boring magnet day. I felt almost nothing. This is probably in part to all the fields experienced yesterday, along with the natural recovery process. It was nice though. I used the day to try to understand what different fields feel like and why. I also had a chat with Mike about his experience and how it all went down for him. It was nice hearing somebody else’s story and seeing how they experience compares to each other. For instance, trains were literally painful for him, while I found them amazing. Mike got 4 magnets implanted at once and he also has some of the largest around. I believe his are twice my size. I hope tomorrow will bring about many adventures.
+			- Day 6 3/22/13 Friday
+			- I haven’t had the opportunity to feel too many fields today. I did turn on the microwave to see if any difference in sensitivity exists. I would say it was slightly less intense, but this could be negligible based on differing power emitted by various microwaves. I have been getting a lot of “phantom fields.” This is when I am aware that there is no field surrounding me, but I am still experiencing the sensation of being in contact with an EM field. My healing seems to be going swimmingly. I can see about a 2mm trial when my stitches have traveled closer to the point of incision, but it looks to be healing fine and this is perfectly normal. Aside from the stitches being a pain in the ass when I bump things, I have no pain throughout the rest of my finger.
+			- Day 7 3/23/13 Saturday
+			- I pretty much rode a bus all day. I did not have the opportunity to experience any new fields during this time. Although later in the day, I once again tested out the field strength of a microwave and was able to feel a much “thicker” wave than before. This is a microwave that I originally tested my magnet on, so I am positive that I am actually becoming more sensitive! I was feeling a little ballsy today and decided to try to pick up an object with my magnet. I found a staple and had no problem picking it up. I was able to feel the pull between the staple and my magnet. I also tried to pick up a small screw but was unable to lift the screw off the table. I did still experience the pull feeling from the screw though. I can’t wait to try this after I get my stitches out. I did put up a sweet new picture in instagram of it too J
+			- Day 8 3/24/13 Sunday
+			- I tried out the same microwave again this morning and I would say it felt about the same intensity as the day before. I think I’m ready to get my stitches out, but just to be safe I will keep this annoying thing in until Wednesday, when I reach day 10 of being a cyborg-lite. The grindhouse guys have a magnet shaped like a Hershey’s kiss that, although a little too strong for my current state, was really fun to play with. I was able to push it around the table without touching the object. That was really cool. I plan on putting up a video later on it. The pull I feel from it is extremely strong and I can tell that it makes my finger feel uncomfortable when I get near it. Aside from some slight magnet play, I did not have any new magnet revelations today. Healing is still going well. I don’t feel any pain and am able to touch my suture without my pain at all. Once again, I will still wait until Wednesday to take them out to be safe.
+			- Day 9 3/25/13 Monday
+			- Today was my first day back to work since my vacation L I was able to show off to everybody my new powers. I was able to find a field in a coworker’s iPhone and another coworker’s HTC. The HTC phone I felt it in the speaker area. When I was on the elevator the call box’s speaker also had something I felt. It was hard to say if it was more of a pull of a field felt though. It was very subtle and people were getting in the elevator, so my curiosity time was over. Staples were of no issue getting picked up and actually became my new bored activity at work. I try to see how many staple I can pick up at once. The answer is 3, but I suspect I could pick up more if this stitch wasn't in my way.
+	- Eye-implant - take photos auto,
+	- Wetware
+	    collapsed:: true
+		- PROJECTS
+			- FINGERBORG
+			    collapsed:: true
+				- The fingerborg project consists in extending the senses of a multimedia student who lost a finger in an accident. The first fingerborg prototype consisted of a prosthetic finger with a miniature camera inside that allowed him to film and take pictures with his own. The aim of the project is to upgrade the current fingerborg to one that allows him to receive direct feedback from the camera to his hand.
+			- SPEEDBORG
+			    collapsed:: true
+				- Internal radar that allows you to perceive the exact speed of movements in front of you via vibrations. First prototypes were attached to the hand (2007-2009) followed by others attached to the earlobes.
+			- EYEBORG
+			    collapsed:: true
+				- Cybernetic eye that allows you to hear colours from infrared to ultraviolet. The current eye is based on a chip that transmits sounds via bone conduction. The first eyeborg was created by Adam Montandon in collaboration with Neil in 2003 and consisted of a webcam, a wearable computer and a pair of headphones. The aim of the project is to surgically implant the electronic eye's sound output inside Harbisson's skull.
+			- 360º SENSORY EXTENSION
+			    collapsed:: true
+				- The project consists in extending human perception to 360º by adding sensors at the back of choreographer Moon Ribas' head that vibrate when someone approaches her from behind. The first prototype consisted of a pair of earings with movement sensors at the back. The earings allowed her to feel a vibration on her left ear if someone was standing somewhere behind her left, and a vibration on her right ear if someone was standing somewhere behind her right.
+	- DIYbio
+	    collapsed:: true
+		- Editor's Blog
+		- DIY Bio: A Growing Movement Takes on Aging
+		- By: Parijata Mackey
+		- Published: January 22, 2010
+		- See Also
+			- h+ Magazine Current Issue
+			- DIY Bio: Meredith Patterson Interview
+			- ACLU v. The Gene Patents
+			- Masters of Synthetic Life
+		- A movement is growing quietly, steadily, and with great speed. In basements, attics, garages, and living rooms, amateurs and professionals alike are moving steadily towards disparate though unified goals. They come home from work or school and transform into biologists: do-it-yourself biologists, to be exact.
+		- DIYbiology (“DIYbio”) is a homegrown synthesis of software, hardware, and wetware. In the tradition of homebrew computing and in the spirit of the Make space (best typified by o‘Reilly‘s Make Magazine), these DIYers hack much more than software and electronics. These biohackers build their own laboratory equipment, write their own code (computer and genetic) and design their own biological systems. They engineer tissue, purify proteins, extract nucleic acids and alter the genome itself. Whereas typical laboratory experiments can run from tens-of-thousands to millions of dollars, many DIYers knowledge of these fields is so complete that the best among them design and conduct their own experiments at stunningly low costs. With adequate knowledge and ingenuity, DIYbiologists can build equipment and run experiments on a hobbyist‘s budget. As the movement evolves, cooperatives are also springing up where hobbyists are pooling resources and creating “hacker spaces” and clubs to further reduce costs, share knowledge and boost morale.
+		- submit
+		- reddit
+		- This movement, still embryonic, could become a monster — a proper rival to industry, government, and academic labs. The expertise needed to make serious breakthroughs on a regular basis at home hasn‘t yet reached a critical mass, but there are good reasons to believe that this day will soon come.
+		- Software
+		- Image courtesy: bioperl.org
+		- DIYbio software has been around for a long time. Folding@home, which came out of Professor vinjay Pande‘s group at Stanford Chemistry Department in 2000, is designed to perform computationally intensive simulations of protein folding and other molecular dynamics. FAH, as it‘s known, is now considered the most powerful distributed computing cluster in the world. Open source software for bioinformatics, computational neuroscience, and computational biology is plentiful and continues to grow. On their own time, students, professors, entrepreneurs, and curious amateurs contribute to open source work that captures their interests. BioPerl and BioPython have hundreds of contributors and tens of thousands of users. Programs like GENESIS and NEURON have been downloaded by computational neuroscientists for over twenty years.
+		- The software part is easy. The FOSS/OSS machine is well established, and has been successful for a long time. As the shift to open source software continues, computational biology will become even more accessible, and even more powerful. (Red Hat has recently asked the US Supreme Court to bar all software patents, submitting an amicus brief to the Supreme Court in the “Bilski case.” See Resources.)
+		- Hardware
+		- Biological research is expensive. Microscopes, pipetmen, PCR machines, polyacrylamide gels, synthesizers — basics for any molecular biology lab — run from hundreds to thousands of dollars apiece. Traditional experiments cost hundreds-of-thousands to millions of dollars to conduct. How can the hobbyist afford this equipment? Unless “Joe (or Jill) the DIYBiologist” is extremely wealthy, they can‘t. So instead of purchasing brand new equipment, DIYers like to find good deals at auction sites like eBay or Dovebid, refurbish discarded equipment from labs or biotech companies, or — more and more frequently — build it themselves.
+		- Hardware hacking has a rich history, filled with geek heroes, and these skills are being turned towards the creation of biotech equipment. On the bleeding edge of it all, some DIYbiologists are applying their skills to h+ technologies. SENS researchers John Schloendorn, Tim Webb, and Kent Kemmish are conducting life-extension research for the SENS Foundation, building equipment for longevity research, saving thousands of dollars doing it themselves.
+		- Stem cell extraction and manipulation, DIY prosthetics, DIY neural prosthetics, sensory enhancements, immune system testing, general tweaking of whatever system strikes the hobbyist‘s fancy.
+		- The DIY SENS lab is headed by PhD candidate John Schloendorn. John is a last- year PhD student at Arizona State University. He volunteers full time for the SENS Foundation. Entering his lab was a mind-blowing experience. The ceilings were high, the lab itself was spacious and well-lit. It smelled of sawdust, the product of constructing the furniture on site. The equipment was handmade, but brilliantly so. Elegance and function were clear priorities. When a panel could be replaced with a tinted membrane, it was. When metal could be replaced by sanded wood, it was. The on-site laser was modified from a tattoo-removal system. Costs were down, but the technical skill involved in manufacturing was top notch.
+		- In addition to his own experiments, Schloendorn is building an incubator (no pun intended) for DIYbio engineers who work on fighting death.
+		- Schloendorn tells me that working by ourselves might only take us so far, but thinks it‘s a great place to start (many successful discoveries and businesses were founded in someone‘s garage). He believes that being a DIYer doesn‘t mean you must “go it alone,” but can include cooperation and teamwork. He cautions that since time and effort are limited, DIYers must choose carefully what they‘re going to work on and do that which is most important for them. His personal priority is to solve parts of the aging question, and he‘d obviously like many other DIYers to take up this challenge. “I wanted to make a dent in the suffering and death caused by aging. It seemed like the SENS people were the smartest, most resourceful and best organized among those ambitious enough. Of course, there are also DIYers with no ambitions to save the world, who are content to ‘make yogurt glow‘ in the basement for their own personal satisfaction.”
+		- The DIYbio community has a high-traffic mailing list, where projects are discussed, designs shared, and questions asked or answered. The community has worked on dozens of DIY designs: gel electrophoresis techniques, PCR machines, alternative dyes and gels, light microscopes, and DNA extraction techniques. All of them focus on enabling cheap and effective science.
+		- Wetware
+		- DNA
+		- The most popular conception of wetware is the genome — the language of life, the ultimate hackable code. Genetic engineering and (more recently) synthetic biology are the hallmarks of this effort. Synthetic biology takes genetic engineering and builds it into a scalable engineering framework. It is the synthesis of complex, biologically-based (or inspired) systems that display functions that do not exist in nature. In synthetic biology, genetic code is abstracted into chunks, colloquially known as biological “parts.” These parts allow us to build increasingly complex systems: putting several parts together creates a “device” that is regulated by start codons, stop codons, restriction sites, and similar coding regions known as “features.” (Visit MIT‘s Standard Registry of Biological Parts for more detailed information, and tutorials on how to make your own biological part.)
+		- These parts are primarily designed by undergraduates competing in the International Genetically Engineered Machine (iGEM) competition, the largest student synthetic biology symposium. At the beginning of the summer, student teams are given a kit of biological parts from the Registry of Standard Biological Parts. Working at their own schools over the summer, they use these parts, and new parts of their own design, to build biological systems and operate them in living cells.
+		- Randy Rettberg, director of the iGEM competition, says that iGEM is addressing the question: “Can simple biological systems be built from standard, interchangeable parts and operated in living cells? Or is biology just too complicated to be engineered in this way?” The broader goals of iGEM include enabling the systematic engineering of biology, promoting the open and transparent development of tools for engineering biology, and helping to construct a society that can productively apply biological technology.
+		- If this sounds suspiciously like a front for DIYbio, that‘s probably because it is. In addition to attracting the brightest young minds to the critical field of molecular biology, many of the founders of iGEM, including Drew Endy at Stanford, Tom Knight at MIT, and DIYbio-rep Mac Cowell are heavily involved in or supportive of the DIYbio community. The recent introduction of iGEM teams unaffiliated with universities (“DIYgem”) is a step towards an inclusive community, allowing anyone with the brain and the drive to participate at the level of academics.
+		- So many seeking, Around lampposts of today, Change is on the wind. — Unknown
+		- Mainstream science is increasingly friendly to DIYbio. DIYbiologist Jason Bobe works on George Church‘s Personal Genome Project (PGP), which shares and supports DIYbio‘s drive to make human genome data available for anyone to use.
+		- How to get involved
+		- Join the DIYbio mailing list (see Resources). Anyone can join and it‘s the best way to begin your involvement with DIYbio. You‘ll want to check out their DIYbio forums, which are growing rapidly. You can also find a local group there and connect with like-minded DIYers. Have a look around the DIYbio.org site, which lists some of the current projects:
+		- BioWeatherMaps: “Self-Assembly Required”
+		- Flash mobs meet consumer-generated science in the new DIYbio initiative Flashlabs, where they‘ll be pulling-off a new large-scale collaborative science project annually for amateurs and enthusiasts worldwide. Case in point — the BioWeatherMap initiative is a "global, grassroots, distributed environmental sensing effort aimed at answering some very basic questions about the geographic and temporal distribution patterns of microbial life."
+		- SKDB: “Apt-Get for Real Stuff (Hardware)”
+		- Skdb is a free and open source hardware package management system. The idea is to let the user “make” a project by using all of the packaged hardware out on the web, so that the wheel isn‘t reinvented every time a new project is started. The package includes milling machines, gel boxes, semiconductor manufacturing processes, fabratories, robot armies, wetlab protocols... everything. At the moment, they‘re working on OpenCASCADE integration. Package maintainers from the DIYbio and open manufacturing communities assist others in bringing in projects into the system.
+		- Smartlab: “Taking the Work out of Benchwork”
+		- Project Smartlab is aiming to build hardware to augment the benchtop science experience. This includes automatic data logging instruments with painless electronic lab book integration, video streaming with “instant replay” features for those “did-I-just-pipette-that-into-the-wrong-tube” moments, and interactive protocol libraries that guide new scientists and the scientifically enthusiastic alike through tricky protocols.
+		- The Pearl Gel Box: “A Built-In Transilluminator and Casting Box for $199!”
+		- Want to get a jump start in DIYbio? The gel electrophoresis box is a basic tool for any DIYbiologist — and they‘re making kits so you can build your own. The Pearl Gel Box is cutting edge, open-source, and cheap. The participants in this project have created a professional grade gel box, available fully assembled or as free design documents. Plus, they want you to design new features like a built-in light filter or a mount for your digital cam.
+	- EMERGING TECHNOLOGIES
+	    collapsed:: true
+		- Ray Kurzweil made many predictions for future of technology/immortality
+		- > find a way to profit off of emerging technologies?
+		- BIONICS
+		- - bionic limbs can be improved upon, they are an opportunity to reach and surpass human prowess
+		- understand human biology to improve on it with synthetics
+		- - it improves time rather than degenerates with time
+		- Exoskeletons to reduce hip and leg damage/pressure from cardio
+		- Currently - it could be advantageous in old age to have bionic lower leg
+		- > in 10 years neural system can connect so you 'feel' sensations of sand over feet
+	- Futurism
+	    collapsed:: true
+		- Touch or spatial-location aware gaming
+		- Mouse cursor control through mind or moving hands
+		- Samsung smart window
+		- Smart digital mirror
+		- Augmented technology visor or glasses
+	- grinding.be
+	- Harvesting clones
+	    collapsed:: true
+		- best plan of action: 1) get rich e.g. $1 mil 2) get a good cloning lab and cloning business 3) start doing stem cell therapy 4) impregnate girls with clones
+		- http://www.lifeissues.net/writers/tayl/tayl_02reprotechnology.html
+		- therapeutic cloning or somatic cell nuclear transfer (SCNT). In SCNT, the donated eggs, normally used in IVF, would instead be emptied of their donor's DNA, and the DNA from a patient's skin or muscle cell would be injected, creating a "delayed twin" of that patient, a clone. This clone (as much a human being as the original) would be allowed to develop to a certain stage. Then it would be destroyed in order to harvest cells or organs that researchers say will be a genetic match for the original patient.
+		- http://en.wikipedia.org/wiki/Somatic_cell_nuclear_transfer#SCNT_in_Reproductive_Cloning
+		- (1:02:22 AM) Aaron: if you pay enough mouths to be quiet it can be done
+		- (1:02:40 AM) Aaron: first get a willing surrogate mother
+		- (1:03:04 AM) Aaron: then a IVF specialist
+		- (1:03:24 AM) Aaron: who can perform SCNT
+		- new tech
+		- http://en.wikipedia.org/wiki/Human_cloning#Induced_pluripotent_stem_cells_.28iPSCs.29
+	- Neurostimulation - Wikipedia, the free encyclopedia
+	- Technology`
+	    collapsed:: true
+		- by time kids are x old, they've logged 10k hours on video games + how much porn
+		- digitally rewires their brain so they are very hedonistic and not focused on deferring gratification
+		- - can't sit on schools because its passive, its boring, they cant change curriculum
+		- people say watches are a single function device
+		- - people get angry at downloading music as well as booting up computer, both of which take less than a minute
+		- - technology gets us trying to maximise every second
+		- > much more present orientated and hedonistic rather than deferring
+	- The Hedonistic Imperative: Table Of Contents
+	    collapsed:: true
+		- https://www.hedweb.com/hedethic/tabconhi.htm
+		- "...our genetically-enriched descendants are likely to view us as little better than psychopaths. For the role of key receptor sub-types of the 'civilising neurotransmitter' serotonin, the 'hormone of love' oxytocin, and the 'chocolate amphetamine' phenylethylamine, needs to be radically enhanced. When naturally loved-up and blissed-out on a richer cocktail of biochemicals than today, our post-human successors will be able, not just to love everyone, but to be perpetually in love with everyone as well.
+		- ABSTRACT
+		- INTRODUCTION
+			- 0.1 The Naturalisation of Heaven
+			- 0.2 Saving Vehicles With Bad Drivers
+			- 0.3 Humans Are Not Rats
+			- 0.4 Life In Dopaminergic Overdrive
+		- HOW?
+			- 1.0 Sabotage At The Mill
+			- 1.1 The Biological Program
+			- 1.2 Pumping Up The Volume
+			- 1.3 The Civilising Neurotransmitter
+			- 1.4 The Cardinal Importance Of Delayed Gratification
+			- 1.5 The Molecular Genetics Of Paradise
+			- 1.6 The Re-encephalisation Of Emotion
+			- 1.7 How Could Anything Be So Good?
+			- 1.8 All We Need Is Love?
+			- 1.9 The Taste Of Depravity
+			- 1.10 On The Misguided Romanticisation Of Feline Psychopaths
+			- 1.11 The Last Twisted Molecule On Earth?
+			- 1.12 The Persistence Of Hard-Core Porn
+			- 1.13 The Growing Pleasures Of Homunculi
+			- 1.14 Post-Perceptual Consciousness?
+		- paradise-engineering
+		- WHY?
+			- 2.0 The Psychology Of Armchair Hedonism
+			- 2.1 How To Contemplate An Introspective Void
+			- 2.2 The Importance Of Banality
+			- 2.3 Vacuous Desires
+			- 2.4 A Dirty Window On The Soul
+			- 2.5 Let's Get Rational
+			- 2.6 The Morality Of Happiness
+			- 2.7 Why Be Negative?
+			- 2.8 The Moral Panacea
+			- 2.9 The Significance Of An Empirical Correlation
+			- 2.10 A Tough-Minded Scientist Replies
+			- 2.11 The Selection Of Mysterious Reds
+			- 2.12 The Formal Successes Of Scientific Triumphalism
+			- 2.13 The Naturalisation Of Value
+			- 2.14 Four Deadly Objections?
+			- 2.15 Alone Amongst The Zombies
+			- 2.16 The Perils Of Idle Scepticism
+			- 2.17 The Price Of Inner Demons
+			- 2.18 Can We All Be Really Good?
+			- 2.19 Equivocal Values
+			- 2.20 Good Vibrations: The Value Of String
+			- extending the circle of compassion
+		- WHEN?
+			- 3.0 Our Emotional Future
+			- 3.1 Hedonism After The War
+			- 3.2 On Why We Need Better Drug Pushers
+			- 3.3 Good Code Gets Better
+			- 3.4 The Death-Spasms Of Peripheralism
+			- 3.5 And Yet It Still Grinds
+			- 3.6 The Technology Of Shop-Soiled Utopias
+			- 3.7 Living In The Real World
+		- The Good Drug Guide
+		- OBJECTIONS
+			- 4.0 ...impossible because happiness depends on contrast with sadness...
+			- 4.1 ...brain too complex...negative feedback mechanisms...
+			- 4.2 ...we'd just die out...gruesome fate of intra-cranially self-stimulating rats...
+			- 4.3 ...manifesto flawed by reductionist approach to the human soul...
+			- 4.4 ...unanticipated side-effects...thalidomide...
+			- 4.5 ...would need widespread animal-testing...inconsistent with the manifesto's animal welfarism...
+			- 4.6 ...unnatural...
+			- 4.7 ...perpetual happiness is boring...need for variety...
+			- 4.8 ...happiness should be rationally justifiable...
+			- 4.9 ...to be forced into chemically-driven happiness is wrong...false happiness...freedom to be unhappy is important...
+			- 4.10 ...would turn us into junkies...
+			- 4.11 ...one can sometimes like being sad...too precious to lose...
+			- 4.12 ...would eliminate personal development...lead to stasis...
+			- 4.13 ...why not just get high...?
+			- 4.14 ...no more Newtons, Picassos, Beethovens...end of mankind's intellectual progress...
+			- 4.15 ...makes mockery of current values and life-projects...too absurd to warrant serious debate...
+			- 4.16 ...would leave us helpless... manipulable by ruling elites...
+			- 4.17 ...sheer escapism...the importance of staying in touch with reality...
+			- 4.18 ...wouldn't be me...one is defined by one's sorrows as much as joys...
+			- 4.19 ...selfish distraction from what matters...helping the poor in the Third World comes first...
+			- 4.20 ...affront to human dignity...
+			- 4.21 ...track-record of utopianism is disastrous...terrible crimes committed on assumption the end justifies the means...
+			- 4.22 ...would undermine the basis of all human relationships...
+			- 4.23 ...might lead to (post-)humanity getting irreversibly stuck...
+			- 4.24 ... emphasis on mood-lifting drugs is disproportionate...easy to misinterpret...
+			- 4.25 ...abolitionist project presupposes a utilitarian ethic...HI collapses if utilitarianism is rejected...
+			- 4.26 ...will never be a Post-Darwinian Transition... there will always be selection pressure...
+			- 4.27 ...paradise-engineering is impossible...not evolutionarily stable...
+			- 4.28 ...contradiction...abolitionism can't be reconciled with an absence of compulsion...
+			- 4.29 ...why invoke nanotechnology; isn't genetic engineering enough...?
+			- 4.30 ..."pushy" parents will choose genotypes for children destined to be smart, driven and successful rather than happy...
+			- 4.31 ...persistence of "natural" reproducers with Darwinian genotypes means that suffering won't be abolished...
+			- 4.32 ...cosmic HI? Some pitfalls...
+			- 4.33 ...why stress gradients of well-being? Wouldn't permanent maximum bliss be ethically better...?
+			- 4.34 ...why the headlong rush? Let's wait until we have the wisdom to understand the implications of what we're doing...
+			- 4.35 ...the Simulation Argument suggests suffering can never be abolished...
+		- CONCLUSION
+			- 5.0 Puppet-Masters Without Strings
+			- 5.1 Could Life Really Have A Happy Ending?
+	- Assorted
+	    collapsed:: true
+		- [[Technology]] : ((6360e398-3c38-4803-92fd-832b87d21c80))
+		- http://humanityplus.org/
+		- http://lifeboat.com/ex/transhumanist.technologies
+		- http://www.extropy.org/faq.htm
+		- futurism
+		- Peak humans
+		- Soldiers, NASA astronauts, navy SEALS
+		- Nanotechnology red blood cells to increase endurance, strength, breath capacity, etc
+		- This trend will continue in the future. Many cyborg upgrades which will become available in the 20s and 30s, such as hearing and vision enhancement, metabolic enhancement, artificial bones, muscles, and organs, and even brain-computer interfaces will be invisible to the casual observer, implanted beneath the skin. Cybernetic features on the surface, such as dermal enhancements or technological actuators like retractable wings, will be carefully camouflaged. No one will want to shock the rest of society by looking like the tin man in public.
+		- Recently, Microsoft announced Microsoft Surface, a mouseless, keyboardless form of desktop computing which takes input from finger tracing and hand gestures. The sophistication of biotechnology and the availability of better materials and precision manufacturing will let us make systems so small and effective that even everyday people elect to implant them.
+		- Here’s a good cyborg blog I found while doing research for this article, and the Power Jacket, a 4-pound jacket that enhances strength and is used by people recovering from paralysis. For more, see the cybernetics category of my del.ic.ious links, or my top ten listof cybernetic enhancements.
+		- 8. Telepathy/Brain-Computer Interfacing
+		- Ever wanted to send someone a message with nothing but your mind, or have a neural implant that gives your brain direct access to Google? Hundreds of corporate and academic labs across the world are working on projects that generate progress in this area. Check out the Berlin Brain-Computer Interface, which lets you move the cursor around on a screen with only your EEG waves and 20 minutes of training.
+		- Miniature fMRI will allow us to continue increasing the bandwidth between brain and computer, eventually allowing for a “mental typewriter” that converts thoughts into text. A tiny transmitter could send this to a bone-conduction deviceon the receiving person, letting them hear the message without sound. NASA is also working on a device to transcribe silent, “subvocal” speech. Like many transhumanist upgrades, these will probably start as efforts to help people who are handicapped, then evolve into powerful tools that can be used by anyone bold enough to adopt them.
+		- 7. Super-Strength
+		- Early in 2006, scientists at the University of Texas at Dallas, led by Dr. Ray H. Baughman, developed artificial muscles 100 times stronger than our own, powered by alcohol and hydrogen. Leonid Taranenko, the former Soviet weightlifter, holds the world record for power lifting a 266 kg (586 lbs) dumbbell. If Leo’s natural muscles were replaced with Dr. Baughman’s synthetic polymer muscles, he could lift 26,600 kg, or about 30 tons. That’s equivalent to this yacht, the Nova Spirit.
+		- Super-strength is an interesting area in that the technology to do it has already beeninvented — the only step remaining is actually weaving the fiber into a human body — which, today, would be complicated and messy, not to mention probably illegal.
+		- However, that doesn’t mean that it won’t be done, probably within the next couple decades. Further improvements to the process could make it safe for normal people, numerous ethics questions notwithstanding. One benefit of improved muscles is that we’d be far less vulnerable to unfortunate accidents. They could also provide armor against bullets or other forms of attack. One downside is that people could use them to bully others around. Guess the good guys will need even bigger muscles.
+		- However, that doesn’t mean that we can’t create technopsychics artificially.
+		- By 2030, we’ll be cranking out utility fog — swarms of tiny machines that fly through the air and interlock with robotic arms. By combining brain-computer interfaces, like the type used by Claudia Mitchell to move her prosthetic arm, with utility fog, we will have direct-thought connections with powerful external robotics, allowing non-fictional psychokinesis. Utility fog, once all the necessary software for it is developed, will be capable of cooperating to perform practically any physical task or simulate a wide range of materials.
+		- Because utility fog could be distributed at low density and still accomplish a lot, a room filled with utility fog would look empty, and people in it could move and breathe normally. They would only notice once the fog is activated — either by a central computer, or a neural interface. Once a connection is achieved, practically anything could be accomplished with the proper programming. Throwing objects through the air, hovering over the ground, cracking an egg from across the room, materializing orbs of energy — all the antics we’ve always wanted to perform, but never had the means to.
+		- 3. Flight
+		- Human flight, outside of an airplane… this was recently achieved by former military pilot Yves Rossy, who flew 7,750 ft above the Alps in his 10 ft wide, self-designed aerofoil. You can see a video of it here. The airfoil weighs only 110 lbs and cost just under $300,000.
+		- Over the next few decades, the weight will come down, the strength and flexibility will go up, and eventually it will be difficult to distinguish between people in aerofoils and people that can just fly whenever they want.
+		- Using high strength-to-weight materials like fullerenes, we will fly using wings that weigh only a fraction of our own weight and fold into our clothing or body when not in use. Rossy achieved speeds of 115 mph, but with superior materials and greater tolerance for acceleration and wind, our cybernetic flight speeds are more likely to top 500 mph. To take off from the ground, we’ll simply use our super-muscles to jump to the highest object around and begin our flight from there. With personal flight, commercial airliners will become obsolete. The only problem left will be dodging each other.
+		- Fantastic Voyage - Ray Kurzwell
+		- Aubrey de Grey - 7 causes of aging cell depletion, supernumerary cells, chromosomal mutations, mitochondrial mutations, cellular junk, extracellular junk, and protein cross-links
+		- 3. Artificial Assistance: Artificial Intelligence (AI) and Augmented Reality (AR) integrated into personal, everyday behaviors. In the same way Google search and Wikipedia changed the way we research and remember, AI and AR could alter the way we think and interact. Daedalus in Deus Ex and Jarvis in Iron Man are great examples of Turing-quality (indistinguishable from human intelligence) AI that interact with the main character as both side kicks and secondary minds. Think of it this way: you walk into a cocktail party. Your cyberbrain’s AI assist analyzes every face in the room and determines those most socially relevant to you. Using AR projected onto your optic implants, the AI highlights each person in your line of sight and, as you approach, provides a dossier of their main interests and personality type. Now apply this level of information access to anything else. Whether it’s grilling a steak or performing a heart transplant, AI assist with AR overlay will radically improve human functioning. When it is expected that most people will have an AI advisor at their side analyzing the situation and providing instructions through their implants, go ahead and count humanity another step closer to being transhuman.
+		- 5. Responsible Reproduction: Having children will be framed almost exclusively in the light of responsibility. Human reproduction is, at the moment, not generally worthy of the term “procreation.” Procreation implies planned creation and conscientious rearing of a new human life. As it stands, anyone with the necessary biological equipment can accidentally spawn a whelp and, save for extreme physical neglect, is free to all but abandon it to develop in an arbitrary and developmentally damaging fashion. Children – human beings as a whole – deserve better. Responsible reproduction will involve, first and foremost, better birth control for men and women. Abortions will be reserved for the rare accidental pregnancy and/or those that threaten the life of the mother. Those who do choose to reproduce will do so via assisted reproductive technologies (ARTs) ensuring pregnancy is quite deliberate. Furthermore, genetic modification, health screening, and, eventually synthetic wombs will enable the child with the best possibility of a good life to be born. Parental licensing may be part of the process; a liberalization of adoption and surrogate pregnancy laws certainly will be. When global births stabilize at replacement rates, ARTs are the preferred method of conception, and responsible child rearing is more highly valued than biological parenthood, we will be procreating as transhumans.
+	- Targets for enhancement
+	    collapsed:: true
+		- micro pacemakers
+		- _n_ng
+		- insulin monitors
+		- optical implants
+		- perceg
+		- cochlear implants
+		- smar•
+		- gene therapy
+		- cancer treatment
+		- sub-
+		- detection theory
+		- oxygen purification
+		- nanc-
+		- blood optimizatvn
+		- hybri-
+		- sue manipulation
+		- cellula- Imaging
+		- syntheti- vel
+		- enhancement
+		- vacc
+		- smart t ss
+		- organ regeneration
+		- -imb regeneration
+		- kinetic therapies
+		- myoelectrics
+		- urtificial cells
+		- : PS cells
+		- smart injections
+		- . i L -based therapies
+		- oxygen creation
+		- smart blood(s)
+		- neurosensory imaging
+		- neural network mapping
+		- biomimetic 9pp1ications
+		- depressior, freatments nucleoti a/ synthesis
+		- exocortex development
+	- Targets for monitoring
+	    collapsed:: true
+		- BLOOD FLOW
+		- HEART RATE
+		- VASCULAR PRESSURE
+		- ADRENAL SECRETION
+		- OXYGEN INTAKE
+		- DIGESTION
+		- BONE GROWTH
+		- CIRCULATION
+		- EXCRETION
+		- HEAT REGULATION
+		- cot H L
+		- CELLULAR REPAIR
+		- IMMUNE SYSTEM RESPONSE
+		- DETOXIFICATION
+		- . PROTEIN SYNTHESIS
+		- REGULATION
+		- •X'SYLIN PRODUCTION
+		- INERVOUS SYSTEM
+		- ,RESÉONSE
+	- Early warning system for
+	    collapsed:: true
+		- DIABETES
+		- HEART • DISEASE
+		- THYROID DISEASE
+		- *SPROSTATY_ RD
+		- CUSHING'S SYNDROME
+		- ((66cc9f55-f2f1-4c71-86fe-8523b0a1e4fb))
+		- IMMU
+		- PANCREATIC CANCER
+		- ISORD S
+		- CEREBRAL ANEURYSM
+		- A TOPY
+	- Categories of wetware
+	    collapsed:: true
+		- Wetware Hacker - Advanced
+		- Classifications
+		- There are three main types of wetware classifications: Control Supplementation and Perception Augmentation, Recreational Neural Electromagnetic Stimulation, Rehabilitation and Enhancement.
+		- There is overlap in the application of various devices and techniques between these categories. Meaning the same device or technique could be used to facilitate more then one type of significance depending on its employment process.
+		- classifications
+		- Perception Augmentation and Control Supplementation
+			- This category deals primarily with human machine interface(HMI), but often in ways not discussed in main stream HMI research. Certainly the concept of interface implants would classify as a wetware hack, the application of wetware hacker devices and techniques in noninvasive yet innovation ways leaves a lot of room for exploration of this category. Perception Augmentation centers on utilizing wetware exploitables to enhance sensory experience of artificially creates stimulus. For example, utilizing brainwave entrainment to improve the perceived experience of a virtual reality simulation. A specific example of Control Supplementation would be utilizing a biofeedback technique to add additional input to a computer interface.
+		- Recreational Neural Electromagnetic Stimulation
+			- This category concerns the use of wetware hacker devices and techniques for recreation and entertainment. Digital Drugs, although the term digital is somewhat inaccurate. Perhaps Psychotronic, or REMS (Recreational Electro Magnetic Stimulation), or some other yet unknown cleverness will become the popular term in the future. The reality is that, regardless of what you call it, it is coming to a home near you. Recreational CES devices are already available for sale on the internet, and with portable TMS devices currently being vetted for home migraine treatment, a new high will become increasingly available.
+		- Rehabilitation and Enhancement
+			- Perhaps the oldest category, rehab and mental enhancement has been around in some form since the invention of electricity. In the 1990's, the supposed decade of the brain, it was thought by a few that the first wave of electrical cognitive devices from the 60's and 70's would finally reach wide spread use. Mind Gyms, of one form of another, cropped up all along the West Coast of the United States. AltaStims, star chambers, and float tanks were dusted off and offered to the public. Only to recede back to obscurity. Many devices and techniques of the wetware hacker found their start, at least conceptually, in this category.
+		- Classes of Consequence
+		- CLASS III
+			- The most basic level. This class includes hacks of mild to moderate peak intensity, short duration of effect, and no pathways of application beyond normal sensory input.
+			- Devices: GSR, Light Machine, Brainwave Generator.
+			- Techniques: Basic forms of brainwave entrainment, biofeedback and binaural beats.
+		- CLASS II
+			- A moderate level. This class can include significant peak intensity and/or moderate duration of effect without serious invasiveness of application. Application can include mild forms beyond normal sensory input.
+			- Devices: EEG, CES, TMS.
+			- Techniques: Progressive forms of biofeedback and brainwave entrainment.
+		- CLASS I
+			- The highest level. These are characterized by extreme intensity and invasiveness of application. Effects tend to be long lasting. Application requires pathways beyond normal sensory input.
+			- Devices: rTMS, electroshock.
+			- Techniques: Wireheading, extreme examples of neurological biofeedback
+	- Wireheading
+	    collapsed:: true
+		- Wireheading
+		- For pleasure (part of happiness) + motivating delayed gratification habits e.g. passive income
+		- "If it was possible to become free of negative emotions by a riskless implementation of an electrode -
+		- without impairing intelligence and the critical mind - I would be the first patient."
+		- -The Dalai Lama (Society for Neuroscience Congress, Nov. 2005)
+		- http://www.jefftk.com/p/wireheading-hedons-preferences
+		- In 2006, The Guardian reported that trials of deep brain stimulation with electric current, via wires inserted into the brain, had successfully lifted the mood of depression sufferers. This is exactly the method used by wireheads in the earlier Niven stories (such as the ‘Gil the Arm’ story Death By Ectasy).
+		- Niven's stories explain wireheads by mentioning a study in which experimental rats had electrodes implanted at strategic locations in their brains, so that an applied current would induce a pleasant feeling. If the current could be obtained anytime the rats pushed the lever, they would use it over and over, ignoring food and physical necessities until they died. Such experiments were actually conducted by James Olds and Peter Milner in the 1950s, first discovering the locations of such areas, and later showing extremes to which rats would go to obtain the stimulus again.[1][2]
+		- Heath commented that “People don't self-stimulate constantly -- as long as they're feeling good. Only
+		- when they're depressed does the stimulation trigger a big response” (Hooper).
+		- While it would have been unethical for Heath to allow this intracranial self-stimulation (ICSS) to continue to the point where the subjects’ health began to suffer, it is reasonable to assume that at least some humans, given the opportunity, would self-stimulate to the point of collapse.
+		- Non-fictional experiments on humans[edit]
+			- 1963: "Electrical self-stimulation of the brain in man." by Dr. Robert Heath.[3]
+			- 1972: A 24-year-old man with temporal lobe epilepsy, identified as patient "B-19". "He was permitted to wear the device for 3 hours at a time: on one occasion he stimulated his septal region 1,200 times, on another occasion 1,500 times, and on a third occasion 900 times. He protested each time the unit was taken from him, pleading to self-stimulate just a few more times... "[4][5][6]
+			- 1986: A 48-year-old woman with chronic pain. "the patient self-stimulated throughout the day, neglecting personal hygiene and family commitments."[7]
+			- Back Pain Device Produces Orgasms http://abcnews.go.com/Health/story?id=117641&page=1 Dr. Stuart Meloy, spinal cord stimulator made by device company Medtronic http://www.google.com/patents/about?id=UMMCAAAAEBAJ&dq=6169924
+		- Crude forms, such as those I mentioned above, have been superseded by the kinds of subtle techniques used to treat Parkinson’s tremors, and depression.
+		- http://www.stanford.edu/~jacobt/writing/wireheading.pdf
+		- The abolitionist project and the Hedonistic Imperative seek to eliminate suffering and radically increase happiness while avoiding such traps.
+		- José M. R. Delgado : Toward a Psychocivilized Society
+		- http://www.wireheading.com/delgado/index.html
+		- hide forever | hide once PHYSICAL CONTROL OF THE MIND Toward a Psychocivilized Society José M. R. Delgado, M.D. 1969 Human Pleasure Evoked by ESB ( E lectrical S timulation of the B rain) O n the basis of many studies during cerebral surgery, Penfield has said of anger, joy, pleasure, and sexual excitement in the human brain that "so far as our experience goes, neither localized epileptic discharge nor electrical stimulation is capable of awaking any such emotion. One is tempted to believe that...
+		- Research[edit]
+		- Delgado's research interests centered on the use of electrical signals to evoke responses in the brain. His earliest work was with cats, but he later did experiments with monkeys and humans, including psychiatric patients.
+		- Much of Delgado's work was with an invention he called a stimoceiver, a radio which joined a stimulator of brain waves with a receiver which monitored E.E.G. waves and sent them back on separate radio channels. Some of these stimoceivers were as small as half-dollars. This allowed the subject of the experiment full freedom of movement while allowing the experimenter to control the experiment. This was a great improvement from his early equipment which included implanted electrodes whose wires ran from the brain to bulky equipment that both recorded data and delivered the desired electrical charges to the brain. This early equipment, while not allowing for a free range of movement, was also the cause of infection in many subjects.[7]
+		- The stimoceiver could be used to stimulate emotions and control behavior. According to Delgado, "Radio Stimulation of different points in the amygdala and hippocampus in the four patients produced a variety of effects, including pleasant sensations, elation, deep, thoughtful concentration, odd feelings, super relaxation, colored visions, and other responses." Delgado stated that "brain transmitters can remain in a person's head for life. The energy to activate the brain transmitter is transmitted by way of radio frequencies."[8]
+		- Using the stimoceiver, Delgado found that he could not only elicit emotions, but he could also elicit specific physical reactions. These specific physical reactions, such as the movement of a limb or the clenching of a fist, were achieved when Delgado stimulated the motor cortex. A human whose implants were stimulated to produce a reaction were unable to resist the reaction and so one patient said “I guess, doctor, that your electricity is stronger than my will”. Some consider one of Delgado's most promising finds is that of an area called the septum within the limbic region. This area, when stimulated by Delgado, produced feelings of strong euphoria. These euphoric feelings were sometimes strong enough to overcome physical pain and depression.[9]
+		- Delgado created many inventions and was called a “technological wizard” by one of his Yale colleagues. Other than the stimoceiver, Delgado also created a "chemitrode" which was an implantable device that released controlled amounts of a drug into specific brain areas. Delgado also invented an early version of what is now a cardiac pacemaker.[10]
+		- In Rhode Island, Delgado did some work at what is now a closed mental hospital. He chose patients who were "desperately ill patients whose disorders had resisted all previous treatments" and implanted electrodes in about 25 of them. Most of these patients were either schizophrenics or epileptics. To determine the best placement of electrodes within the human patients, Delgado initially looked to the work of Wilder Penfield, who studied epileptics' brains in the 1930s, as well as earlier animal experiments, and studies of brain-damaged people.[11]
+		- The most famous example of the stimoceiver in action occurred at a Cordoba bull breeding ranch. Delgado stepped into the ring with a bull which had had a stimoceiver implanted within its brain. The bull charged Delgado, who pressed a remote control button which caused the bull to stop its charge. Always one for theatrics, he taped this stunt and it can be seen today.[12] The region of the brain Delgado stimulated when he pressed the hand-held transmitter was the caudate nucleus. This region was chosen to be stimulated because the caudate nucleus is involved in controlling voluntary movements.[13] Delgado claimed that the stimulus caused the bull to lose its aggressive instinct.
+		- Although the bull incident was widely mentioned in the popular media, Delgado believed that his experiment with a female chimpanzee named Paddy was more significant. Paddy was fitted with a stimoceiver linked to a computer that detected the brain signal called a spindle which was emitted by her part of the brain called the amygdala. When the spindle was recognized, the stimoceiver sent a signal to the central gray area of Paddy's brain, producing an 'aversive reaction'. In this case, the aversive reaction was an unpleasant or painful feeling. The result of the aversive reaction to the stimulus was a negative feedback to the brain.[14] Within hours her brain was producing fewer spindles as a result of the negative feedback.[15] As a result, Paddy became “quieter, less attentive and less motivated during behavioral testing”. Although Paddy's reaction was not exactly ideal, Delgado hypothesized that the method used on Paddy could be used on others to stop panic attacks, seizures, and other disorders controlled by certain signals within the brain.[16] [17][18]
+		- Publication[edit]
+		- Jose Delgado authored 134 scientific publications within two decades (1950-1970) on electrical stimulation on cats, monkeys and patients - psychotic and non-psychotic. In 1963, New York Times featured his experiments on their front page. Delgado had implanted a stimoceiver in the caudate nucleus of a fighting bull. He could stop the animal mid-way that would come running towards a waving red flag.[19]
+		- He was invited to write a book to be published in series entitled World Perspectives by Ruth Nanda Anshen. This was a forty-first volume in the series edited by her. Delgado titled it Physical Control of the Mind: Toward a Psychocivilised Society. In this Delgado has discussed how we have managed to tame and civilize our surrounding nature. Now it was time to civilize our inner being. The book has been a centre of controversy since its release.[1] The tone of the book was challenging and the philosophical speculations went beyond the data. However, the intent was benevolent to encourage less cruel, happier, better man. The book however clashed with the religious sentiments.
+		- Jose continued to publish his research and philosophical ideas through articles and books for the next quarter century. He in all wrote over 500 articles and six books. His final book in 1989, was named Happiness and had 14 editions.[19]
+		- In Media[edit]
+			- The story of Delgado's mind control research was featured in an episode of Dark Matters: Twisted But True in a segment entitled "Human Puppets" as well as the controversy sparked by his research.
+		- Adverse effects[edit]
+		- While DBS is helpful for some patients, there is also the potential for neuropsychiatric side-effects, including apathy, hallucinations, compulsive gambling, hypersexuality, cognitive dysfunction, and depression. However, these may be temporary and related to correct placement and calibration of the stimulator and so are potentially reversible.[34]
+		- Because the brain can shift slightly during surgery, there is the possibility that the electrodes can become displaced or dislodged. This may cause more profound complications such as personality changes, but electrode misplacement is relatively easy to identify using CT. There may also be complications of surgery, such as bleeding within the brain. After surgery, swelling of the brain tissue, mild disorientation, and sleepiness are normal. After 2–4 weeks, there is a follow-up to remove sutures, turn on the neurostimulator, and program it.[citation needed]
+		- tDCS OPIOID
+		- - Not only for reducing learning or reaction time, also inducing motivation/pleasure
+		- The human brain is capable of producing a staggering variety of hormones to regulate everything from appetite to pain resistance. Among the most potent of these neuromodulatory lipids is endogenous μ-opioid, a pain-killing chemical on par with morphine but produced naturally, in minute amounts, by our motor cortices.
+		- 2mA current on the scalp directly above the motor cortex will cause the brain to release μ-opioid—and lots of it—resulting in a 36-percent increase in patients' pain thresholds. The team hasn't figured out how to get it to work of chronic pain like migraines or stomach ulcers yet but they're confident that they will.
+			- http://www.frontiersin.org/Neuropsychiatric_Imaging_and_Stimulation/10.3389/fpsyt.2012.00093/full
+			- http://www.frontiersin.org/Neuropsychiatric_Imaging_and_Stimulation/10.3389/fpsyt.2012.00093/full
+			- http://www.omicsgroup.org/journals/transcranial-direct-current-stimulation-in-neuropathic-pain-2167-0846.1000S3-001.pdf
+			- http://www.spine.org/Documents/Borckardt_update11.pdf
+		- http://www.google.co.uk/patents/US6169924 [google.co.uk]
+		- 0.4v, 250ms pulses.
+		- "stimulating electrodes are placed in the spinal canal via a needle inserted between the appropriate vertebrae in parallel with the spinal cord. The electrodes are connected to a power source"
+		- http://www.extremetech.com/extreme/137787-curing-depression-and-super-charging-cranial-capacity-with-deep-brain-stimulation
+		- Which brings us to the second mind altering technology – high power Transcranial Magnetic Stimulation (TMS). This tech is considerably more complex than tDCS as it involves a high voltage high power electrical discharge through one or more coils placed close to the head. The resulting shaped magnetic field can stimulate areas deep within the brain. TMS is not yet on the menu for biohackers, but soon will be as cheap versions are under development by various individuals and groups. One particular experiment of interest was conducted at the University of Essex on the research psychologist Kevin Dutton [http://chronicle.com/article/The-Psychopath-Makeover/135160/].
+		- The aim was to damp down the parts of the brain responsible for emotion and moral reasoning in order to simulate some of the features of the psychopathic brain. It took about fifteen minutes.
+		- The results? In his own words…
+			- ...enhancement of attentional acuity and sharpness. An insuperable feeling of heightened, polished awareness. Sure, my conscience certainly feels like it’s on ice, and my anxieties drowned with a half-dozen shots of transcranial magnetic Jack Daniel’s. But, at the same time, my whole way of being feels as if it’s been sumptuously spring-cleaned with light. My soul, or whatever you want to call it, immersed in a spiritual dishwasher. So this, I think to myself, is how it feels to be a psychopath. To cruise through life knowing that no matter what you say or do, guilt, remorse, shame, pity, fear—all those familiar, everyday warning signals that might normally light up on your psychological dashboard—no longer trouble you.
+		- It even improved his score on a popular video game, before the effects wore off within half an hour.
+		- The technology needs to model high density electrode placement to reach deep brain structures to stimulate endorphin release. this is another fine example of the distortion of scientific finding, because tDCS only reaches the outer cortical layer, and does not stimulate nerve firing but lowers the threshold for a spike.
+		- To get localised stimulation, you need to have many small electrodes and model the inverse of volume conductance assumed from some brain source http://www.scholarpedia.org/article/Volume_conduction#Relation_to_forward_and_inverse_problem this requires some guidance from nerve fiber anatomy http://www.sci.utah.edu/~wolters/PaperWolters/2011/JanssenRampersadLuckaLewOostendorpWoltersStegeman_ECCN_Rom_2011.pdf so, there are probably 50 papers by now that show behavioural change with electrical stimulation of the brain, but just by pasting some large electrode onto some big scalp region.
+- Devices
+    collapsed:: true
+	- continous glucose monitors
+	    collapsed:: true
+		- Precision Xtra Blood Glucose and Ketone Monitoring System
+		- http://www.abbottdiabetescare.ca/adc_ca/url/content/en_CA/20.10.40:40/product/Product_Profile_0016.htm
+		- Home | Sitemap | Contact Us | Privacy Policy | Terms of Use Copyright © 2001-2010 Abbott Laboratories, Limited. Saint-Laurent, Québec, Canada. All Rights Reserved. Unless otherwise specified, all product names appearing in this Internet site are trademarks owned by or licensed to Abbott Laboratories, its subsidiaries or affiliates. No use of any Abbott trademark, trade name, or trade dress in this site may be made without the prior written authorization of Abbott Laboratories, except to identif...
+		- 1) Health Score - why not use the orthostatic HR test? Objective measures > subjective in my opinion and symptoms felt is only recorded on wake (could simply be measuring poor sleep).
+		- 1) after reviewing scientific studies, I have concluded that neither vitals (body temperature, heart rate, HRV, etc.) are not comprehensive predictors or indicators of physical health. In other words, not all health conditions or symptoms manifest in changes in vitals. This includes also the orthostatic HR test. For instance, I suffer from acid reflux and occasional "dry skin" break out on my face. None of these conditions can be captured through vitals. Other conditions may include headaches, dizziness, nausea, etc.
+	- ANT+
+	    collapsed:: true
+		- ANT+[1] (pronounced ant plus) is a wireless protocol for monitoring sensor data such as a person's heart rate or a bicycle's tyre/tire pressure, as well as the control of systems like indoor lighting or a television set. ANT+ is designed and maintained by the ANT+ Alliance which is owned by Garmin.[2] It is based on the ANT protocol.[3]
+		- Used for
+			- heart rate monitors
+			- speed sensors
+			- cadence sensors
+			- foot pods
+			- power meters
+			- activity monitors
+			- calorimeters
+			- body mass index measuring devices
+			- blood pressure monitors
+			- blood glucose meters
+			- pulse oximeters
+			- position tracking
+			- short range homing beacons (Disc Golf, GeoCaching)[6]
+			- weight measuring devices
+			- control of music players
+			- control of lighting
+			- temperature sensors
+			- light electric vehicle monitoring
+			- fitness equipment
+	- Amazon: Wearable Technology
+	    collapsed:: true
+		- https://www.amazon.com/Wearable-Technology/b?ie=UTF8&node=10048700011
+	- Better Wearables
+	    collapsed:: true
+		- Better Wearables - randomfoo.hackpad.com
+			- Sensors
+				- Accelerometer 3-axis (for determining whether exercising or stationary)
+				- Heart rate + galvanic skin response (for determining aerobic performance + emotional responses)
+				- Muscle output (like PUSH armband)
+			- Features
+				- Automatic tagging - events as emotionally arousing, summarising exercise performance etc
+				- Actionable information -
+				- Smart biofeedback - determines whether you're exercising or not
+					- Exercising - gives detailed info about performance, pushes you to maintain intensity til at x% of heart rate max etc, or tells you not to exercise if CNS fatigued
+					- Non-exercising - tells you if you're stressed (HR, HRV, GSR) and vibrating alert to do deep breaths
+		- Better Wearables
+		- Ideal
+		- A single device that combines a smart watch and sensor suite.
+			- Smart Watch
+			- BT4LE
+			- High Resolution, Low Power, Sunlight Readable Display (Back/Side light)
+			- Mirasol 1.5" - http://www.theverge.com/2012/6/5/3066328/qualcomm-mirasol-prototype-displays http://www.engadget.com/2013/05/21/qualcomm-mirasol-display-eyes-on/
+			- Sharp Memory LCD - http://www.sharpmemorylcd.com/aboutmemorylcd.html
+			- Long Battery Life
+			- Open API
+			- Fully wireless sync/charge (like the AGENT) would be a big bonus
+			- Sensors
+			- Accelerometer/IMU
+			- Ivensense MPU-9150 - http://www.invensense.com/mems/gyro/mpu9150.html
+			- $14 - http://www.scantec-shop.com/catalog/category/view/s/invensense-shop/id/51/
+			- DMP docs suck https://www.sparkfun.com/products/11486
+			- Kionix KMX61G - http://www.kionix.com/imu-feature
+			- $2.50/1K http://globenewswire.com/news-release/2013/01/08/515241/10017154/en/Kionix-Announces-Breakthrough-Micro-Amp-Magnetic-Gyro-Solution-for-Consumer-Electronics-Applications.html
+			- Photometry
+			- TI AFE4400/AFE4490 - http://www.ti.com/product/afe4400
+			- $2.95/2.5K, $7.95/2.5K
+			- SMD LED
+			- $0.36/10K http://www.superbrightleds.com/moreinfo/component-leds/green-5050-smd-led-120-degree-viewing-angle-3500-mcd/319/
+			- Galvanic Skin Response/Electro Dermal Response
+			- Temperature
+			- TI LM20 - http://www.ti.com/product/lm20
+			- $0.32/1K
+			- Light Sensor
+		- Products
+			- Smart Watch
+			- Metawatch - http://www.metawatch.com/
+			- No wireless charging
+			- No sensors (3-axis accel, light sensor)
+			- AGENT - http://www.kickstarter.com/projects/secretlabs/agent-the-worlds-smartest-watch
+			- No sensors (3-axis accel, light sensor)
+			- Sensors
+			- Basis - http://www.mybasis.com/
+			- Watch but not smart watch
+			- Great Sensors
+			- BT broken
+			- Amiigo - http://amiigo.co/ , http://vimeo.com/amiigo
+			- Great sensors
+			- Not smart watch
+			- W/Me - http://www.kickstarter.com/projects/723246920/finally-a-wearable-device-that-can-improve-your-li
+			- Interesting: ANS (Heart Rate Variance) via conductance/electrodermal activity?
+			- LIT - http://www.indiegogo.com/projects/lit-an-activity-tracker-ready-for-action
+			- Action sports sensor
+			- Not smart watch
+		- Reference
+		- Photometry
+			- http://newscenter.ti.com/2013-01-07-TI-introduces-the-first-integrated-analog-front-end-for-photometry-and-showcases-HealthTech-at-CES-2013
+			- http://www.ti.com/ww/en/analog/afe4400_photometry_analog_front_end_dc/index.shtml?DCMP=corp_gmd_afe4400_en&HQS=afe4400-pr
+			- see PDF: http://www.ti.com/lit/slyb108
+		- Electrical
+			- http://en.wikipedia.org/wiki/Skin_conductance
+			- http://www.thoughttechnology.com/gbfsensors.htm
+			- http://ieeexplore.ieee.org/xpl/login.jsp?tp=&arnumber=4801803&url=http%3A%2F%2Fieeexplore.ieee.org%2Fxpls%2Fabs_all.jsp%3Farnumber%3D4801803
+			- http://en.wikipedia.org/wiki/Heart_rate_variability
+			- http://www.qsensortech.com/resources/
+			- http://www.affectiva.com/assets/affectiva-qsensor-datasheet.pdf
+			- http://www.element14.com/community/groups/pumping-station-one/blog/2011/05/08/ouch-sensing-galvanic-skin-response-gsr
+			- http://openeeg.sourceforge.net/doc/links-biopsy.html
+		- Glucose Monitor
+			- http://en.wikipedia.org/wiki/Noninvasive_glucose_monitor
+			- http://www.medgadget.com/2012/10/c8-non-invasive-optical-glucose-monitor-system-cleared-for-sale-in-europe-video.html
+			- http://www.youtube.com/watch?v=I4Aq5xVxODI
+			- http://www.sanointelligence.com/
+			- http://www.smartplanet.com/blog/smart-takes/transdermal-patch-continuously-monitors-your-bloodstream/27363
+			- http://www.tatrc.org/conferences/website_irt_nano_07/presentations/1_06_Paranjape.pdf
+			- http://spectrum.ieee.org/biomedical/devices/keeping-watch-on-glucose
+			- http://www.sbir.gov/sbirsearch/detail/77710
+			- [[2024-03-04 Monday]] [FDA Clears First Over-the-Counter Continuous Glucose Monitor | FDA](https://www.fda.gov/news-events/press-announcements/fda-clears-first-over-counter-continuous-glucose-monitor)
+				- The Dexcom Stelo Glucose Biosensor System is an integrated CGM (iCGM) intended for anyone 18 years and older who does not use insulin, such as individuals with diabetes treating their condition with oral medications, or those without diabetes who want to better understand how diet and exercise may impact blood sugar levels. Importantly, this system is not for individuals with problematic hypoglycemia (low blood sugar) as the system is not designed to alert the user to this potentially dangerous condition.
+		- Watch Design
+			- http://www.tokyoflash.com/en/watches/1/
+			- http://sobadsogood.com/2013/02/14/35-of-the-most-ingenious-unique-watches-youll-ever-see/
+			- Mutewatch
+			- http://mutewatch.com/
+			- Central Standard Timing
+			- http://www.gizmag.com/central-standard-timing-cst01-worlds-thinnest-watch/25771/
+			- http://www.kickstarter.com/projects/1655017763/cst-01-the-worlds-thinnest-watch
+			- Seiko Bracelet Watch
+			- http://www.seikowatches.com/baselworld/2007/press/details/070412_11.html
+			- http://www.eink.com/press_releases/e_ink_epd_seiko_watch_041305.html
+			- Futaba Flexible OLED (concept)
+			- http://www.techinasia.com/futaba-oled-watch/
+	- Biofeedback
+	    collapsed:: true
+		- https://en.wikipedia.org/wiki/Biofeedback
+		- Bio and Neurofeedback for meditation and focus
+			-
+				- http://forum.bulletproofexec.com/index.php?/topic/7290-alternative-to-neuroptimal-neurofeedback/
+					- http://www.mindsupplies.com/store.htm
+				- http://neurodynamicactivator.com/about-2/
+				- http://brain-trainer.com/equipment
+				- https://www.facebook.com/BeyondNeuroFeedback
+			- Yeah, what Dave was talking about is a $15,000+ program of intensive training with multi-million dollar equipment and a professional staff to help you integrate the training, all in the space of 7 days. This is not that.
+			- The only alternative that Dave says will yield anything remotely approaching what that program does (and which still falls far short) is Neuroptimal, which generally runs about $100 per session, or will set you back a minimum of $5K if you want a device of your own.
+			- When people ask me to suggest a "cheap" training system, I tell them to go with bioera or bioexplorer for software, and a Pocket Neurobics amp. That will run $1-$3K, depending on what software you get, what electrode type, if you want EEG, HEG, etc.
+			- What's missing from the discussion is the "cost" of figuring out exactly how to train, or more precisely *what* to train. What sites on the scalp, what reference, eyes open or closed, what bands to reward, what to inhibit, etc.. This is all informed by a somewhat broad set of clinical principles in nfb training, and ideally you start with a QEEG to determine gross underlying patterns (phenotypes) that might match up to functional experience for the person.
+			- There are some good starting places for many people (C4-A1 SMR training, for example) but given individualized brains, a one-size-fits-all approach is bound to fail sooner or later. I suggest that anyone who really wants to "self-train" get some self-education on this topic, buy a copy of Neidermeyer's EEG and a a couple of basic nfb books, read a bunch of papers (start with Gruzelier's SMR papers), get a QEEG performed/interpreted and maybe even get some professional supervision for a few months.
+			- Also, consider long term goals for training when "sizing" a system. The different between $1K and $4K isnt huge when they both might mean massive change in your function - which are often permanent, improving or remediating some limit. I mean.. what's the "cost" of getting off of stimulant drugs for adhd, for example, or for gaining improved sleep and awake focus without resorting to said stimulants, for the non-executively challenged psychonaut?
+			- Hack Your Mind Like a Twenty-First Century Soldier: Using Biofeedback to Become More Resilient
+			- by Brett & Kate McKay on October 28, 2013 · 28 comments
+			- in A Man's Life, Personal Development
+			- mindwave
+			- Two important skills for any man, and especially any would-be sheepdog are 1) managing stress 2) and remaining resilient in the face of extreme adversity. In our post about managing stress arousal for optimal performance, we broke down what happens to the body and mind as it deals with increasing levels of stress. Basically, as stress levels rise, our mental and physical performance deteriorates.
+			- During my research about developing a sheepdog mentality, I kept coming across reports on how the U.S. military is spending tens of millions of dollars each year researching the vital question of how to make soldiers more resilient. The research has two goals. First, the military wants to create highly-effective soldiers who can perform at the highest levels, even under extreme stress. Second, they hope that by training soldiers to be more resilient, they can reduce the skyrocketing incidents of PTSD.
+			- In 2008 the U.S. Army developed a resilience training program called Battlemind (now known as Ready and Resilient) in response to increased PTSD and suicide rates among soldiers returning from the frontlines. As part of their basic training, all incoming recruits are given 10 days of resilience instruction designed to fortify their mental toughness. In addition to the usual push-ups and shooting drills, soldiers are also taught how to meditate, how to use controlled breathing to reduce the stress response in their minds and bodies, and fundamental resilience skills such as how to avoid catastrophizing and how to change your explanatory style in the face of failure or setbacks.
+			- Besides giving soldiers basic cognitive therapy tools they can use to manage stress, the Department of Defense has also experimented with technology that allows soldiers to monitor their physiological response to it. The idea is that if soldiers can see how their minds and bodies are reacting to stress, they can learn how to control this response, increasing their ability to stay calm and bounce back quickly in tough situations.
+			- The real-time monitoring of one’s physiological responses is called biofeedback. And it’s straight out of a weird techno-hippie sci-fi novel (or so it seemed to me when I first learned about it).
+			- Proponents would argue, however, that far from being hippie dippie, it’s a highly effective way for soldiers and civilians alike to learn how to manage stress, clear the mind, improve focus, and become all-round more mentally and physically tough and resilient.
+			- Does biofeedback live up to its claims? I decided to experiment with it to see if it could help me improve myself.
+			- Below, I summarize how biofeedback works, give a report of my experience using it, offer a list of tools if you want to try it out too, and then provide my verdict on whether or not biofeedback can help the average Joe become a better man and a more effective sheepdog.
+			- What is Biofeedback?
+			- Biofeedback’s origins go back to ancient Hindus and Buddhists, but it wasn’t until after World War II that biofeedback — as it’s used today — came into existence.
+			- Biofeedback works by attaching instruments to your body to measure physiological activity like brain waves, heart rate, body temperature, respiratory rate, and muscle tension. You (and often a trained doctor) can see these measurements in real-time on a computer screen. Because you are able to get immediate feedback on your typically hidden mental and physical responses, you can experiment with modifying your thinking and breathing to facilitate desired physiological changes.
+			- Here’s a simple example of biofeedback. Let’s say you’re chronically frazzled. You hook yourself up to a heart rate monitor, which reveals a resting heart rate that indicates that you are indeed stressed out. So you try different breathing and muscle relaxation exercises to bring your heart rate down. The monitor gives you real-time feedback as to whether these exercises are working.
+			- A typical biofeedback session will measure one or more of the following physiological activities:
+				- Electromyogram (EMG). This measures muscle activity and tension. This measurement is often used for patients wanting to get a better handle on back pain, headaches, and incontinence.
+				- Heart rate variability (HRV). This measures heart rate. As we discussed in our post about stress arousal, as stress increases, our heart rate increases. According to biofeedback, knowing your heart rate is increasing should allow you to perform exercises to lower it. Heart rate monitoring is typically used to help patients gain control of their stress and anxiety.
+				- Neurofeedback or electroencephalography (EEG). This measures brain waves. This biofeedback measurement has been used for treating attention deficit hyperactivity disorder (ADHD), anxiety, stress, and PTSD.
+				- Thermal feedback. This measures skin temperature. Because our body temperature decreases when facing extreme psychological stress, being aware of your body temperature allows you to take steps to manage that stress.
+				- Electrodermal activity (EDA). This measures sweat. When we’re nervous and anxious, we perspire more.
+			- Independent randomized controlled studies have shown biofeedback is an effective way to reduce high blood pressure, eliminate migraines, reduce anxiety, and even treat constipation. Some studies dispute biofeedback’s effectiveness to treat ADHD and PTSD, but the military feels it has gotten good results on this front.
+			- To see if I could achieve the same positive results found in these studies, I decided to conduct my own personal experiment with biofeedback.
+			- My Own Experiment With Biofeedback
+			- Until recently, if you wanted to take part in biofeedback training, you’d have to find a specialist in your area and visit their facility so you could hook yourself up to their sensitive medical sensors. A typical professional biofeedback session can set you back a hundred dollars.
+			- But during the past ten years, the price of medical sensor technology has decreased enough that they’re now accessible to the average consumer. Heart rate monitors are common at gyms and running trails around the world, and brain activity sensors are becoming so cheap that they’re popping up on toys.
+			- My research into how the military uses biofeedback to increase soldiers’ mental toughness led me to the National Center for Telehealth and Technology (or T2), a division within the Department of Defense that researches the psychological health of military personnel.
+			- T2 has produced several free apps to help current and veteran soldiers reduce stress. While they’re designed for soldiers, civilians can download them too. Tactical Breather is one; Breath to Relax is another.
+			- The one that caught my eye, though, was their BioZen app.
+			- BioZen is a free biofeedback app for Android smartphones that uses Bluetooth-enabled biosensors placed on the body to give patients suffering from anxiety, stress, and depression an affordable biofeedback experience.
+			- BioZen measures EEG (brain wave activity), EMG (muscle tension), skin temperature, respiratory rate, and ECG (heart rate variability).
+			- Besides a real-time chart of the above measurements, BioZen also has a meditation feature in which users manipulate an image on their smartphone screen with their mind and heart rate activity.
+			- It’s pretty cool.
+			- As your brain activity gets in a more meditative state, a sun in a landscape setting starts to get brighter and brighter; as your heart rate gets slower — indicating a low stress level — a tree and birds appear in the foreground. BioZen records your physiological activity during these meditation sessions and gives you a score so you can see how you’re progressing with your meditation and stress reduction practice.
+			- Intrigued by the concept of accessible biofeedback, I downloaded the free BioZen app. While the app was free, the biosensors weren’t. BioZen works with just a few compatible devices, and all of them are unfortunately expensive.
+			- BioHarness_03
+			- The Zephyr BioHarness. (Not my floating torso.)
+			- To measure my heart rate, respiration, and skin temperature with BioZen I needed a Zephyr BioHarness. It’s a sophisticated consumer heart rate monitor used in the athletic and tactical fields to monitor stress response. The BioHarness set me back $549. Eesh…
+			- MindWaveMobile-500x500
+			- The Mindwave Mobile
+			- To measure my brain wave activity, I needed an EEG measuring device called the Mindwave Mobile. The Mindwave is a futuristic looking headset with a small sensor that rests on your forehead above your left eyebrow. Another sensor clips on to your left earlobe. Wearing it makes me feel like an extra on Star Trek.
+			- After sinking nearly $700 on biosensors, I began to have some buyer’s remorse and serious doubts about this experiment. “Will this stuff even work?” “Am I being bamboozled by 21st century snake oil?”
+			- Doubts notwithstanding, I opened up BioZen to start my first meditation session. An empty and dark landscape scene filled my phone’s screen. As my heart rate slowed and steadied, a tree and some birds appeared.
+			- dark
+			- Heart rate made the tree appear, but because my mind was all over the place, no sun.
+			- But the scene was still dark, with no rising sun in sight.
+			- To illuminate the screen, I had to get my mind in a meditative state. I kept checking to see if a sun had appeared.
+			- Nothing. Still darkness.
+			- I tried to empty my mind and just focus on my breathing. I’d get a second or two of blissful nothingness, but immediately my “monkey mind” would return. Ten minutes into my meditation session, I still wasn’t able to create light on my landscape scene. Just when I started to think I had wasted my money on this silly looking headset, it happened.
+			- brighter
+			- Hark! Yonder light! I’m becoming more meditative.
+			- A small, dim sun rose above the horizon. I was excited – hope at last! I tried to harness all my brainpower to maintain the sun, but it disappeared as quickly as it appeared. For the next ten minutes of my meditation session, I would make the sun appear and disappear with nothing but my mind. I felt like Neo learning how to manipulate the Matrix.
+			- When my session finished, I reviewed my results. While I had normal resting heart and breathing rates throughout my session (indicating low physiological stress), my brain wave activity indicated that my mind had been quite scattered.
+			- Over the next few weeks, I trained two times a day for 20 minutes a session with BioZen. After the third day I started seeing improvements in both my heart rate and brain wave activity. It’s hard to describe how I did it, but I sort of figured out how to indirectly control my involuntary bodily functions. The instantaneous feedback that BioZen provided allowed me to experiment on the fly with different techniques and strategies to relax and focus.
+			- I lowered my resting heart rate to 45 BPM and could maintain it there for the entire meditation session. Before the biofeedback training, my normal resting heart rate during a meditation session was 70 BPM, which is average. A resting heart rate between 40 and 50 BPM is what you see among well-trained athletes.
+			- brightest
+			- Now I can use my brain to make the sun shine brightly for the entire meditation session.
+			- My scattered brain improved as well. After three days of biofeedback training, I successfully got the little digital sun to fully rise and illuminate the screen, indicating that I reached a highly meditative state.
+			- After weeks of training, I’m now able to keep the digital landscape fully illuminated for almost the entire meditation session. The chart that tracks my meditation score has pretty much followed an upward trajectory. I had a few distracted sessions, but for the most part my mind is much more Zen.
+			- Overall, I’ve been happy and surprised by the results of biofeedback training with BioZen. According to the data, I’m much less stressed and more even-keeled than before I started biofeedback training. My resting heart rate — even when I’m not meditating — is lower and my brain activity shows I’m much more relaxed and focused.
+			- Subjectively, I can report I feel much more calm than I did before biofeedback training. I’m sort of anxious and neurotic by nature, so it’s nice to feel less on edge
+			- I also feel much more focused and present in all my daily activities, be it working or hanging out with my family.
+			- I think the biofeedback exercises have boosted my resiliency too. Getting agitated in the face of little work-related annoyances has long been a weakness for me, and I feel like I handle setbacks better than I did before. I still have a tendency to be impatient and get frustrated quickly when a lot of Q3 demands come rolling in, but I shake it off and get back on track much quicker than before. Would this increase in my resiliency carry over to more of a crisis situation? Only time will tell.
+			- Were these perceived benefits the result of a placebo effect, however? With all things like this, there’s certainly a chance that these little gizmos act like Dumbo’s Magic Feather. I’m open to that possibility. Even if that’s the case, I’m okay with it. If it works, it works. However, as mentioned above, research suggests there’s more than a placebo effect going on.
+			- Whether it’s placebo or honest-to-goodness efficacy, I’ve made biofeedback training a regular part of my life. I treat my sessions with BioZen sort of like my workouts at the gym. It’s just something I do, no matter what.
+			- Biofeedback Tools for the Average Joe
+			- Has your curiosity been piqued and you’re thinking you’d like to give biofeedback a try?
+			- If you’d like to practice biofeedback regularly and don’t want to plunk down the thousands it costs for multiple sessions at a professional facility, below I highlight a few of the biofeedback devices available to consumers.
+			- Heart Rate Sensors
+			- Zephyr BioHarness. What I use. It’s compatible with the BioZen app, but also has its own app that you can use to monitor your heart and respiratory rate. As I mentioned above, I’ve been impressed with the results using my BioHarness, and it’s now an everyday fixture in my life.
+			- While it’s cheaper than a professional heart and breathing rate monitor, the Zephyr BioHarness is still freaking expensive at $549. If you just want to dabble with biofeedback, go with something cheaper. Once you decide to go full hog with the training, then you might consider investing in this device.
+			- eMwave2. This is a small device that measures your heart rate and then helps you become more “coherent” (basically lowering your heart rate and making it more steady) though a simple breathing exercise. The eMwave2 seems to be popular among the New Age/Secret folks. I haven’t used it personally, but I can see it being an effective tool for reducing your physiological stress response.
+			- A plain old heart rate monitor. You don’t need some fancy-pants BioHarness or heart rate trainer to get the benefits of heart rate biofeedback. Any heart rate monitor will do the trick. There are plenty of sub-$100 devices on the market. While most of them can’t measure respiratory rates nor work with BioZen, you can still use a heart rate monitor to learn how to control your stress response to day-to-day activities.
+			- Brain Wave Activity Sensors
+			- Let’s get this out of the way right off the bat: Consumer devices that measure brain wave activity are not as sensitive and accurate as the devices you’ll find in a professional laboratory. However, I imagine in the next five to ten years, we’ll see more accurate and affordable consumer brain wave monitors. Nonetheless, the devices on the market now do a decent job considering what you’re paying.
+			- Mindwave Mobile. This was what I used, and still use when I can get it to work. It will set you back $127. It works with BioZen, but is also compatible with several other apps on the market. However, the other apps are terrible.
+			- My biggest gripe about Mindwave Mobile is its flaky performance. When it works, it works fine. But sometimes I’d have trouble connecting the device to my smartphone. I don’t know what caused the Bluetooth troubles. I’m looking into it, but it appears other people have had this problem too.
+			- Brain Athlete. Does pretty much the same thing as Mindwave Mobile. It’s geared more towards athletes wanting to use bio/neurofeedback to increase focus and mental speed.
+			- Within the next year, several affordable neurofeedback sensors will hit the market. Here are three I’m looking forward to learning more about:
+				- Melon Band. The Melon will launch early next year. It measures your brain activity and the accompanying app lets you know if you’re focused or meditative.
+				- Muse Band. Set to deliver at the end of 2013. Measures EEG and has an accompanying app to help you interpret the results. You can pre-order one now for $269.
+				- Brain Sport. The Brain Sport is an EEG device geared more towards athletes to help them improve their focus, mental speed, and stress response.
+			- Do You Really Need All This Stuff?
+			- I’m sure some of you reading this are thinking, “Bah! You don’t need all these high-tech gizmos. Just meditate and do some breathing exercises and you’re good to go.”
+			- I agree 100%.
+			- You don’t need these gadgets and apps to become cool, calm, and collected. By doing basic meditation regularly and being mindful of your body’s responses to stressors, you’ll be well on the path to developing your mental and physical resilience.
+			- But based on my own experience with these devices and apps, biofeedback can help facilitate this process. While warriors and philosophers have been training their minds with only their minds for thousands of years, I think there’s a case to be made that in a time of unprecedented technological distraction, sharpening your focus has never been more important, or difficult. Any extra tools that can help increase your ability to concentrate are invaluable in my book. Fight fire with fire I say.
+			- Mental and physical resilience is an ethereal thing. It’s hard to judge whether you’re improving because you can’t see whether cognitive exercises like meditation are having any actual effect on your physiology, other than what you may feel. And for this reason, it’s hard to get motivated to do those exercises. Biofeedback provides hard numbers and data you can use to see your progress, which both enlightens and inspires. I definitely feel like my progress with meditation and mental resilience increased more in the few short weeks of biofeedback training than it has in the past two years I’ve regularly meditated.
+			- Whether you feel stressed, anxious, and overwhelmed, or you’re looking to up your mental game, and perform at your best on the battlefield or in everyday life, give biofeedback a try to see if it works for you.
+			- http://www.ncbi.nlm.nih.gov/pubmed/23827814 http://www.ncbi.nlm.nih.gov/pubmed/24125857 http://www.frontiersin.org/Human_Neuroscience/10.3389/fnhum.2013.00478/full http://www.ncbi.nlm.nih.gov/pubmed/24111179 http://www.frontiersin.org/Journal/10.3389/fpsyg.2013.00688/full
+			- 1) Which home device/software do you recommend for neurofeedback training?
+			- Answer: Probably the best cost-effective, actually usable-for-training setup out there is something from PocketNeurobics.com and either BioExplorer or BioEra for software (both available through PN as well, in "kits"). PN has 2 and more channel EEG amps, is the best deal running in cost. You need a windows machine, too, and ideally one with a dedicated video card.
+			- 2) What is the reading list for your upcoming class? Where can I get more info on neurofeedback training?
+			- Answer: Required Reading (Articles):
+			- Arns M, Drinkenburg W, Leon Kenemans J. (2012). The effects of QEEG-informed neurofeedback in ADHD: an open-label pilot study. Appl Psychophysiol Biofeedback. 37(3):171-80. doi: 10.1007/s10484-012-9191-4.
+			- Arns M, Kenemans JL. (2012). Neurofeedback in ADHD and insomnia: Vigilance stabilization through sleep spindles and circadian networks. Neurosci Biobehav Rev. doi: 10.1016/j.neubiorev.2012.10.006.
+			- Barnea A, Rassis A, Zaidel E. (2005). Effect of neurofeedback on hemispheric word recognition. Brain Cogn. 59(3):314-21.
+			- Beauregard M, Lévesque J. (2006). Functional magnetic resonance imaging investigation of the effects of neurofeedback training on the neural bases of selective attention and response inhibition in children with attention-deficit/hyperactivity disorder. Appl Psychophysiol Biofeedback. 31(1):3-20.
+			- Choi, S. W., Chi, S. E., Chung, S. Y., Kim, J. W., Ahn, C. Y., & Kim, H. T. (2011). Is alpha wave neurofeedback effective with randomized clinical trials in depression? A pilot study. Neuropsychobiology, Neuropsychobiology, 63(1), 43-51. doi:10.1159/000322290
+			- de Zambotti M, Bianchin M, Magazzini L, Gnesato G, Angrilli A. (2012). The efficacy of EEG neurofeedback aimed at enhancing sensory-motor rhythm theta ratio in healthy subjects. Exp Brain Res. 221(1):69-74. doi: 10.1007/s00221-012-3148-y.
+			- Gruzelier J, Egner T, Vernon D.(2006). Validating the efficacy of neurofeedback for optimising performance. Prog Brain Res. 159:421-31.
+			- Egner T, Gruzelier JH. (2004). EEG biofeedback of low beta band components: frequency-specific effects on variables of attention and event-related brain potentials. Clin Neurophysiol. 115(1):131-9.
+			- Gevensleben, H., Rothenberger, A., Moll, G. H., & Heinrich, H. (2012). Neurofeedback in children with ADHD: validation and challenges. Expert Rev Neurother, Expert Rev Neurother, 12(4), 447-60. doi:10.1586/ern.12.22
+			- Gevirtz, R. N. (2003). The promise of HRV biofeedback: Some preliminary results and speculations. Biofeedback,31(3), 18-19.
+			- Gilbert, C. (2005). Better chemistry through breathing: The story of carbon dioxide and how it can go wrong. Biofeedback,33(3), 100-104.
+			- Gruzelier JH. (2013). Differential effects on mood of 12-15 (SMR) and 15-18 (beta1) Hz neurofeedback. Int J Psychophysiol. doi: 10.1016/j.ijpsycho.2012.11.007.
+			- Hirshberg LM, Chiu S, Frazier JA. (2005). Emerging brain-based interventions for children and adolescents: overview and clinical perspective. Child Adolesc Psychiatr Clin N Am. 14(1):1-19, v.
+			- Holtmann M, Steiner S, Hohmann S, Poustka L, Banaschewski T, Bölte S. (2011). Neurofeedback in autism spectrum disorders. Dev Med Child Neurol. 53(11):986-93. doi: 10.1111/j.1469-8749.2011.04043.x.
+			- Lansbergen, M. M., van Dongen-Boomsma, M., Buitelaar, J. K., & Slaats-Willemse, D. (2011). ADHD and EEG-neurofeedback: a double-blind randomized placebo-controlled feasibility study. J Neural Transm, J Neural Transm, 118(2), 275-84. doi:10.1007/s00702-010-0524-2
+			- LaVaque, T. J., Hammond, D. C., Trudeau, D., Monastra, V., Perry, J., Lehrer, P., Matheson, D., & Sherman, R. (2002, December). Template for developing guidelines for the evaluation of the clinical efficacy of psychophysiological evaluations. Applied Psychophysiology and Biofeedback,27(4), 273-281.
+			- Linden, D. E. J., Habes, I., Johnston, S. J., Linden, S., Tatineni, R., Subramanian, L., Sorger, B., et al. (2012). Real-time self-regulation of emotion networks in patients with depression. PLoS One, PLoS One, 7(6), e38115. doi:10.1371/journal.pone.0038115
+			- Loo, S. K., & Makeig, S. (2012). Clinical utility of EEG in attention-deficit/hyperactivity disorder: a research update. Neurotherapeutics, Neurotherapeutics, 9(3), 569-87. doi:10.1007/s13311-012-0131-z
+			- Monastra VJ, Lynn S, Linden M, Lubar JF, Gruzelier J, LaVaque TJ. (2005). Electroencephalographic biofeedback in the treatment of attention-deficit/hyperactivity disorder. Appl Psychophysiol Biofeedback. 30(2):95-114.
+			- Moss, D. (2004). Heart rate variability (HRV) biofeedback. Psychophysiology Today,1, 4-11.
+			- Ros T, Moseley MJ, Bloom PA, Benjamin L, Parkinson LA, Gruzelier JH. (2009). Optimizing microsurgical skills with EEG neurofeedback. BMC Neurosci. 10:87. doi: 10.1186/1471-2202-10-87.
+			- Ros, T., Munneke, M. A. M., Ruge, D., Gruzelier, J. H., & Rothwell, J. C. (2010). Endogenous control of waking brain rhythms induces neuroplasticity in humans. The European journal of neuroscience, The European journal of neuroscience, 31(4), 770-8. doi:10.1111/j.1460-9568.2010.07100.x
+			- Sterman MB, Egner T.(2006). Foundation and practice of neurofeedback for the treatment of epilepsy. Appl Psychophysiol Biofeedback. 31(1):21-35.
+			- Sterman MB.(2010). Biofeedback in the treatment of epilepsy. Cleve Clin J Med. 2010 Jul;77 Suppl 3:S60-7. doi: 10.3949/ccjm.77.s3.11.
+			- Thompson L, Thompson M, Reid A.(2010). Neurofeedback outcomes in clients with Asperger's syndrome. Appl Psychophysiol Biofeedback. 35(1):63-81. doi: 10.1007/s10484-009-9120-3.
+			- Vernon D, Egner T, Cooper N, Compton T, Neilands C, Sheri A, Gruzelier J. (2003). The effect of training distinct neurofeedback protocols on aspects of cognitive performance. Int J Psychophysiol. 47(1):75-85.
+			- Yucha, C., & Gilbert, C. (2004). Evidence-based practice in biofeedback and neurofeedback. Wheat Ridge, CO: AAPB.
+			- Optional (books):
+			- Coben (Editor) & Evans (Editor) (2010). Neurofeedback and Neuromodulation Techniques and Applications
+			- Demos, J. N. (2005). Getting started with neurofeedback. New York: W. W. Norton & Company.
+			- Kropotov (2008) Quantitative EEG, Event-Related Potentials and Neurotherapy.
+			- Schomer (Editor), Lopes da Silva (2010). Niedermeyer's Electroencephalography: Basic Principles, Clinical Applications, and Related Fields.
+	- Blood & Urine testing
+	    collapsed:: true
+		- Freestyle Lite Glucometer - Similarly to blood pressure, you should check in every now and then with your blood glucose levels and clearance. Some important benchmarks are 12hr fasted blood glucose, and values taken every 30m or so for 2 hours postprandial (after eating a typical meal). - See more at: http://www.ebay.com/sch/sis.html?_nkw=Freestyle+Lite+Meter+Freestyle+Lite+Glucometer&rt=nc&LH_PrefLoc=2
+		- CardioChek PA Blood Analyser - £574 http://www.bhr.co.uk/shop/cardiochek-blood-analyser/#tab-description
+		- CardioChek – A device that uses test strips to read a variety of things. Total cholesterol, HDL, LDL, Triglycerides and glucose. I test my lipids once a month and glucose once every two weeks. Just takes a drop of blood on each strip.
+		- UAsure – A device to read blood uric acid levels. Also uses test strips. I live in fear of gout.
+		- Urinalysis reagent strips – Dipsticks for urine that test ten parameters. I do it every two weeks. Just bought the UCheck app for my iPod and the little physical kit that comes with it that allows the iPod to read the strips using the camera. Supposedly more accurate. We’ll see - See more at: http://biohackyourself.com/tools/#sthash.GUPqV3tV.dpuf
+	- BodyMedia Fit / Ki Performance Armband (£270 for year)
+	    collapsed:: true
+		- BodyMedia Fit / Ki Performance Armband (£270 for year)
+		- The BodyMedia Fit measures heat (skin temperature), moisture (galvanic skin response) and movement to help monitor calories burned.
+		- Bodymedia Core Armband – Definitely the gold standard in measurement of passive calorie intake. I dig the fitbit, the Nike Fuel Band and Jawbone Up, but ultimately, they calculate calorie burn solely by using the accelerometer. The Bodymedia armband has a number of different sensors to more accurately calculate calorie burn. I also use the Bodymedia website/app to track calorie intake.
+		- My Measured Life: Graphs and Insights from Wearing The BodyMedia Fit Armband
+		- March 17, 2013, 6:34 am
+		- For the past few weeks, I’ve been wearing the BodyMedia Fit Link Armband. It provides a measurement of how many Calories per minute I’m burning. Using a combination of motion measurement with an accelerometer, steps taken, galvanic skin response (skin moisture), skin temperature, and heat flux (heat produced by the body that escapes), it can provide these measurements with a mean error less than 10%. It also provides data on when I was actually asleep at night, total sleep time, and brings in data from third party services like MyFitnessPal (where I’ve been tracking food intake) to provide net caloric balance. It’s got a mobile app that syncs over Bluetooth, so I can get graphs on-the-fly of my caloric burn during various parts of the day. I’ve noticed a few interesting trends, and I wanted to share them here.
+		- This is a graph of Calories burned per minute on a day where I ran in the morning before work, and lifted weights after work.
+		- RunningLifting.PNG
+		- This is a graph of Calories burned per minute on a day where I went skiing.
+		- Skiing.PNG
+		- This is a graph of Calories burned per minute on a day where did an hour of hot yoga before work (6 AM – 7 AM).
+		- Yoga.PNG
+		- This is a graph of Calories burned per minute on a day where I did a lot of weightlifting (short heavy sets) and a quick run, followed by some walking around to run errands afterwards. I also went out to bars the night before, which explains that 2 AM spike for the stumble home.
+		- LongLiftJogWalk.PNG
+		- Here are a few of my most interesting observations from this data:
+			- Not surprisingly, running is the most time-efficient way to burn calories. I was running at roughly an 8:30 pace, and was right around 10 Calories burned / minute the entire time.
+			- When I’m at my desk, I may as well be asleep as far as my caloric burn is concerned. That’s a scary thought for those of us with desk jobs. Even scarier: most of the time I’m using a standing desk, which didn’t seem to affect much. Those spikes throughout the work day are just when I wander around to other people’s offices.
+			- Lifting weights burned about 3x the amount of Calories per minute as sleeping, but at 5 Cal/minute, it’s still only about half that of running. Lifting is obviously beneficial for other purposes though, like gaining strength.
+			- That skiing graph is pretty funny to look at. It’s obvious where I took lunch, and skiing seems to provide running-like caloric burn rates when on the hill, but low points at about ~2x sleeping while sitting on the ski lift between runs.
+			- In general, I’m amazed at how fast my caloric burn rate returns to that of sleeping after I work out. It seems to have little effect on my burn for the rest of the day.
+			- The yoga day is perplexing to me. The caloric burn during the yoga class was surprisingly low, never exceeding 6 Cal/minute. This can be attributed to one or both of the following:
+			- All of that sweating really is just from the room being 104 degrees.
+			- The BodyMedia Fit is poor at estimating in this case since there isn’t a lot of bipedal movement to make the accelerometer think I’m in motion.
+			- Another interesting takeaway from yoga: It took a long time for my caloric burn rate to return to my sleeping rate after I finished. The class was 6 AM to 7 AM, and despite sitting in a car driving home, it took about 45 minutes to decrease below the average rate from the class. My guess is that during this time, my nervous system was still pretty messed up from the temperature change and stressed body movement, and it takes a lot of Calories to recover.
+			- Merely walking around is pretty effective for burning Calories at about 5 Cal/minute. I guess that living 15 minutes from the bus stop to work really is a great lifestyle choice.
+			- Stumbling home from bars is surprisingly effective for burning Calories.
+		- I’m going to continue testing the BodyMedia Fit for at least another couple months, until my free trial of the web service is up. I’d love to chat about my other experiences with the device, its sleep tracking, integration with the mobile app, and other devices you’ve used, so feel free to reach out on Twitter at @gilbert.
+		- Accelerometer (3-axis)
+			- Calibrated range is +/- 2.0g
+			- The minimum resolution is 0.01g
+			- Two-standard-deviation accuracy of +/- 0.05g, up to 1.0g on longitudinal axis
+			- Two-standard-deviation accuracy of +/-12.0% of expected value otherwise on the longitudinal axis
+			- Two-standard-deviation accuracy of +/- 0.06g up to 1.0g on the transverse axis
+			- Two-standard-deviation accuracy of +/-12.0% of expected value otherwise on transverse axis
+			- Two-standard-deviation accuracy of +/- 0.06g up to 1.0g on the forward axis
+			- Two-standard-deviation accuracy of +/-12.0% of expected value otherwise on forward axis
+		- Ki Fit Armband Reverse
+		- Heat Flux
+			- Calibrated range is 0.0 W/m2 to 300.0W/m 2
+			- A minimum resolution of 1.0W/m 2
+			- Two-standard-deviation of +/-10.0W/m 2 at heat flux less than 50W/m 2
+			- Two-standard-deviation of +/-35.0% of expected value otherwise
+		- Galvanic Skin Response
+			- Calibrated range is 56k Ohms to 20M Ohms (50.0 nSiemens – 17.0 uSiemens)
+			- Two-standard-deviation accuracy of +/- 7.0 nSiemen up to 233.34 nSiemens reading
+			- Two-standard-deviation accuracy of +/- 3.0% of expected value otherwise
+		- Skin Temperature
+			- Calibrated range is 20.0°C to 40.0°C
+			- A minimum resolution of 0.05°C
+			- Two standard deviation accuracy of +/- 0.8°C
+	- CoreControl ™ Cooling Glove
+	- Cranial Electrotherapy Stimulator
+	    collapsed:: true
+		- CES - Cranial Electrical Stimulation ](null)[ Russian sleep machineElectrosleep machine](null)[](null)[Oasis Pro previously Cesta - Cranio-Electro Stimulation (CES) from Electronic Healing](null)[http://www.electronichealing.co.uk/cesta.htm
+		- £350 CES/tdcs
+			- CES £350
+				- Oasis Pro machine (5/11/13)
+				- poss reduce sleep debt, aid focus or relaxation
+				- http://forum.bulletproofexec.com/index.php?/topic/5896-oasis-pro/
+		- alpha-stim
+		- If you are an insomniac, CES is shown to be a safe and effective treatment for insomnia, according to this study. can treat anxiety and drug addiction
+			- anxiety](http://psychology.wikia.com/wiki/Anxiety), [depression](http://psychology.wikia.com/wiki/Clinical_depression), [insomnia](http://psychology.wikia.com/wiki/Insomnia), and [drug addiction
+		- Most users report a decrease in anxiety during treatment, and many other report a decrease in anxiety as much as two days later. Some users report a euphoric](http://psychology.wikia.com/wiki/Euphoria_(emotion)) [feeling](http://psychology.wikia.com/wiki/Feeling); they report that their bodies feel "lighter", their [thinking](http://psychology.wikia.com/wiki/Thinking) is clearer, and that they are more [creative.
+		- Clear your mind... improve concentration... reduce anxiety... lift depression... help you sleep...
+		- CESta can also be used for Microcurrent-Electrical Therapy (MET), Transcranial DC Stimulation
+		- $350.00 US http://www.mindalive.com does gamma 100hz
+		- weet spot for gamma around 40 Hz where as 100 Hz put lots of people to sleep. Not a bad thing, but not, as I understand it prime gamma
+		- The current results in an increase of the brain's levels of serotonin, norepinephrine, and dopamine, and a decrease in its level of cortisol. When CES is effective, users are in an "alert, yet relaxed" state, characterized by alpha brain waves.
+		- BRAINWAVE SETTINGS
+		- If I will get less than 4 hours of sleep, I use my CES machine to run a current across my brain at between .5 and 1.5hz, the range of physical regenerative sleep (during sleep?). I’ve had nights of 2.5 hours of sleep at 1.5hz which resulted in me waking fully alert and ready to go. I can sustain 2 hours of sleep for 3 nights in a row, before I start to lose performance.
+		- I set it to run a current across my brain (a carefully shaped, controlled microcurrent) that put my brain into a deep 1.5hz delta state for a half hour as I slept. After waking up, I did another 15 minutes of 40hz Gamma state and experienced one of the most productive days I’ve had in weeks. For completeness, I’m using a NeuroTrek Digital Pro CES machine, which costs about $800 if you can find one.
+		- - or use before bed?
+		- 1) electrosleep machine
+		- programmable cerebro-electrical stimulator/Russian Sleep Machine
+		- -Consider a CES machine if you’re going to go for less than 4 hours of sleep regularly. If a CES is too pricey, a light/sound machine may work as well.
+		- UPDATE: rereading Dave's quote just above, it looks like gamma gets generated by 40 Hz, so this makes sense that doubling frequencies of the Oasis Pro would get you in this range.
+		- Alpha wave - 8-12 hz
+			- Delta wave
+			- Theta wave
+			- Mu wave
+			- Beta wave
+			- Gamma wave
+		- GAMMA
+		- Hand-eye Coordination, problem solving, concentration, energy
+		- BETA
+		- Problem solving, motivation, mood, concentration
+		- ALPHA
+		- Faster learning, creativity, relaxation, problem solving
+		- THETA
+		- Deep relaxation, creativity
+		- DELTA - Improved sleep + healing
+		- Unfortunetly the Oasis Pro doesnt do the Gamma frequenccy. It gets as high as Beta.
+		- can patch the device with a firmware that doubles all the set frequencies. So youcould get Gamma with a patched version.
+		- The frequencies change to 0.2 Hz to 50 Hz plus 100 Hz (100 Hz does not change). There is no research to show that CES will produce gamma waves as the entrainment of CES has never been measured. We have Oasis Pro devices already made for this, but I suggest that you also buy a DAVID Session Editor so you can program the session. Just remember that anything you program in, will be x2, except for the 100 Hz.
+		- I placed my order today with Mind Alive for the following:
+		- Oasis Pro CES device with the firmware modification to double the frequencies;
+		- Session editor;
+		- tDCS functionality (we do research at my company so apparently I can qualify);
+		- > use delta for 45m before sleep or
+		- Training brain to go into these brainwave states (entrainment) mentallion.com
+		- I have used isochronic tones for enhancement. Many use entrainment for meditation (extremely effective), however I do not meditate personally. I was unable to see the beneficial effects of entrainment on meditation for this reason. I decided to use beta entrainment to increase focus and concentration in a series of IQ tests to see if it offered cognitive advantages. I can attest that, coupled with the use of smart drugs, isochronic tones are extremely effective in the beta frequency. I increased my IQ by around 20 POINTS!
+		- I have also used isochronic tones to attempt entrainment in the gamma frequency (extremely high frequency typically reached by experienced Bhuddist monks during meditation). I used this to enter an energetic meditative state before working out in the gym. It is amazing how well this works. It is better than drinking red bull or coffee (and healthier).
+		- Cranial Electrotherapy Stimulator
+		- Current generated flows through clips placed on the earlobes
+		- Output current adjustable from 80 to 600 microAmperes
+		- Circuit diagram:
+		- Parts:
+		- R1____1M5 1/4W Resistor R2__15K 1/4W Resistor R3____100K Linear Potentiometer R4____2K2 1/4W Resistor C1____330nF 63V Polyester Capacitor C2____100µF 25V Electrolytic Capacitor D1___3mm. Red LED IC1____7555 or TS555CN CMos Timer IC IC2____4017 Decade counter with 10 decoded outputs IC SW1____SPST Slider Switch B1__________9V PP3 Battery Clip for PP3 Battery Two Earclips with wires (see notes)
+		- Device purpose:
+		- treatment of anxiety, depression, insomnia, and chemical dependency. CES units generate an adjustable current (80 to 600 microAmperes) that flows through clips placed on the earlobes. The waveform of this device is a 400 milliseconds positive pulse followed by a negative one of the same duration, then a pause of 1.2 seconds. The main frequency is 0.5 Hz, i.e. a double pulse every 2 seconds. Some people report that this kind of minute specialized electrical impulses contributes to achieve a relaxed state that leaves the mind alert.Obviously we can't claim or prove any therapeutic effectiveness for this device, but if you are interested in trying it, the circuit is so cheap and so simple to build that an attempt can be made with quite no harm.
+		- Circuit operation:
+		- IC1 forms a narrow pulse, 2.5Hz oscillator feeding IC2. This chip generates the various timings for the output pulses. Output is taken at pins 2 & 3 to easily obtain negative going pulses also. Current output is limited to 600µA by R2 and can be regulated from 80 to 600µA by means of R3. The LED flashes every 2 seconds signaling proper operation and can also be used for setting purposes. It can be omitted together with R4, greatly increasing battery life.
+		- Notes:
+			- In order to obtain a more precise frequency setting take R1=1M2 and add a 500K trimmer in series with it.
+			- In this case use a frequency meter to read 2.5Hz at pin 3 of IC1, or an oscilloscope to read 400msec pulses at pins 2, 3 or 10, adjusting the added trimmer.
+			- A simpler setting can be made adjusting the trimmer to count exactly a LED flash every 2 seconds.
+			- Earclips can be made with little plastic clips and cementing the end of the wire in a position suited to make good contact with earlobes.
+			- Ultra-simple earclips can be made using a thin copper foil with rounded corners 4 cm. long and 1.5 cm. wide, soldering the wire end in the center, and then folding the foil in two parts holding the earlobes.
+			- To ensure a better current transfer, this kind of devices usually has felt pads moistened with a conducting solution interposed between clips and skin.
+			- Commercial sets have frequently a built-in timer. Timing sessions last usually 20 minutes to 1 hour. For this purpose you can use the Timed Beeper](http://www.redcircuits.com/Page7.htm) the [Bedside Lamp Timer](http://www.redcircuits.com/Page4.htm) or the [Jogging Timer circuits available on this website, adjusting the timing components in order to suit your needs.
+		- A sampling of research
+		- Insomnia
+		- Weiss, M.F. The treatment of insomnia through electrosleep, J Nerv & Ment.Dis. 157(2): 108-120, 1973. Patients with objectively measured insomnia were selected randomly from volunteers. After pre-treatment baseline (3 nights) 24 CES treatment and simulated treatments in a double blind manor latency of sleep onset was significantly decreased in CES group, and wake time decreased in CES group, but not in sham group. Stage 1 sleep also decreased significantly in CES group. (Modified author abstract)
+		- Long term follow up of insomnia treatment
+		- Cartwright, R.D. & Weiss, M. F. The effects of electrosleep on insomnia revisited, J Nerv & Ment. Dis. 161 (2): 134-137, 1975. Two year follow up done at U of Ill. of Weiss's. The treatment of patients, with the exception of 1 person, continued to be free of insomnia 2 years later. Of the sham treated group, 4 had difficulty sleeping but 3 of the 5 awoke moderately well rested. (Modified author abstract)
+		- Treatment of ((66a2d2f3-2757-4602-af49-61b6a7663e3d))
+		- Shealy, C, et al, Depression: A diagnostic, neurochemical profile and therapy with CES, J of Neuro. & Ortho. Med Surg. 10(4): 319-21, 1989. Research was conducted with 4 groups: (1) "normal group", (2) intractable chronic pain, (3) chronic pain with depression, and (4) longstanding depression unresponsive to medication. Psychological tests, serotonin and cholinesterace levels were measured pre and post. Depressed patients improved most with treatment; 60% reported improvement, 44% of the pain patients reported improvement. In the depressed patients, after treatment, both serotonin and cholinesterace levels improved significantly. (Modified author abstract).
+		- Treatment of Anxiety
+		- Schmitt, R. Capo, T. & Boyd, E. CES as a treatment for anxiety in chemically dependent persons. Alcoholism: Clinical and experimental Research. 10(2): 158-160, 1986. 60 substance abusers, mean age 33.9, were given either CES (30), sham CES (10), or (20) no expr. treatment. Four psychological measures administered pre and post. CES and sham patients received 30 min. of treatment daily for 15 days. Treatment t-tests reveal CES patients had significantly greater improvement than did either control group. No placebo effect noted. (Modified author abstract.)
+		- Drug abuse - Modification of brain wave activity
+		- Braverman, E. & Blum, K. Modification of P300 amplitude and other electrophysiological parameters of drug abuse. Cur Ther Res. 48(4): 586-56, 1990.
+		- Device: HealthPax, 100 Hz, 20% duty cycle, 1.0 mA, no dc bias, square waves, electrodes at left wrist and forehead.P300 waves have a reduced amplitude in many alcoholics, which does not revert to normal, even after continued abstinence. 13 alcohol and/or drug abusers and 2 staff controls were selected as they entered the clinic for a computerized EEG. All were given 40 minutes of CES between pre and post EEG. There were no significant changes in the controls. Following the CES the patient's P300 amplitude increased significantly (P<.05). The time went from a pretreatment of 308 to 317 msec post-treatment. The amplitude (dV) sent from pretreatment of 7.0 to 9.9 post-treatment. Also there were significant positive shifts in alpha, delta, theta and beta spectra in patients who were abnormal in one or more of these areas prior to CES treatment. It was concluded that CES might be a significant non-drug treatment for the underlying electrophysiological disorder of the drug abuser, because the normalization of these electrophysiological parameters are characteristic of pharmaceutical treatment. (Modified author abstact)
+	- Continuous Heart Rate Variability Recording for $70
+	    collapsed:: true
+		- Written on October 22, 2012 by Nick in Uncategorized
+		- Heart rate is an interesting signal when you’re working out, and it’s sort of interesting indicator of cardiovascular health when you’re resting. But if you look at the variation in the intervals between heartbeats (HRV: heart rate variability), then you get a good indicator of emotional arousal, stress, breathing rate, and even sleep quality.
+		- So, if I want to continually measure my HRV all day, especially while I’m working at my computer, what do I do? Complain about how inconvenient it is for a year, and then hear from Randy at BodyTrack / Fluxtream about the Polar H7, which can send RR intervals using Bluetooth Low Energy for days at a time on a charge. A day later: he’s written a Mac app to connect to the strap and send the data to BodyTrack / Fluxtream. A day after that: I’ve ported that app to iOS. If you have an iPhone 4S or 5, an iPad 3, or a 5th gen iPod touch, then you can pick up a Polar H7 and some extra batteries, email me (nick@skritter.com) Randy to see about getting a copy of the app, or just check GitHub for the code, and have HRV data forever. I’m shocked at how easy the new Bluetooth protocol makes pairing. You never have to think about it.
+		- https://github.com/fluxtream/fluxtream-capture-ios
+		- And, since the data is on Fluxtream, you can easily compare the data–to the second–with any other data streams you want to hook up, like FitBit, Zeo, BodyMedia, Withings, Google Latitude, Quantified Mind, Flickr, Picasa, Twitter, Mymee, Last.fm, Github, or any custom connector you want to hook up to their API. I can see, for example, how different songs affect my emotional arousal, or how stressed out I am depending on my location. Nice.
+	- Dear Dave/lostfalco's Biohacking Extravaganza
+	    collapsed:: true
+		- Dear Dave, I'm guessing that you read through these forums occasionally so I'm gonna address some of this massive post to you (with various side comments to everyone who might be reading this). This is a huge thank you letter, an explanation as to why I think you are The Godfather of biohacking, and a catalog of some of my experiences and questions. While I don't agree with everything (I wouldn't have a prefrontal cortex if I did!), I do agree with A LOT and I think it's time I made my thanks public and that I give you the props that you deserve. Here goes.
+		- Dear BP Community: You guys are awesome! Please feel free to share your thoughts and concerns regarding my ideas with me. The brains of the many outweigh the brains of the few...or the one (especially my tiny, 7 plus or minus 2 mammalian brain). I'm just a foolish self-experimenter who lives on pubmed (sorry girlfriend, I'll talk to you again someday) so my only request is that you be nice: Jason Hooper (please don't refute me too hard), Katolotus (please don't choke me out), Aaron Lorch (please don't kill me), Ron Swanson (I like your mustache), Pierre Eklund (thanks for the glucose tip), BigPapaChakra (I love your relentless nutrition focus), salamandyr (someday I will neurofeedback with you), and many more......
+		- Note: some sections are unfinished...I will be making MANY edits in the coming days. Just wanted to start this discussion with you guys. =)
+		- QUICK SUMMARY
+		- Favorite Noot: Armodafinil
+		- Favorite Device: laser (or maybe laser + oxygen + BP Vibration plate...it's so hard to choose)
+		- Favorite Racetam: Phenylpiracetam
+		- Favorite Brain Food: Raw Eggs
+		- Favorite Short Term Memory Booster: Vassopressin (very dangerous)
+		- Favorite Stack: PQQ + CoQ10 + laser
+		- ABSURDLY LONG EXTENDED DISCUSSION (-continued on next page)
+		- ABSURDLY LONG EXTENDED DISCUSSION THE BIG GUNS: Modafinil/Armodafinil/Adrafinil, Methylphenidate (Ritalin), Amphetamine Salts (Adderall) Winner: Armodafinil is my favorite noot overall. Enhances mood, working memory, and wakefulness for me. I've gone from 8 hours of sleep per night (with daily naps) to 6 hours of sleep per night (with no naps). Gaining 2 hours of wakeful energy per day has been priceless. No tolerance in my case. Taken daily for 10 months, 150mg in morning. Long-term risk is unknown so use at your own discretion. Most people cycle, I've found no need to so far. Where to Buy: from your local pharmacy with prescriptionhttp://www.modup.net/https://mymodafinil.net/http://www.antiaging...rafinil-olmifon
+		- http://awakebrain.co.../adrafinil.html Dear Dave: Thanks for putting yourself out there on national TV and explaining why you do something that is not socially acceptable to a lot of people. Your example gave me the courage to try something that I'm not sure I would have otherwise tried (I convinced my doctor to give me a prescription). Note: If anybody wants to read an AMAZING article about how to properly use other stimulants for studying (Ritalin, esp), click here. http://thelastpsychi..._correctly.html Note 2: Adrafinil is the legal, but weaker version (it metabolizes into modafinil). Here's a podcast on the legal ramifications of using modafinil without a prescription by a lawyer specializing in online pharmaceutical cases. Bottom line: they're not going to hunt you down for importing modafinil but if they arrest you for some other reason AND catch you with prescriptionless modafinil then you will do extra time. http://smartdrugsmar...ine-pharmacies/ BEST VIRTUALLY UNKNOWN (to non-Bulletproofers) NOOT: Lasers, Photobiomodulation, Transcranial Laser Therapy, low-level laser therapy, led therapy, infrared therapy Comments: I can't believe that everybody is not using this like crazy. It is awesome but hardly anyone mentions it. It is dose dependent and wavelength dependent. Please do your research before using. Look up the work of Karu http://online.lieber...9/pho.2013.3510, Hode http://www.prima-boo...apyHandbook.php , and Hamblin http://www.ncbi.nlm....pubmed/22807422 Check out these recent studies for more info. The first one is the best.
+		- http://www.ncbi.nlm....pubmed/23806754http://www.ncbi.nlm....pubmed/23200785http://dspace.mit.ed...le/1721.1/58558http://www.ncbi.nlm....pubmed/19995444http://www.prima-boo...en-Lectures.php Here's a reddit thread with most of the current studies listed. http://www.reddit.co..._medium=twitter I use 808nm wavelength light to my forehead at 200 mW...it's called the Vetrolaser, and yes, it's for horses with tendon problems (and for humans with thinking problems). I've also used the 660nm Tendlite with awesome results but 808 is my favorite. It increases ATP production, cerebral blood flow, and neurogenesis by adding energy at the cytochrome C oxidase photoacceptor. http://www.ncbi.nlm....les/PMC3104287/ Can't believe that more people don't rave about this. Has massively enhanced the lives of head injury and stroke victims. Highly recommended, very safe (wear goggles please!) Where to Buy: Vetrolaser http://www.vetrolaser.com/ Tendlite http://www.amazon.co...ywords=tendlite
+		- Goggles http://www.eaglepair...lobalPage_ID=76 Note: I'm currently researching WAY cheaper lasers that are just as effective. I'm pretty sure I've found a few high quality options in the $25-$50 range. I'll keep you guys posted. Here's a cool customer review of Eagle Pair OD 4+ goggles (he reviews goggles that block different wavelengths than mine, but same brand). Just scroll down the page for the review. http://laserpointerf...ebay-55221.html Conclusion: "Completely blocks the specified wavelengths. You need not worry about any eye damage as a result of the beam hitting the glasses." Note: he used a 270mw laser with a 660nm wavelength and a 940mw with a 445nm wavelength. Dear Dave: I got this idea from you. There is no way that I would have ever pointed a laser at my head if I had not heard you talk about it in a podcast and watched you do it in a YouTube video. http://youtu.be/Sc7NNr8KnYs?t=9m36s Seriously man, thank you! You've permanently changed my life.
+		- THE ULTIMATE LASER PROTOCOL aka TULIP (another nod to Longecity's Abelard Lindsay, inventor of CILTEP http://www.longecity...ly-induced-ltp/ ) The Core: PQQ (20mg) + CoQ10 (300mg) + laser. Clearly, this stack centers around mitochondrial function and OXPHOS. So far, it has been mind-blowing! In a good way. =) The idea is simple: add mitochondria, optimize/enhance mitochondrial energy, optimize clean up. Add Mitochondra 1. PQQ (20mg) http://www.amazon.co...eywords=pqq lef Optimize/Enhance Mitochondrial Energy 2. CoQ10 (300mg) http://www.amazon.co...words=coq10 lef 3. laser (808nm 200mw, 2days on, 1day off per 10-20 EEG site) 4. concentrated oxygen (70% oxygen, 3L/min; 3 minute 'sips' every 10-15 minutes, oxygenation tested with pulse oximeter http://www.walgreens...451_pla&adtype={adtype}&kpid=prod6089451&sst=65bde3b7-52ce-49a8-5aa8-0000734a440c ) 5. glucose (3tsp) (Dave, what is your recommendation here? I've been trying rice glucose as well as a glucose-that-shall-not-be-named. I remember that you once recommended 3 teaspoons of glucose in BP Coffee/day to an LSAT student you were coaching. What did you use?) 6. D-ribose (5g/day) http://www.amazon.co...d-ribose jarrow Optimize Clean Up (this still needs significant work on my part) 7. Oxeloacetate (100mg) http://www.bulletpro...-aging-formula/ 8. Glutathione (1 pump every 3-4 hours) http://www.bulletpro...ed-glutathione/ Future Experimental Directions: 9. Creatine (I have some on the way and will add it this week) 10. EPO I may try a hypoxic tent http://www.hypoxico....g-systems.shtml , intranasal EPO http://www.ncbi.nlm....pubmed/23813967 , injectible EPO (anybody have Lance's phone number?), etc. For those of you that blindly follow the media, EPO is not dangerous when used in doctor-monitored, reasonable amounts. If too much, then blood thickens, then death. If proper amount, then more red blood cells, then more oxygen, then more intelligence. It's illegal without a prescription. Hypoxic tent/room/mask is probably the better choice (just ask Michael Phelps http://www.hypoxico.com/ ), though expensive. I'll provide extensive links below on the utterly AMAZING neuroprotective and neuroenhancing properties of EPO. It enhances neuroplasticity, memory, attention, neurogenesis, and hippocampal function while reducing depression. It even affects cognitive function without affecting red blood cells! 11. Resveretrol Spray http://www.prototype...p?ProductCode=R and Leucine (thanks to Joe Cohen from http://selfhacked.com/ for introducing me to this idea...btw, it's not necessary to use spray here) 12. Metformin http://www.antiaging...formin-metforal 13. Mitoquinone 14. Idebenone http://www.newstarno...s.com/index.php 15. Ursolic Acid Spray (50 sprays) http://www.prototype...?ProductCode=UR I'm very interested in this substance for it's antiinflammatory properties and it's purported ability to mobilize brown fat to burn white fat. I do have concerns about possilble temporary infertility in males and it's somewhat untested state. (see the Examine.com article below for more info) 16. NADH 17. IAS's ATP-Boost (combo of ALCAR, ALA, and ATP)
+		- 18. Methylene Blue http://www.amazon.co...=methylene blue ( read this amazing article for info on methylene blue and its relationship to photobiomodulation http://www.ncbi.nlm....pubmed/23806754 ) Special Acknowledgments: Dr. Ward Dean: There is an excellent 4 paragraph discussion of mitochondrial optimization on page 17 of 'Aging Matters Magazine' (Issue 2, 2013) by 'Smart Drugs' author himself Dr. Ward Dean. Here are his recommendations: 1. Increase Number of Mitochondria: PQQ, 2. Increase Mitochondrial Energy Producing Intermediates: D-Ribose (5g/day), Creatine (5g/day), CoQ10SR (100mg/day), NADH, and IAS's ATP-Boost (combo of ALCAR, ALA, and ATP). Dave Asprey: Introduced me to the idea of photobiomodulation/low level laser therapy in a podcast. Con Stough and Andrew Scholey: Introduced me to the idea of concentrated oxygen and glucose as nootropics. Studies/Sources PQQhttp://www.ncbi.nlm....les/PMC2804159/http://www.fasebj.or...bstracts/540.21http://en.wikipedia....inoline_quinonehttp://www.lef.org/m...chondria_01.htmhttp://examine.com/s...noline quinone/
+		- Source: http://en.wikipedia....inoline_quinone "In humans, in one double-blind, placebo-controlled clinical trial conducted in Japan in 2007, supplementation with 20 mg per day of PQQ resulted in improvements on tests of higher cognitive function in a group of 71 middle-aged and elderly people aged between 40-70, who outperformed the placebo group by more than twofold in their standardized memory tests.[18] Interestingly, co-administration of the unrelated compound coenzyme Q10 (CoQ10) further improved performance on standardized memory tests when subjects also took 300 mg per day of CoQ10. No adverse effects were linked to the supplementation, and the results suggested that PQQ, especially when combined with CoQ10, can be used to improve mental status and quality of life in older patients, and help slow or prevent age-related cognitive decline in middle-age patients. However, the study was not peer-reviewed and was published in a non-academic journal. No proper scientific study of PQQ effects on memory or cognition in humans has been conducted, as of 2013." Ursolic Acidhttp://www.ncbi.nlm....pubmed/23707761http://www.ncbi.nlm....pubmed/21496491http://www.sciencedi...006295207004339http://www.sciencedi...889159111002066http://www.ncbi.nlm....pubmed/23690863http://en.wikipedia....ki/Ursolic_acidhttp://examine.com/s...cid/#summary8-2 Oxygenhttp://www.amazon.co... stough scholeyhttp://www.ncbi.nlm....pubmed/18569150http://www.ncbi.nlm....pubmed/17395994http://www.ncbi.nlm....pubmed/22285726http://www.ncbi.nlm....pubmed/17662686http://www.ncbi.nlm....pubmed/19429029http://www.ncbi.nlm....pubmed/20080151 Glucosehttp://www.amazon.co... stough scholey EPOhttp://neuroscene.com/?p=234http://miskowiak.dk/publications.htmlhttp://www.amazon.co...uman capacities
+		- Recent Meta-Analysis:
+			- "METHODS: We systematically reviewed the published findings from animal and human studies exploring the potential of EPO to treat depression-related cognitive dysfunction and depression.
+			- RESULTS: We identified five animal studies (two in male rats, two in male mice and one in male rats and mice) and seven human proof-of-concept studies (five in healthy volunteers and two in depressed patients) that investigated the above. All of the reviewed animal studies but one and all human studies demonstrated beneficial effects of EPO on hippocampus-dependent memory and antidepressant-like effects. These effects appear to be mediated through direct neurobiological actions of EPO rather than upregulation of red cell mass.
+			- CONCLUSIONS: The reviewed studies demonstrate beneficial effects of EPO on hippocampus-dependent memory function and on depression-relevant behavior, thus highlighting EPO as a candidate agent for future management of cognitive dysfunction and mood symptoms in depression. Larger-scale clinical trials of EPO as a treatment for mood and neurocognitive symptoms in patients with mood disorder are therefore warranted."
+			- Photobiomodulation/Low Level Laser Therapy
+			- (see above discussion for studies)
+		- COFFEE--Bulletproof Coffee + grass-fed butter (Kerrygold) + MCT/Octane Oil
+		- Comments--have been drinking this for over a year now with extremely good results. Mental clarity, focus, appetite regulation, etc. Dear Dave--Um, you may have heard of this one. =) What I really love about your coffee (besides the intermittent fasting and mental benefits) is the lateral thinking involved here. Most people wouldn't think that a trip to Tibet could inspire an entire business but it has. It totally reminds me of Steve Jobs and calligraphy (minus a few billion dollars...but who knows, right?). Daniel Pink and right-brainers ruling the future comes to mind as well. Thanks for this. I get my Brain Octane soon and I'm really looking forward to trying it! NEUROSTEROIDS: Pregnenolone, DHEA Comments-- Neurosteroids are a fascinating new (relatively) brain enhancement area. Pregnenolone has worked amazingly well for me so far. Recent studies have shown safety at over 500mg per day for 3+ years (for schizophrenia patients), but most of the time 50mg or even 5mg will do (Ray Sahelian's recommendation). Please practice minimum effective dosing! Megadosing is almost always ill advised. My principle is this: All is Goldilocks. Not too hot, not too cold...just right. I realize this principle is mentioned ad nauseum in modern popular science writing so please forgive me. =) A recent study shows that Pregnenolone increases NMDA response by a novel route. "PregS approximately doubles the cell’s response to NMDA via a mechanism that is pharmacologically and kinetically distinct from rapid positive allosteric modulation by PregS. The number of functional cell surface NMDARs in cortical neurons increases 60 -100% within 10 min of exposure to PregS" Kurzweilai.net Article: http://www.kurzweila...-mental-decline Journal Abstract: http://molpharm.aspe.../mol.113.085696 (the Full Text PDF is on the right hand side of this page) Since there's so much conflicting info on the internet about dosing, I went to the university library near my apartment and looked up the official dosing used in various studies. Here's what I found. All the numbers are daily amounts usually half taken in the morning and half taken at lunch. Escalating dose: 100mg (2wks), 300mg (2wks), 500mg (4wks) (Marx, 2009) 100mg for 8 weeks or 500mg for 8 weeks (Savitz, 2010); 5 of the patients took 500mg daily for 3 years 30mg for 8 weeks or 200mg for 8 weeks (Ritsner, 2010) There were no major side effects reported and the conclusion was that 500mg/day was well tolerated...(Marx, 2009); (Savitz, 2010); (Freeman, 1950); (McGavack, 1951) Anyway, most of the beneficial effects were reported at the highest dose but obviously this is a very limited set of studies. Additionally, these almost all dealt with schizophrenia patients. So, that's what I found. Weekly escalation might be a thought, but long term safety is based on only 5 patients. That's where the info stands right now. The next question I looked up was DHEA. It is one of the other major neurosteroids and has been reported to have mood and attention enhancing effects. 200mg for 6 weeks (Ritner, 2006) 150mg for 12 weeks (Strous, 2007) These last four are per wikipedia, so verification is needed. 200mg for 24 weeks (Chang, 2002) 400mg for 8 weeks (Rabkin, 2006) 50mg for 12 months (Brooke, 2006) 50mg for 10 months (Villareal, 2006) As you can see, these dosages are pretty high. Again, reported side effects were minimal (but not non-existent). Just as a counterpoint, look up the work of Ray Sahelian. He recommends at most 5mg per day at 5 days max with 2 days off. http://www.raysaheli...egnenolone.html Here are some very interesting articles on pregnenolone that I've compiled.http://www.kurzweila...-mental-declinehttp://molpharm.aspe.../mol.113.085696 (the Full Text PDF is on the right hand side of this page)http://www.ncbi.nlm....pubmed/21756978http://www.life-enha...th-pregnenolonehttp://www.life-enha...nenolone-review
+		- Here's a special journal issue on neurosteroids.
+		- http://www.sciencedi...9600760/131/1-2
+		- EPIGENETIC ENHANCEMENT--Sodium Butyrate, Trichostatin A, SAHA, Crebinostat Comments--Sodium butyrate has been excellent for me so far. Epigenetics is about to change the world so please get on board if you are not already. It involves changing gene 'expression' without changing the underlying DNA and is ridiculously easy to do compared to gene splicing, etc. You can also increase your body's natural sodium butyrate production by eating fiber. The fiber causes your gut bacteria to release sodium butyrate which is an HDAC2 inhibitor that has been shown to massively increase learning and intelligence (mostly in rodents so far though). http://picower.mit.edu/ NaB does have other effects besides impacting brain function so be careful. Here's a recent summary I wrote on the current state of the research.
+		- NaB is a non-specific HDAC inhibitor. Current research indicates that inhibiting HDAC2 specifically is the primary enhancer of learning and [memory.http://www.ncbi.nlm....les/PMC3498958/](memory.http://www.ncbi.nlm....les/PMC3498958/) Attempts are currently underway to create specific HDAC2 inhibitors <a href="http://www.ncbi.nlm....les/PMC3447535/">http://www.ncbi.nlm....les/PMC3447535/</a> but it's a difficult task. Check out these two articles on NaB as an HDAC inhibitor <a href="http://jn.nutrition....33/7/2485S.long">http://jn.nutrition....33/7/2485S.long</a> and also for it's role in learning and memory. <a href="http://www.ncbi.nlm....pubmed/23615664">http://www.ncbi.nlm....pubmed/23615664</a> Here's a quick little summary of sodium butyrate's effects. <a href="https://www.caymanch...m/catalog/13121And">https://www.caymanch...m/catalog/13121And</a>, of course, the wiki on butyric acid. <a href="http://en.wikipedia....ki/Butyric_acid">http://en.wikipedia....ki/Butyric_acid</a> Here's a quote on HDAC inhibition: "Inhibitors of HDACs regulate CREB-dependent transcription (e.g. Fass et al., 2003) and enhance cognition (reviewed in Haggarty & Tsai, 2011). In the case of contextual fear conditioning, enhancement of cognition by HDAC inhibitors is dependent on the functioning of CREB (Vecsey et al., 2007). HDACs are a family of 18 isoforms that catalyze the deacetylation of the ε-amino group of lysine side chains in histone N-terminal tails, and also in numerous other intracellular proteins (Grozinger & Schreiber, 2002; Choudhary et al., 2009). The catalytic mechanism of 11 of these HDACs is critically dependent on a divalent zinc cation coordinated by conserved histidine and aspartate residues within the catalytic site (Bressi et al., 2010). Zinc-dependent HDAC isoforms have been categorized into classes based on structural analyses of the active sites and other domains in these proteins and inhibitor sensitivity (Bradner et al., 2010): class I (HDACs 1, 2, 3, and 8); class IIa (HDACs 4, 5, 7, and 9); class IIb (HDACs 6 and 10); and class IV (HDAC11)." I hope that get's you guys started! Epigenetics is one of the coolest areas of science in our generation. Don't forget to keep following the Picower <a href="Institute.http://picower.mit.edu/">Institute.http://picower.mit.edu/</a> They are doing some very cool work in this area. Here's an excellent popular work on epigenetics that I read a few months ago. <a href="http://www.amazon.co...rds=epigenetics">http://www.amazon.co...rds=</a><a href="http://www.amazon.co...rds=epigenetics">epigenetic</a><a href="http://www.amazon.co...rds=epigenetics">s</a> Here's the entirely free "Cognitive Enhancers" issue of Neuropharmacology. I recommend reading the whole thing...it's awesome!<a href="http://www.sciencedi...nal/00283908/64">http://www.sciencedi...nal/00283908/64</a> ELECTRICITY--tDCS + D-cycloserine Comments--Studies have shown that taking D-cycloserine 2 hours before doing tDCS causes the typical 1 hour after effects of tDCS to last for over 24 hours! Yup, that's real. This has been tested and verified in humans but, amazingly, I haven't seen any biohackers try it yet. I have a major concern about excitotoxicity on this one but I am ridiculously intrigued. Could I learn an entire semester's worth of info in a weekend? Maybe. Most of the testing has been done in the motor cortex, but I see no reason this wouldn't work in the dlpfc. Anybody tried this? I have my tDCS and a 10 pack of D-CYC in front of me but this is very risky. D-CYC has serious side effect potential and 24 hours of anodal excitability could very possibly fry one's brain. Not gonna try it without A LOT more knowledge. Ideas? Experiences? Would love some feedback on this intriguing idea. I've been doing tDCS for over three years now and have this <a href="device.http://www.scriphess...horesis-device/">device.http://www.scriphess...horesis-device/</a> Here's a very inexpensive option for people to try <a href="http://tdcs-kit.com/">http://tdcs-kit.com/</a> and another relatively cheap option. <a href="http://www.biocurrentkit.com/">http://www.biocurrentkit.com/</a> Optimal electrode placement is key here (see 10-20 EEG chart). Anode excites, Cathode inhibits. OXYGEN--Oxygen concentrator, scuba gear, etc.
+		- Comments--100% oxygen breathed for 3 minutes has been shown to increase oxygen blood levels and greatly increase learning...especially memorization and reaction time. Studies have also shown that 30% and 40% at 8L/min work as well. It seems that the dangers of oxygen mostly occur when someone breathes it for a much greater time than this.
+		- Source: http://www.amazon.co... neurocognition
+		- Thoughts on Air: I've already added an oxygen concentrator and scented oils and now I'm looking into hyberbaric chambers or hyperoxic tents. Altitude training/sleeping (10-14 hrs/day) causes your body to adapt by making more EPO and thus more red blood cells (erythropoesis). Here's a quote from the wiki on EPO "Multiple studies have suggested that EPO improves memory. This effect is independent of its effect on hematocrit.[6][7] Rather, it is associated with an increase in hippocampal response and effects on synaptic connectivity, neuronal plasticity, and memory-related neural networks.[8][9] EPO may also be an effective treatment for depression.[7][10]" Of course, I'm also looking into the drug EPO. If you are diligent about monitoring your red blood cell levels and you don't over do it, EPO is actually pretty safe. People run into trouble when they use too much, get too many red blood cells, thicken their blood, and die. Check out this AWESOME book for more info. http://www.amazon.co...uman capacities The audio book is much cheaper ($27). http://www.audible.c...72136461&sr=1-1
+		- Hypoxic Tents: http://www.hypoxico....-products.shtml Elevation Training Mask (unfortunately, I don't think this will stimulate endogenous EPO): http://www.amazon.co...s=altitude mask I'm also looking into Nicergoline. "Nicergoline works by activating the brain’s metabolism and increasing arterial flow, lowering vascular resistance and improving the use of glucose and oxygen. The effect of this is improved mental agility, clarity, perception and concentration." http://www.antiaging...128-nicergoline I've got pure glucose http://www.amazon.co...eywords=glucose and I've got a concentrator, throw in some nicergoline, hop on the vibration plate for 10 minutes and then study for 10 hours. So, hypoxic tent (14 hours) + concentrated oxygen (3 minute sips every 10 min) + nicergoline + glucose. We'll see what happens. Note: vinpocetine + vibration plate was awesome. I had energy for hours afterward. Recent 'Stack': Concentrated Oxygen + Bulletproof Vibration Plate
+		- Recent Uber Nerd Stack: Laser (with goggles!) + Oxygen + BP Vibration Plate
+		- Dear Dave: Have you ever tried this combo? Do you have any concerns about oxygen toxicity or accelerated aging? NEUROPEPTIDES--Vasopressin, Desmopressin, Oxytocin, Big Dynorphin, Russian Peptides, Glandulars, Semax, Selank, Cerebrolysin As we all know, Vasopressin is very dangerous and should be used with extreme caution (and very little water). I have been interested in trying an ultimate neuropeptide stack and using Vasopressin + Semax. I have this Semax. http://www.ebay.com/...=item19db90ed3b Anybody try this? Any cautionary thoughts? It seems to me that this could be a potentially photographic recall stack, but I also want to live. Thoughts here would be appreciated. =)
+		- Where to Buy:
+		- Vasopressin http://www.antiaging...pro-vasopressin Desmopressin http://www.antiaging...52-desmopressin Semax http://www.ebay.com/...=item19db90ed3b RUSSIAN PEPTIDES: Cerluten, Pinealon, PK-O2, Brain Extract, Cytomaxes, Cytogens, and Peptomaxes Comments-- Dr. Vladimir Khavinson discovered that specific peptides interact with DNA and cause gene expression. The DNA for each organ has it's own peptides that turn genes on or off. The basic concept is that certain short peptide chains (generally 3-5 amino acids long) go into promoter sites and cause gene expression. Professor Vladimir Khavinson claims to have isolated over 100 of these chains and tested them on thousands of people over the past 35 years with no side effects.
+		- I recently completed a 10 day run of Cerluten and Pinealon. They were absolutely amazing. Felt like they reset my brain back to optimal functioning levels. Here's Prof. Vladimir Khavinson's homepage. http://www.khavinson.ru/ Here's an excellent summary of the concept of peptide bioregulators. http://www.khavinson...ation-of-ageing Here's a full-text pdf on the effects of peptide bioregulator Pinealon in Wistar rats. http://www.khavinson...on_Ribakova.pdf Here's a YouTube video. Where to Buy: Cerluten http://www.antiaging...-bioregulartors Pinealon http://peptideworldc...8-pinealon.html PK-O2 http://peptideworldc...k/20-pk-01.html GLANDULARS--Brain Beef Glandular, Sphingolin, Porcine Brain Glandular Where to Buy: Brain Beef Glandular http://www.amazon.co...t/dp/B005HZOWIE Sphingolin: http://www.amazon.co...words=spingolin Dear Dave: You're one of the few biohackers that I've heard of that has mentioned glandulars. What are your thoughts on brain beef glandulars and sphingolin (bovine myelin sheeth)? What are my mad cow disease risks if I take these? EXTERNAL TRIGEMINAL NERVE STIMULATION (the first method of deep brain stimulation available without surgery, used for epilepsy patients, mostly while sleeping), Monarch, Christopher Digiorgio Where to Buy: EMS 400 wisdomking.com Oceanside, CA 120 Hz, 250ms, <= 30s on, <= 30s off; asymmetrical biphasic square wave pulse adjustable from 0-100mA; 1.25-inch self adhesive, stimulating electrodes (superior silver-permagel electrodes, Tyco Healthcare/Uni-patch, Wabasha, MN); stimluation between setting 2 and 4 (comfortable level, <20mA) One of the early studies used the EMS 400 from wisdomking.com. Here's the EMS 500. http://www.wisdomkin...scle-stimulator The Monarch device is currently available in Europe by prescription only. TRANSCRANIAL ULTRASOUND STIMULATION--Stuart Hammeroff Study of quantum brain theory fame (along with elite physicist Sir Roger Penrose), 8mhz stimulation, recently 2mhz has been proposed as another very promising option.http://www.ncbi.nlm....pubmed/22664271 "We suggest TUS acts via intra-neuronal microtubules, which apparently resonate in TUS megahertz range."
+		- Here's Dr. William Tyler's site. http://www.tylerlab....ects/ultrasound He's attempting to create commercial versions of TUS through his company Neurotrek. http://neurotrek.com/
+		- NEUROFEEDBACK--the Peanut (nIR), NeurOptimal I was able to purchase this device used (at a significant discount) from a kindly biohacker. http://www.upgradeds...in-trainer.html I've been using it recently with good results and I can't wait to see what sort of improvements I can make. NeurOptimal--I'm currently looking into renting one of these to try it out for peak performance purposes. RACETAMS--Piracetam, Aniracetam, Phenylpiracetam COLD THERMOGENESIS--CoreControl, Cold Thermogenesis Vest I have the CoreControl Glove and have just begun experimenting with it for brain, sleep, and athletic enhancement. I'll report back when I have more information. Where to Buy: http://corecontrolco...ct/corecontrol/ MECHANICALLY INDUCED SYNESTHESIA--I've had this idea for years now and I'm ready to try it. My theory is that the Brainport device (pioneered by neurosceience legend Paul Bach-y-Rita) could be used by healthy people as the ultimate learning and memory tool. For those who aren't familiar with it, the Brainport (there are other devices like it) consists of a grid of electrodes that are placed on your tongue. A video camera feeds electrical patterns into the electrodes based on what it films in the environment. Deviceslike this have been used for decades in the military and they are now being used to give blind people sight. Anyway, it seems to me that the Brainport could be worn while studying and the camera could be pointed at whatever it is that you wanted learn. Instantly, you would have an entirely extra sense to help you remember your assignments. This could be absurdly powerful in my opinion. Is there anyone out there who would be willing to build me one? (They are only for sale in Europe right now for $10,000). There are iterations that also consist of electrodes on the back or stomach and another version that uses sound waves instead. I've messed around with an app that works this way in conjunction with the camera on my phone. Yes, I staggered around my apartment for two hours one Saturday with a blindfold on and my video phone outstretched in front of me. Serious nerd alert. So, any engineer out there who could put together a mouthpiece electrode and write an app to go on my phone? We can talk about price. =) Where to Buy:
+		- Brainport http://www.wicab.com/en_eu/
+		- http://www.seeingwit...om/winvoice.htm
+		- http://en.wikipedia....aul_Bach-y-RitaCES--Russain sleep machine Comments--I've been using this for 20 minutes every night while I meditate before I sleep. I love it. I always seem to need less sleep and I wake up with energy and a positive mood. My Device-- http://www.amazon.co...=sota bio tuner THETA-BURST STIMULATION TRANSCRANIAL MAGNETIC STIMULATION ESSENTIAL OILS--Rosemary, Peppermint
+		- My Fundamental Approach
+		- When I sat down to optimize my life, my brain asked this: "what are the absolute, rock-bottom fundamentals?" Answer: qualia (ie. internal subjective mental states). Question 2: "What causes qualia?" Answer: physiology (sorry mystical people, physiology seems like a better guess to me than other non-physical entities). Question 3: "What does the physical world consist of?" Answer: the standard model of particle physics.
+		- So, I hopped on the standard model wikipedia page, did a little reading, and started asking more questions. How can I optimize my spacetime? How can I optimize my photons? How can I optimize my electrons, etc.? I also asked myself about what I consume the most. I came up with obvious answers like air, photons(not sure 'consume' is the right word here, but you get the idea), water, and food.
+		- I'm sort of surprised that more people don't thoroughly consider the things they consume the most first: air, water, light, sound, smells, and food (these categories are imperfect and not necessarily in order...though close). People seem to focus so much time on food and vitamins in particular (which is actually just a very small subcategory of food). When you think about how much air and water and light you consume it becomes evident why taking one tiny supplement or pill doesn't always work. It's a miniscule fraction of what you are consuming.
+		- Covey's Countdown (aka The Ultimate Time/Motivation Hack)
+		- One of the late, great Stephen Covey's Seven Habits is 'begin with the end in mind'. With that in mind, I decided to determine my end. Based on family history, statistics, etc. I currently plan on dying on January 1st, 2060 (sorry Ray and Aubrey, I really hope I'm wrong!). I keep a countdown timer running on my computer and on my phone to remind me that life is precious. As I write this, I have 16,971 days, 13 hours, 9 minutes, and 23 seconds left. I always thought that 'live like you're gonna die tomorrow' was a ridiculous principle anyway. ha
+		- http://www.timeandda...ountdown/create
+		- https://play.google....countdown&hl=en
+		- The Intelligence Feedback Loop (IFL)
+		- One of My Guiding Principles: use intelligence to create intelligence. I decided to start by figuring out what the number one smart drug was and then use the enhancement caused by that smart drug to study other noots...kind of a virtuous feedback loop, if you will. Anders Sanberg has said that modafinil is the best and I think he's right.
+		- Thoughts on the Oft Mentioned "Limitless" (spoiler alert!)
+		- The best part of the movie in my opinion is the part at the end where he is taking zero drugs. My ultimate goal is to take as few things as possible. This is the reason that my stack does not consist of 14 different pharmaceuticals. Interactions and measurements become increasingly unpredictable as the number of substances increase.
+		- Justification for All My Experiments
+		- Obviously, the first question that probably comes to mind is this: If you believe in taking a minimal number of things then why are you trying EVERYTHING? Answer: I start with what I think is most fundamental and then build on that foundation over time. I pretty much take life on modafinil as my new baseline and everything else is judged on how it interacts with moda. I take one and only one 150mg armodafinil in the morning and then listen to my body very closely the rest of the day. If I'm tired, I rest. When I feel sleepy, I go to bed. You will never see me attempt a 60 hour straight sleepless experiment (unless the face eating zombie apocalypse begins). Additionally, most of my experiments are short term. Most healthy people are going to be fine trying Vasopressin once (not all, however...there is risk). If you take it every day then you are probably going to run into serious problems. I take moda daily because it's extremely well studied, has low addiction potential, and enhances my quality of life significantly. Almost nothing has been studied for 30+ years in a rigorous manner, so I am also taking risks here. Will I get brain cancer at 62? Possibly. I realize that I have to acknowledge this and weigh my decisions accordingly.
+		- All is Goldilocks (aka Goldilocks is a Harsh Mistress)
+		- Almost everything follows an inverted U-shaped dose response curve. Always look for the balance, the just-right...not too hot, not too cold. Megadosing is for mega-fools. On the Virtues of Devices Reasons that Devices Freaking Own: 1) specificity, 2) much lower potential for tolerance. Specificity: molecules and drugs usually have MANY different roles in the body. If you want to target your dlpfc there is NO better way than running a current across it or enhancing it with light. You don't rev up your entire system or deal with as many complications (though there are still some). Tolerance: our bodies are adaptation machines. Dawkins talks about the evolution of evolvability and epigenetics is showing how insanely fast the information content of our bodies can change in response to environment. I think of humans as this: continually expressing information patterns (word tenses chosen intentionally). What's crazy is that not only are we continuously being recreated (we are more like a river than an unchanging structure), but the underlying information itself is constantly changing (mainly your epigenome since your DNA doesn't change much over the course of your lifetime). Mother nature is a ruthless optimizer. If not used, then discarded. If getting nutrient from diet, then stop making endogenously (just ask any bodybuilder about the size of his raisonettes). Devices can often (not always) be used to get around this. There is virtually no way for my body to significantly adapt to a vibration plate that increases blood flow to my brain (although nature is crafty and my tiny mammalian brain is not that smart so I could be wrong).
+		- On Learning and Memory
+		- Check out (if you already haven't) this awesome article on how to properly use Ritalin/amphetamines to study. Summary: imitate test taking conditions as accurately as possible while studying. Take Ritalin before you study and take it before the test. Make sure you are in exactly the same state mentally and emotionally while taking the test as you are while studying. http://thelastpsychi..._correctly.html I've found this principle hugely important: 'practice' for a test, NEVER 'study' for a test. It'll change your academic life. (this is not my own idea btw, just found it helpful) Additionally, this principle: memory is 're-creation', not 'retrieval'. You practice recreating a memory. It is nothing like searching through an old file cabinet or wandering the rows of a library looking for a stored item. It is also 0% like watching a movie stored in your head. This book is fantastic (except for the chapter on memory enhancing supps/drugs) for anybody wanting to get a quick overview of memory.http://www.amazon.co...rt introduction For entertaining videos on change blindness (which partially helps explain why memory is nothing like rewatching a stored video) check out Derren Brown's YouTube videos. http://www.youtube.com/watch?v=vBPG_OBgTWg
+		- How I Get Free Journal Articles I just wanted to share with you guys a quick tip for getting free full-text journal articles even if you are not a university student. I don't know about you guys, but I'm not cool with paying $37 or whatever for a 12 page treatise on the antioxidant properties of rat whiskers. So, in the name of all that's sacred, let me tell you how I got the most recent 50 page photobiomodulation article http://www.ncbi.nlm....pubmed/23806754 by Gonzalez-Lima for free. It's really simple and many of you probably already do it...but I just figured I'd share for those who don't know how to do it yet (sorry non-americans, I've only done this in the U.S. so I'm not sure how to do it elsewhere). So...since I'm not an official university student I just go to my nearest university library, walk up to the "15 minute only" guest computers (with the online catalog, internet, etc.), find the full-text article pdf that I want (university computers have a lot of full-text access that home computers don't), save it to the desktop (usually titled "Damn It Feels Good to be a Gangsta"), open my email, and then send a new message to myself with the article as an attachment or start a new draft message with the article as an attachment (your choice). Then, I just go home, open my email, and download the article while listening to http://www.youtube.com/watch?v=6IJCFc_qkHw
+		- Finally, I read the (nerdy) article and realize that I am actually, nothing like a gangsta at all. The end.
+		- Why Enhancing Healthy People is Justified
+		- It's kind of astonishing to me that there is debate as to whether it's ok to enhance the brains of healthy people, but there is. Here is one of the MANY arguments in it's favor. It goes like this: If smarter scientists, then more inventions like this. http://www.youtube.com/watch?v=btt8U1o-2DQ
+		- The Bulletproof Fundamentals (imo)
+		- I agree with the true Bulletproof fundamentals which are four: 1. Human performance and wellness by ANY and ALL means necessary (London Real podcast), 2. Measurablilty/Quantified Self (Talking20, Allergy Tests, Zeo, etc.), 3. Relentless tinkering and adjustment until optimal performance and wellness are measurably reached (um, pretty much Dave's life) and 4. helping others attain optimization using the experience and surplus energy/intelligence gained through one's own pursuit of greatness (I couldn't be more in agreement with this). Everybody seems to think it's about butter and grassfed beef and mycotoxins, but it's not...those are means, not ends.
+	- Electrical muscle stimulation - Wikipedia, the free encyclopedia
+	    collapsed:: true
+		- http://marcpro.com/
+		- http://www.arpwaveboston.com/arpwave/device.htm
+		- http://www.arpwave.com/corp_contact.htm
+		- http://evosport.com/
+		- Electrical muscle stimulation
+		- From Wikipedia, the free encyclopedia
+		- Jump to: navigation, search
+		- Electrical muscle stimulation (EMS), also known as neuromuscular electrical stimulation (NMES) or electromyostimulation, is the elicitation of muscle contraction using electric impulses. EMS has received increasing attention in the last few years, because it has the potential to serve as: a strength training tool for healthy subjects and athletes; a rehabilitation and preventive tool for partially or totally immobilized patients; a testing tool for evaluating the neural and/or muscular function in vivo; a post-exercise recovery tool for athletes.[1] The impulses are generated by a device and delivered through electrodes on the skin in direct proximity to the muscles to be stimulated.[2] The impulses mimic the action potential coming from the central nervous system, causing the muscles to contract. The electrodes are generally pads that adhere to the skin. The use of EMS has been cited by renowned sports scientists[3] as a complementary technique for sports training and published research is available on the results obtained.[4] In the United States, EMS devices are regulated by the U.S. Food and Drug Administration (FDA).[5] The XVIII Congress of the International Society of Electrophysiology and Kinesiology (ISEK 2010), which took place in Aalborg, Denmark on 16–19 June 2010, had a dedicated session on the subject: Electrical stimulation for testing and training in exercise and sports. As part of it, numerous research papers and reviews have been published.[6][7]
+	- Equipment - Cutting-Edge Solutions For a Better Life
+	    collapsed:: true
+		- ](null)[Air Purifier – cheap, true hepa, relatively quiet, effective. I’ve bought probably 5 different air purifiers over the years and this is on the whole the best. I like air purifiers because they can reduce exposure to mold, toxins, dust, bacteria and viruses, and other particles, but also because they double as a white noise machine. Useful if you live in an urban area.
+		- ](null)[Acupressure mat – for pain relief, stress and insomnia. When I bought this 2 years ago, they didn’t have the top so I only have the flat mat. I didn’t find much benefit from this but it got great reviews. I mainly stand on it once in a while. It’s too annoying to sleep on it.
+		- Back support – Taking care of your back and posture is really important. I’ve bought many back supports. This one is the most versatile. If you have a great chair then this isn’t necessary.
+		- Back massager if you have back pain. Also refer to Vibrational device below.
+		- Berkey Filtration System – This is what I use for myself. I can’t stand the under the sink stuff. I’m not interested in getting a plumber and having to deal with the under the sink filters. Been there, done that. Moved on.
+		- Blender](http://www.amazon.com/gp/product/B00939I7EK/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00939I7EK&linkCode=as2&tag=selfhacked-20) – What I use. 1500 watts make this more powerful than a vitamix and it’s a third of the price. If you can afford it go with the [vitamix. The Ninja has a a single serve feature that I like. This reduces cleaning time and works well.
+		- Beeswax](http://www.amazon.com/gp/product/B00BLQO2L0/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00BLQO2L0&linkCode=as2&tag=selfhacked-20) candles – they supposedly release negative ions in the air, which purifies the air. I haven’t seen any science on this, but it smells good, so why not. You can put it in this [crystal salt holder. It supposedly also releases ions. I use these, but not daily.
+		- Blood pressure cuff – Haven’t found it to be very accurate but even if it’s not that accurate, blood pressure is one of the most important indicators of health. Should be under 115/75 for optimal health.
+		- Book stand](http://www.amazon.com/gp/product/B001J9SFXK/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B001J9SFXK&linkCode=as2&tag=selfhacked-20) and this [portable book stand – don’t know what I’d do without these. My neck would probably hurt and my posture would suck. The first one also doubles as a laptop stand. I’ve bought many book and laptop stands and I’ve settled with these.
+		- Bright light device – large – it’s the one I have. If you aren’t getting lots of sun during the day then I suggest you get this. The reason I bought it is because it was used in a study I read about light being used as a mood enhancer. It works. Light also increases BDNF and has other positive effects. Light is the single most powerful tool you can use to shape your circadian rhythm.
+		- Bright Light Device – portable. If you work in an office and can’t get the big one then I’d recommend this instead.
+		- CES – I use this once in a blue moon. I have a slightly different device that also has tdcs with it, but they don’t officially sell it.. But this has features that I don’t have on my device that seem to have some promise.
+		- Chair](http://www.amazon.com/gp/product/B004PP4YC6/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B004PP4YC6&linkCode=as2&tag=selfhacked-20) (portable) – being outside is important. I use this chair, as it’s very portable, relatively light, and low down so that my feet can stretch. It has a cushion to rest your head, it folds back so you can nap on it, and it’s got straps to carry it like a knapsack. If you live in an urban area, you can use it on a porch, roof or fire escape (like I do). Goes well with this [seat cushion](http://www.amazon.com/gp/product/B002VWJZHE/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B002VWJZHE&linkCode=as2&tag=selfhacked-20). I have the afromentioned cushion, but [this one has better ratings.
+		- Cooking equipment: Stainless Universal Steamer with Cover](http://www.amazon.com/gp/product/B00008CM6L/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00008CM6L&linkCode=as2&tag=selfhacked-20) – fits on most pots. I also like [this stainless steel steamer
+		- Distiller](http://www.amazon.com/gp/product/B00026F9F8/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00026F9F8&linkCode=as2&tag=selfhacked-20) – best rated distiller. This is what I use for myself. Buy with [this. I use this to get rid of fluoride and other residuals. I use the berkey first and then this. I first filter from berkey and then put it through the distiller. The water in the cleanest you’ll ever find – better than reverse osmosis. You really only need the distiller, though. For better taste use 2 carbon filters. No matter what you have in your water, the berkey filter and distiller will get it out. It’s likely the distiller alone with the carbon filter works, but I like the extra safety and I don’t have to clean he distiller as often.
+		- Exercise bike with desk – I really love this. I can exercise while being on my computer. Portable.
+		- Glasses](http://www.amazon.com/gp/product/B00093DJ4M/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00093DJ4M&linkCode=as2&tag=selfhacked-20) (red) – I tried probably 7 pairs of glasses to block the spectrum that blocks melatonin secretion. These are the best and they don’t look bad. Cheap and effective. The red glasses really blocks out all light except red. If you need more visual flexibility, I suggest the [orange glasses. You need to wear them for longer to produce melatonin, but they’re more useful when you need to see more colors.
+		- Glucose Monitor – Fasting glucose is the single most important measurment in checking your overall health. Also good measures are glucose after meals – 1 and 2 hours. Random checks are also useful. These measurements can be a useful tool to indicate health status. If your glycemic control is off then you know it’s time to take steps towards better health. Fasting glucose should be under 85 for optimal health.
+		- Heart rate monitor – Checking your resting and recovery heart rate are tied with the glucose measurements for measuring your health status. Your resting heart rate should be under 60 for optimal health and under 70 for adequate health. To measure your recovery heart rate, exercise as hard as you can for more than 10 minutes. If you run regularly, run fast. If you ride a bicycle, pedal rapidly. Then check your heart rate monitor. Your heart slows down immediately after you stop exercising. Wait exactly sixty seconds and then check your monitor again. If your heart does not slow down at least thirty beats per minute in the first minute, you are in poor shape. If it slows down more than fifty beats in the first minute, you are in excellent shape. You can use the recovery pulse rate to measure improvements in fitness.
+		- Infuser for teas – I’ve bought quite a couple tea infusers. This is the most simple and elegant for a single user, because it requires less cleaning and space. I found myself only using this after a while.
+		- Kombucha Scoby – to ferment my own kombucha. Pretty simple.
+		- Kettle – for brewing water
+		- Ketostrips](http://www.amazon.com/gp/product/B0099WTWTA/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B0099WTWTA&linkCode=as2&tag=selfhacked-20) – I plan on experimenting with ketosis again, so I’ve got these strips prepared. They also test 9 other substances in your urine. The ph of your urine should be about 7. If it’s significantly higher or lower then that means you’re at a higher risk for kidney stones. I also have [ph-paper to test for this. 90-95% of stones are calcium and uric acid stones, which are from acidic urine. Potassium citrate helps for these. Struvite stones are from alkalized urine.
+		- LLLT](http://www.amazon.com/gp/product/B000GAAANG/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B000GAAANG&linkCode=as2&tag=selfhacked-20) before bed. I like that you can take off the rubber part and more easily use it over broader areas of the head. I use this on various parts of the brain and on my thyroid and thymus. Good for arthritis, too, but I don’t have a need for that these days, though at some point in the future I may. The ratings are bad because of bad customer service and over-hyping their product. It definitely has an effect, though. For more targeted lasering I use this [laser pointer .
+		- Molecular hydrogen machine
+		- Molecular hydrogen sticks from youth waters
+		- Molecular hydrogen – Newcell
+		- Molecular hydrogen – magnesium rods
+		- Molecular hydrogen -Dr Hayashi
+		- Oxygen](http://www.aliexpress.com/premium/lovego.html?ltype=wholesale&d=y&origin=y&SearchText=lovego&initiative_id=SB_20140715092950&isViewCP=y&catId=0&I18nSearchText=lovego) concentrator. I recently bought the Lovego 101 for 700 dollars and I am happy with it. It’s expensive, but worth it if you have the cash to blow. Any oxygen concentrator will do. There’s cheaper ones. The one I bought is a more expensive unit. There’s one on [Amazon, but I didn’t buy it because it didn’t seem powerful enough based on the reviews. Breathing oxygen is a fabulous nootropic and mood enhancer, among many other benefits. I listed this item only because I’m in middle of looking for something better. So don’t buy this yet.
+		- Pill Dispenser -
+		- Pull-up bar – best before meals. Best exercise out there. Cheap, quick and effective.
+		- Push-up bar – best before meals. These make push-ups a bit more challenging, so it allows you to build a bit more than regular push-ups.
+		- Pulse Oximeter – Simple tool for measuring heart rate and oxygen saturation. Resting heart rate ideally should be under 60 and oxygen 99%.
+		- Ph paper – to measure acidity/alkalinity of my urine and to test the acidity of kombucha, which is an indicator of how ready it is. This is the best paper I’ve found.
+		- Resistance Band – for biceps, shoulders.
+		- Shampoo for balding males](http://www.amazon.com/gp/product/B007FTZ6J4/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B007FTZ6J4&linkCode=as2&tag=selfhacked-20) – This shampoo has the best ingredients. I bought it three times, but haven’t bought it recently since I’m not very worried about balding these days. Goes well with this [Lipogaine hair loss product. I can’t say I’ve noticed a difference, but I bought them because they had the best ingredients.
+		- Scale](http://www.amazon.com/gp/product/B004L6NTHU/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B004L6NTHU&linkCode=as2&tag=selfhacked-20) for measuring weight and percentage body fat. Confrim body fat percentage with this [caliper](http://www.amazon.com/gp/product/B002VAPHXW/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B002VAPHXW&linkCode=as2&tag=selfhacked-20). Buy this [Scale](http://www.amazon.com/gp/product/B003O5K3JQ/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B003O5K3JQ&linkCode=as2&tag=selfhacked-20) for measuring powders. Buy this[ scale for measuring food. I think this is a necessary item for measuring out powders, food portions, etc..
+		- Standing desk – I use a cabinet file, but if you don’t have any makeshift standing desk then I suggest you get this. Standing is a simple way to improve health.
+		- Storage: Leak-proof portable food container](http://www.amazon.com/gp/product/B007KX5JA6/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B007KX5JA6&linkCode=as2&tag=selfhacked-20), [Banana holder](http://www.amazon.com/gp/product/B002A8HSXW/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B002A8HSXW&linkCode=as2&tag=selfhacked-20), [Egg holder](http://www.amazon.com/gp/product/B002KV79YC/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B002KV79YC&linkCode=as2&tag=selfhacked-20), [Stainless-Steel Tea Tumbler with Infuser](http://www.amazon.com/gp/product/B00004S1CV/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00004S1CV&linkCode=as2&tag=selfhacked-20) (if you’re adding Tea in then put in regular temperature water), [Insulated lunch cooler bag, Larger sealable storage container,
+		- Treadmill Desk](http://www.amazon.com/gp/product/B006M2PJV0/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B006M2PJV0&linkCode=as2&tag=selfhacked-20) or [this newer model](http://www.amazon.com/gp/product/B008BRK9VO/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B008BRK9VO&linkCode=as2&tag=selfhacked-20)- I’d recommend this to anyone who doesn’t already have treadmill and can afford it. I haven’t bought this (yet) because of the price, but it’s on my wishlist. [If you have a treadmill then get this add-on. Again, haven’t bought this, but I plan to get one of these tools at some point. I’m recommending these based on the ratings they got and my desire to buy one.
+		- TENS unit. I’ve never used it but if I did have pain, I’d give this one a go.
+		- TDCS – I never used this one. I have a different device but this seems decent. I ‘ve only used it a handful of times. While I don’t think it’s for me it has its uses.
+		- UBiome – Check your gut bacteria. I just sent it in.
+			- UVB light -If you aren’t getting any sun, it make sense to use this. Don’t overuse.
+		- Whole Body Vibration – When I used to play sports and get really sore I found using this completely abolished the soreness. I’d put it on the highest level for 10 minutes and the area would start to itch. The soreness/pain disappeared immediately. Haven’t had a need for it since. I’ve only used it on sore muscles.
+		- Vibrational plate](http://www.amazon.com/gp/product/B00367HXF4/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00367HXF4&linkCode=as2&tag=selfhacked-20) (whole body vibration) – I actually have [this one. I recommend the former because it got better reviews. The claims about weight loss are bunk. I found it helped with circulation and can enhance supplements that you take by dispersing them throughout your body better.
+		- Wake up alarm .If you don’t have sun then this wake up alarm isn’t a bad tool.
+		- Winter wear: I like to sit outside because of the many health benefits of sun, fresh air, etc..I find it to be a good mood booster. Problem is the cold in the winter. Chronic cold has recently been shown to be a cause of heart disease and other problems for the body. Also, you can eat less because your body doesn’t have to expend as much energy on heat.. Here’s my gear: Warm Coat for winter](http://www.amazon.com/gp/product/B001HQWZ2M/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B001HQWZ2M&linkCode=as2&tag=selfhacked-20) – best investment ever. Lets me be outside when freezing cold with only a tee shirt underneath ( if it’s extremely cold and I’m sitting outside for a while I wear a hoodie underneath). I have a different 900 fill, but if something were to happen to my current coat I’d buy this one. [Warm Pants for winter](http://www.amazon.com/gp/product/B00C1TFO9U/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00C1TFO9U&linkCode=as2&tag=selfhacked-20) – Legs never get cold with these puppies on. I wear a regular pair of pants underneath or [leggings](http://www.amazon.com/gp/product/B006SRTFXM/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B006SRTFXM&linkCode=as2&tag=selfhacked-20). If it gets too hot you can unzip the pants from the side. Great investment. [These Gloves](http://www.amazon.com/gp/product/B00A2F0ZKI/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00A2F0ZKI&linkCode=as2&tag=selfhacked-20) allow me to use my phone, ipad and type on a key board. Buy a size or two larger than normal. I then put these [fingerless gloves](http://www.amazon.com/gp/product/B0038JQUQ8/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B0038JQUQ8&linkCode=as2&tag=selfhacked-20) on top and the results are warm hands no matter how cold it is. I also wear [thermal socks](http://www.amazon.com/gp/product/B009CCRZW8/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B009CCRZW8&linkCode=as2&tag=selfhacked-20) and [boots](http://www.amazon.com/gp/product/B00AJBDESU/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B00AJBDESU&linkCode=as2&tag=selfhacked-20) and my feet never get cold. Most important, a [warm hat](http://www.amazon.com/gp/product/B0069A1J1E/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=B0069A1J1E&linkCode=as2&tag=selfhacked-20) will take care of your head. If it’s super cold I’ll wear this [face mask. With these items, you will never be cold even if you sit outside in the winter.
+	- Gadgets & Sensors
+	    collapsed:: true
+		-
+			- ](null)[Cubesensors – Indoor environment monitoring sensor
+			- Green Goose – Wireless sensors that can be attached to other items to measure activity
+			- iHealth – Multiple health and fitness devices
+			- Lark – Wristband to track physical activity and sleep with software to also track eating and encourage activity
+			- Looxcie – Small behind the ear wearable camera to passively record in first person
+			- Sano Intelligence – A small wearable sensor to capture real-time blood chemistry
+			- Sensoria Smart Sock – Designed to more accurately track running activity
+			- Trace – A fitness tracker for action sports like surfing, skateboarding, and snowboarding
+			- Vicon Revue – Passive camera that takes snapshots based on Microsoft SenseCam pioneered by Gordon Bell
+			- W/ME – A wristband which provides insight towards our mental state & agility.
+			- WakeMate – Records sleep activity data
+			- Withings – Wifi body scale & blood pressure monitor. Tracks data and has iOS & Android appsBodyMedia FIT armband - The gold standard for calorie tracking. Most calorie trackers are just pedometers that estimate calories burnt through movement, which leads to inaccurate results if you strength train or use stationary equipment like an exercise bike. This device has four different sensors including galvanic skin response and heat flux for the most accurate results. Very useful to know when trying to lose fat or gain muscle, plus it measures steps taken and sleep stage.
+		- HAPIfork - The first ever bluetooth-enabled 'smart fork'. This device tracks your eating behaviour and uses vibration feedback to rapidly change your eating habits to savour your food more. This increases food enjoyment whilst reducing calorie intake as you get full faster. Easiest way to start losing weight as it doesn't require any change in your diet and the initial weight loss can be very motivating. Poor reviews
+		- Zeo Personal Sleep Coach - Whilst the company has since shut down, buying one of their bedside devices from eBay is still viable as there apps available which you to download your sleep data without needing the Zeo website. This is the most accurate commercially available device as it uses EEG to measure brainwaves, though if you want more customer support the next best thing available is the Beddit.
+		- Back on Amazon http://bit.ly/a1n8OVFe
+	- Handheld Device TellSpec Can Detect Allergens, Chemicals, and Nutrients In Food
+	    collapsed:: true
+		- BS?
+			- The industrialization of food production freed people up to pursue careers other than farming. But it also incentivized food companies and restaurants to use low-cost ingredients that taste or look good but often are neither healthful nor natural. For people with food allergies or diet-related diseases such as Celiac and diabetes, eating foods with unknown ingredients is a high-risk activity. All of these diseases are on the rise in the United States and other developed countries, according to some researchers due to the same lack of exposure to livestock and soil. For this particular ill of the post-War era, there’s now a 21st-century workaround: a hand-held spectrometer that can determine exactly what is in the user’s food and display it on his or her smartphone.
+			- A Toronto company called TellSpec has developed a spectroscopy data-crunching algorithm that runs in the cloud and delivers nuggets of useful information to the user through a smartphone app. The idea for the device came from co-founder Isabel Hoffman’s daughter, who suffers from gluten intolerance and other food allergies.
+			- “Until recently, spectrometers were large and expensive, but now they are available as tiny affordable chips,” explained Hoffman.
+			- TellSpec has been testing its software using off-the-shelf spectrometers, but it recently completed an IndieGoGo campaign to contract production of its prototyped device, which will power a Raman spectrometer laser beam with batteries that can be recharged through a USB port.
+			- Here’s how it works, in the words of Hoffman’s technical co-founder Stephen Watson.
+			- “Some of the photons [from the beam] are absorbed, raising the energy states of the molecules in the food and replacing them with lower energy photons. The spectrum inside the TellSpec sorts these photons by wavelength and counts them. The resulting numbers, called a spectrum, describe the chemical compounds in the food,” Watson said.
+			- [](null)
+		- TellSpec’s algorithm takes the spectrum data and returns it to the user as a report on common allergens](http://singularityhub.com/2013/11/29/eat-nuts-live-longer-study-says-yes/), trans fats, [sugars](http://singularityhub.com/2013/09/28/fda-approves-artificial-pancreas-you-can-wear/), [mercury and other toxic contaminants. It also provides sodium and calorie counts, providing TellSpec with appeal for a broader audience. As more people use the device, more information about common foods will be added to the algorithm, the company says. Alas, even TellSpec can’t indicate with absolute certainty what is in processed or restaurant food. The scanner correctly identifies foods and ingredients 97.7 percent of the time, according to the company — which isn’t bad but leaves a 2.3 percent chance of a potentially fatal allergic reaction. The scanner can also only identify what its beam hits directly, so heterogeneous foods like salads or stews require multiple scans. That’s not a big deal for the average user, but it could be a very big deal for users who could have a serious reaction from a single hidden breadcrumb or peanut.
+			- Much has been made of the way that mobile technology can give patients more authority over their own health, but in most cases devices serve to track patients’ health statistics between doctors’ visits. TellSpec and a few other emerging devices are letting patients increase the safety of the world around them.
+			- Photos: Dejan Stanisavljevic via Shutterstock.com, TellSpec
+				- This entry was posted in Gadgets](http://singularityhub.com/category/gadgets/), [Longevity And Health](http://singularityhub.com/category/longevity-and-health/) and tagged [allergies](http://singularityhub.com/tag/allergies/), [Celiac disease](http://singularityhub.com/tag/celiac-disease/), [diet](http://singularityhub.com/tag/diet/), [food](http://singularityhub.com/tag/food/), [Isabel Hoffman](http://singularityhub.com/tag/isabel-hoffman/), [nutrition](http://singularityhub.com/tag/nutrition/), [spectrometers](http://singularityhub.com/tag/spectrometers/), [spectroscopy](http://singularityhub.com/tag/spectroscopy/), [Stephen Watson](http://singularityhub.com/tag/stephen-watson/), [TellSpec.
+	- Head-Mounted Devices
+	    collapsed:: true
+		- EEG brain wave headsets CES tDCS eg foc.us Google Glass Zeo
+		- Brain Wave Activity Sensors
+		- Let’s get this out of the way right off the bat: Consumer devices that measure brain wave activity are not as sensitive and accurate as the devices you’ll find in a professional laboratory. However, I imagine in the next five to ten years, we’ll see more accurate and affordable consumer brain wave monitors. Nonetheless, the devices on the market now do a decent job considering what you’re paying.
+		- Mindwave Mobile. This was what I used, and still use when I can get it to work. It will set you back $127. It works with BioZen, but is also compatible with several other apps on the market. However, the other apps are terrible.
+		- My biggest gripe about Mindwave Mobile is its flaky performance. When it works, it works fine. But sometimes I’d have trouble connecting the device to my smartphone. I don’t know what caused the Bluetooth troubles. I’m looking into it, but it appears other people have had this problem too.
+		- Brain Athlete. Does pretty much the same thing as Mindwave Mobile. It’s geared more towards athletes wanting to use bio/neurofeedback to increase focus and mental speed.
+		- Within the next year, several affordable neurofeedback sensors will hit the market. Here are three I’m looking forward to learning more about:
+			- Melon Band. The Melon will launch early next year. It measures your brain activity and the accompanying app lets you know if you’re focused or meditative.
+			- Muse Band. Set to deliver at the end of 2013. Measures EEG and has an accompanying app to help you interpret the results. You can pre-order one now for $269.
+			- Brain Sport. The Brain Sport is an EEG device geared more towards athletes to help them improve their focus, mental speed, and stress response.
+	- Heart Rate Monitor Recommendations for 24/7 Continuous Monitoring and Logging
+	- HEG Training - PFC (focus & self-control)
+	    collapsed:: true
+		- http://forum.bulletproofexec.com/index.php?/topic/2467-me-and-heg/
+		- What does the Prefrontal Cortex do?
+		- •Controls attention, so you screen out distractions and sustain focus;
+		- •Controls physical and verbal impulses, so you think before you act/speak (behavioural inhibition and self-control)
+		- •Moderates emotional and social responses;
+		- •Regulates mood and maintains brightness of mood;
+		- •Controls motivation, so you start and complete tasks on time;
+		- •Organizes, plans, and orients you to goals;
+		- •Predicts future results of current actions;
+		- •Evaluates and ranks options;
+		- •Understands the meaning of what is read/heard/experienced;
+		- •Sustains memories needed for current tasks;
+		- •Processes language;
+		- •Is the center of the Personality.
+		- HEG trains the brain's executive center. The one area of the brain that EEG really can’t do very well, because of electrical artifacts, is the prefrontal cortex (PFC). What does the PFC do?
+		- •Controls attention, so you screen out distractions and sustain focus;
+		- This is one area I really haven't put to the test in a real-world situation. A perfect setting would be a classroom or lecture or something, but as it happens I've been out of school since right before I bought the HEG trainer, and I don't have anything else to measure this by that I can think of. I'm pretty on-task with all the nothing that I do in a typical day, I guess.
+		- •Controls physical and verbal impulses, so you think before you act/speak;
+		- I would say this has certainly improved. Marriage has also trained me up in this respect, but these days if I say something that lands me in hot water, overwhelming odds are that I knew it was coming and did it anyway--and I tend to choose more often to stay out of trouble. Generally, I'm less reactive to provocations, whether from strangers or otherwise. Interacting online like on Facebook or whatever, I can't count the times I started to respond to a remark, get a sentence or so in, and it's like with each character typed out I lose the desire to engage until I end up deleting the whole thing and moving on. This is not just in confrontational situations; a lot of times I recognize I'm likely to be misunderstood, or for that matter about to initiate a conversation that I'm not really all that interested in getting caught up in. There are a lot of little things like that going on these days.
+		- •Moderates emotional and social responses;
+		- Seems to belong to the previous category.
+		- •Regulates mood and maintains brightness of mood;
+		- Seems like most of my life I've spent in more bad moods than good, but in recent months my impression is that the only thing that brings my mood down more than momentarily is if I'm physically low on energy or sleep. That said, I'm not exactly Mary Poppins even on a good day, but in any case I would say things have improved.
+		- •Controls motivation, so you start and complete tasks on time;
+		- Too early to tell. I've gotten some things done or started that I'd been putting off for a long time, but there's still such a pile of things to do on my front burner that if I wanted to say I was starting and completing tasks on time, I'd be sure to check outside for storm clouds first, lest I be struck by lightning.
+		- •Organizes, plans, and orients you to goals;
+		- As above. I have trouble choosing goals, but to the extent that I've been able to settle on any, they've been on my mind daily, and I'm not just pushing them out of consciousness for some other time. But I'm not getting a lot done yet on this score, either. However, I should add that the way I actually view the future has itself undergone some pretty extraordinary changes, but in ways that are hard to pin down, evaluate, and explain. What I used to consider planning for the future I now recognize as idle daydreaming. The future presents itself in my imagination as something with a great deal more reality--density, almost. I think something massive is quietly taking place in this realm, but I don't know what else to say about it just yet. In fact it occurs to me that I may never understand it any better, but I expect a greater level of personal effectiveness becoming evident in the near term.
+		- •Predicts future results of current actions;
+		- I'll have to think about this. It's been completely off my radar.
+		- •Evaluates and ranks options;
+		- Another big-time area of weakness for me. It may be quite some time before I see significant movement on this. Maybe a one-year review would be more the proper time.
+		- •Understands the meaning of what is read/heard/experienced;
+		- I've been too stupid lately with sleep deprivation and intermittent fasting and all the mental fog that comes with that to make a proper evaluation at this time.
+		- •Sustains memories needed for current tasks;
+		- Oh, lord. My short-term memory is so bad lately, I can forget something I intend to do, remember it, lose it again, repeat this cycle several times, all while actually looking at it. Again, I blame recent lifestyle changes--and to the extent that I've been brought to initiate and sustain these changes, I suspect a great deal of credit is due to the HEG: I've been putting off cleaning up my habits, starting exercising, and getting the slop out of my life...well, for years really, but I had a solid starting point planned probably a year and a half ago, and only put it in motion just over 2 months ago. I think HEG helped me get off my ass.
+		- •Processes language;
+		- I haven't noticed anything lately, but my advances with Chinese comprehension are well-documented elsewhere in the record here.
+		- •Is the center of the Personality.
+		- I'll let other people judge that. So far, nobody's offered any feedback.
+		- Some of these areas, I'll have to make a point of paying sharper attention to for the next little while. I've also been mentally tied up with anxiety stuff for the last week or two, but I think I've got a handle on that now, so I'll have more room for focusing on positive developments, hopefully, and update as I find stuff worth passing along. For the moment, it's a decent list, and I'm more than satisfied with my purchase. Plus, I still have unlimited use and benefits yet to come.
+		- Upgraded™ Focus Brain Trainer
+		- Be the first to review this producthttp://www.upgradedself.com/tech/upgraded-focus-brain-trainer.html
+		- Regular Price: $1,295.00
+		- Special Price: $995.00
+		- QTY:
+		- Click on image to zoom
+		- DETAILS
+			- When you order the Upgraded™ Brain Focus Trainer, the inventor builds it for you himself. Please allow 2-3 weeks for delivery.
+			- Upgraded Focus Brain Trainer
+			- The power to pay attention is priceless, but techniques for improving attention span and focus can be difficult to quantify and follow through. Even if you’ve spent years meditating, it’s unlikely you’ve ever had something in your life teach you to put your brain into a complete state of focus. That’s why we just released the ultimate biohacking tool for focus that stands above the rest.
+			- The Upgraded Focus Brain Trainer is a shockingly easy to use and commercially available tool that quickly helps teach the brain to focus better using information from the brain itself.
+			- The Upgraded Focus Brain Trainer uses a high speed, near infrared headband to provide a real time view of oxygen levels reflected from the front of the brain. This real time feedback signal quickly teaches you to consciously increase blood flow to the part of the brain that handles important functions such as focused attention, organization/planning, decision making, working memory, emotional regulation, control of mood, behavior, inhibition and motivation.1
+			- Benefits of Using the Upgraded Focus Brain Trainer
+			- The Upgraded Focus Brain Trainer is designed to help the user learn to naturally increase healthy blood flow to activate the brain’s prefrontal cortex (the most recently evolved part of the human brain). We are targeting activation, metabolism and oxygenation of the brain’s prefrontal cortex to teach your brain to create enhanced:
+			- Focused attention
+			- Decision making
+			- Organization skills
+			- Working memory
+			- Emotional regulation
+			- Control of emotions, mood, behavior, inhibition and motivation
+			- The Upgraded Focus Brain Trainer is an incredibly effective tool for activating executive brain functions more quickly and maintaining higher energy levels and performance in the brain for extended periods of time.
+			- User-Friendly, High Quality, and Incomparable
+			- Feedback appears in real time on your computer screen, within the 350 ms window for optimally training your nervous system.
+			- 30-second set-up and cleanup. Very simple plug and play operation with no sticky electrodes required.
+			- Not a relaxing program, more like “lifting weights for the brain".
+			- Requires no assessment, everyone can do this training.
+			- HEG Studio computer software displays your increases in brain circulation through on-screen visual feedback.
+			- Eye movement and scalp muscle tension artifact do not affect the data.
+			- Flexibility to position the sensors at any site on your head and train that brain area.
+			- Data easy analyzed. See how long it takes to move from your baseline to high activation, how long plateaus are sustained, and also compare sessions.
+			- The Data and Facts
+			- nIR HEG training produced double the increase on TOVA attention tests when compared to increases produced by EEG biofeedback training.
+			- Most users see a 7 – 12% increase in oxygenated of blood flow with training.
+			- Studies show a direct relationship between an increase in frontal lobe performance and trained increases in oxygenated frontal blood supply, to then increase speed and accuracy of decision-making.2
+			- More blood flow also means faster removal of waste metabolites from brain tissues. With continued use, more capillaries and more synaptic connections between neurons are built in the trained area.2
+			- Included in the Upgraded Focus Brain Trainer
+			- nIR HEG sensor headband
+			- USB Signal Processor - translates headband signals to USB
+			- An accompanying downloadable version of HEG studio software
+			- PC or Mac compatible
+			- How Upgraded Focus Brain Trainer Works
+			- The Upgraded Focus Brain Trainer includes a headband with small red and infrared LED lights that shine through the skin and skull to assess the color of brain tissue; light is reflected back to a camera that measures the exact color of oxygenated arterial blood. The headband then sends your brain’s data to your computer so you can correct how you’re doing in real time* … and hack your circulation! *Real time is within the critical 350 ms window required for training your nervous system effectively.
+			- The device actually does nothing to your brain – it simply shows you what your brain is doing so you can train your brain to do more. It shows you your own data from your body so you can use it to make better split-second decisions to manage your own brain, with amazing results in very short time periods.
+			- This real time feedback signals the user to learn to increase blood flow to the brain’s prefrontal cortex. Studies show a direct relationship between an increase in frontal lobe performance and trained increases in oxygenated frontal blood supply, to then increase speed and accuracy of decision making. More blood flow also means faster removal of waste metabolites from brain tissues. With continued use, more capillaries and more synaptic connections between neurons are built in the trained area.2
+			- Research
+			- (1) Tinius,T. (2004). New Developments in Blood Flow Hemoencephalography.Hawthorne Press.
+			- (2) Toomim, H., Mize, W., Kwong, P.C., Toomim, M., Marsh, R., Kozlowski, G.P., Kimball, M. & Rémond, A. (2004). Intentional increase of cerebral blood oxygenation using hemoencephalography (HEG): an efficient brain exercise therapy. Journal of Neurotherapy, 8(3): 5–21.
+	- Hexoskin - wearable athletic activity shirt
+	    collapsed:: true
+		- How it works
+		- Quick start:
+		- Basic mode
+		- 1- Charge your Hexoskin using the USB cable supplied
+		- 2- Register and assign your Hexoskin
+			- - create your account on: my.hexoskin.com
+			- - download and install HxServices on your computer downloads
+			- - connect Hexoskin to computer, start HxServices
+			- - Click on "assign" button to assign Hexoskin to your account
+		- 3- Connect Hexoskin to garment
+		- 4- Go Play!
+		- 5- Connect Hexoskin to computer
+			- - start HxServices to synchronize your data
+			- - review your data: my.hexoskin.com
+		- Real time data monitoring:
+		- - Download & install HxSolo app. (free from App store)
+		- Advanced real time monitoring by a third party
+		- - Add coaches or friends permissions in the account settings from your dashboard: my.hexoskin.com
+		- Thoughtfully engineered, the all-in-one Hexoskin Performance Optimization Toolkit = sports garment with comfortable built-in sensors + connected smart device + intuitive anywhere-access applications
+		- With Hexoskin, you gain real-time access to accurate*, field-context data to monitor and analyze performance and wellbeing—now, over time and from anywhere.
+		- Its all-textile sensors and lack of obtrusive, injury-risking hardware, make it the most practical and comfortable system of its kind. Hexoskin measures:
+			- Heart rate (HR), RR Intervals, Heart Rate Variability (HRV)
+			- Breathing rate
+			- Breathing volume
+			- Step count and cadence
+			- Activity intensity and calories burned, calculated from 3-axis acceleration metrics
+			- Heart rate recovery (HR2)
+			- Estimated VO2 max.
+		- Find out more about our component products by clicking on these links or scrolling down: Hexoskin garment, Hexoskin device, Hexoskin apps
+		- * Trusted by the Canadian Space Agency
+		- The Hexoskin garment is unique: with its integrated 100% textile biometric sensors, it’s as comfortable and flexible as a standard sports compression garment, as well as hygienic and safe.
+		- We designed it to stand up to the tough conditions a committed training program entails, and to be comfortably worn under any protective sports gear (e.g. American football, ice hockey, martial arts). We cut it from a hi-tech, breathable Italian fabric, and fit it to optimize the regulation of moisture and heat. Here are some more ways the Hexoskin garment and Hexoskin-compatible garments bring the greatest comfort available:
+			- No hardware on the plexus or ribs to avoid injury and discomfort
+			- Built-in sensors that can’t slip
+			- Smooth seams that won’t chafe
+			- Manages airflow and moisture
+			- Water-resistant
+			- Machine washable
+		- Learn more about our other component products by clicking on these links or scrolling down: Hexoskin device, Hexoskin apps
+		- The Hexoskin device couples with a Hexoskin-compatible garment to form an advanced system for monitoring physiological data, with unparalleled precision, quality and depth. It is purpose-built to stand up to real training conditions.
+		- Fitting unobtrusively into a specially-designed pocket in your Hexoskin garment, it records your body metrics and gives you immediate access to your performance vectors via your mobile device. Or it keeps your data intact until you can upload it with the supplied device-to-USB connector/charger cable.
+			- 150 hours of data store-and-forward capacity
+			- Smart technology automatically transmits data to in-range mobile device
+			- Secure BLUETOOTH™ wireless communication
+			- Apple MFi-certified
+			- OSX 10.8 and Windows 7-8 compatible software
+			- Low power consumption
+			- Durable construction
+		- Find out about Hexoskin apps below.
+		- Hexoskin applications have been developed to suit your needs. Apple-compatible and -certified (MFi*), our mobile apps provide instant access and context to your data. Our cloud-based reporting tool helps you make the best decisions.
+		- Completely free, downloadable from the App Store, HxSolo enables you, via your phone or tablet, to
+			- Add the time dimension to the recording of your data
+			- Access - as you train - your metrics and performance vectors
+			- Annotate as you change exercise
+			- Compare your current performance with your historical data
+		- Download to try. The stopwatch and exercise annotation can be used without the Hexoskin garment and device.
+		- HxTeam, for coaches and trainers of amateurs or professionals, is also completely free and downloadable from the App Store. It simplifies the evaluation and comparison of more than one athlete by enabling concurrent timekeeping, (simultaneous or staggered), and exercise setting and tracking. From your mobile device, you can:
+			- Visualize your entire list of athletes
+			- Actively manage evaluation and training protocols
+				- Easily add or modify drills
+				- Time protocols and drills with the on-board timer
+				- Add notes to each protocol or exercise
+			- Access your athletes’ complete set of body metrics instantly, and for each protocol, if they are connected via the Hexoskin Performance Optimization Toolkit
+		- Download to try. The stopwatch and exercise annotation can be used without the Hexoskin garment and device.
+		- Hexoskin mobile applications are available for:
+			- iPad (2,3,4 and mini) iOS7
+			- iPhone (4, 4S and 5) iOS7
+			- iPod touch (5th generation) iOS7
+		- * MFi: “Made for iPod,” “Made for iPhone,” and “Made for iPad” mean that an electronic accessory has been designed to connect specifically to iPod, iPhone, or iPad, respectively, and has been certified by the developer to meet Apple performance standards. Apple is not responsible for the operation of this device or its compliance with safety and regulatory standards. Please note that the use of this accessory with iPod, iPhone, or iPad may affect wireless performance. iPad, iPhone, and iPod touch are trademarks of Apple Inc., registered in the U.S. and other countries.
+		- HxDashboard gives both athletes and their coaches immediate access to all the performance information needed for better benchmarking, goal-setting and individual and team achievement in training and competition. Stored in the cloud, all your essential data remains intact and accessible – at no additional cost – from anywhere:
+			- Start analyzing and comparing immediately
+			- Link conditions with performance for better analysis
+			- Compare with baseline to track improvement of performance or injury recovery
+			- Compare with team-mates and training companions
+			- Share with coaches, team-mates or other interested parties, wherever they are
+			- Track, analyze and advise your protégés from another city or country, or while they’re in post-injury rehabilitation
+			- Carry out in-depth physiological evaluations without visiting a lab – performance data will reflect actual conditions and give real results, not falsified by test stress response
+		- HxDashboard offers the following datasets, with more in development:
+			- Essential data: Heart Rate, Breathing Rate, Activity Intensity, step count and cadence, minute ventilation, calories burned – no additional cost
+			- Elite data calculated for you: estimated VO2 max., HRV, HR2, anaerobic threshold, total and max. power, balance and sleep – contact us for details
+		- Create an account. Try it out – email = athlete@hexoskin.com; password = hexoskin.
+		- Like
+		- 49
+	- ithlete Apps for iPhone and Android, ECG Heart Rate Receivers
+	- LLLT/LED Light Therapy/photobiomodulation for mitochondria
+	    collapsed:: true
+		- http://www.longecity.org/forum/topic/63228-lostfalcos-extensive-nootropic-experiments/page-68
+		- Secondly, I'm writing to you today to suggest a relatively unheard of hormetic training regimen: low-level laser therapy.
+		- A summary of the regimen when used transcranially is available here:
+		- http://www.longecity.org/forum/user/11887-lostfalco/ and here: http://selfhacked.com/2013/11/14/my-review-of-lllt/
+		- An academic review of the mechanisms and applications here:
+		- https://dl.dropboxusercontent.com/u/182368464/2013-gonzalez-lima.pdf
+		- And there are numerous citations and experience reports available here:
+		- http://www.longecity.org/forum/topic/63228-lostfalcos-extensive-nootropic-experiments/
+		- From wikipedia: cytochrome c oxidase (the final enzyme in the production of ATP by the mitochondria) absorbs infrared light which stimulates the mitochondrion to increase the production of ATP resulting in an increase in reactive oxygen species, which influences redox signalling, affecting intracellular homeostasis or the proliferation of cells.
+		- So basically enhanced ATP production as a result of a few minutes of pressing an infrared light against your body. Most of the research with transcranial LLLT has been with individuals with heavy brain damage and they show marked improvement with 20m+ daily/almost daily sessions. In the longecity thread above, healthy individuals are finding great results with 2-3m every other day on their heads.
+		- LLLT is also used on the body to improve muscle recovery ( http://www.ncbi.nlm.nih.gov/pmc/articles/PMC3671618/ ), it enhances neurogenesis ( http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2672926/ ) and may have applications for Alzheimers ( http://www.ncbi.nlm.nih.gov/m/pubmed/23946409/ ), Parkinsons ( http://www.ncbi.nlm.nih.gov/pubmed/23643800 ) and major depressive disorder (http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2796659/).
+		- I was wondering your thoughts about the use of LLLT and would thoroughly enjoy a critique of the mechanisms involved to see whether it has usefulness as part of a long-term hormetic regimen.
+		- Keep up the blogging, you're really writing some interesting stuff here.
+		- http://www.gwern.net/LLLT
+		- http://selfhacked.com/2013/11/14/my-review-of-lllt/
+		- http://www.longecity.org/forum/topic/72558-lllt-usage-correlates-with-productivity/
+			- http://www.longecity.org/forum/topic/63228-lostfalcos-extensive-nootropic-experiments/pageviewfindpostp630822
+		- http://www.longecity.org/forum/topic/63228-lostfalcos-extensive-nootropic-experiments/pageviewfindpostp630956
+		- I'm blinding by holding a bag of water between my head and the LED, that seem to work.
+		- ABAB, not know which is placebo
+		- DO NOT USE ON HEART
+		- - maybe thyroid
+			- http://www.ncbi.nlm.nih.gov/pmc/articles/PMC3288797/
+			- http://heelspurs.com/led.html
+			- https://www.youtube.com/watch?v=sl5T1Lw0B5o#t=331
+			- http://qdidit.blogspot.co.uk/p/tulip.html
+		- Selfhacked.com uses this http://www.aliexpress.com/snapshot/6002768776.html - can be used on teeth for dentin
+		- mine is <1mw, this is 100mw
+		- Q did it! (longecity) http://www.longecity.org/forum/index.php?app=members&module=messaging&section=view&do=showConversation&topicID=162666&st=0#msg201310
+		- Effects on lifespan with my general knowledge as far as TULIP is concerned would be that it should lengthen or better the current systems in place in the body (mitochondria/neurogenesis) not speed up its demise. TULIP aims to improve the systems and upgrade there efficacy. Yes they have a higher out put of energy thus a greater demand for materials but this is at a higher volume not speed. We are not speeding up anything just supplying it with what is necessary (Infared, PQQ, Co-Q-10, Pregneolone) to see that the systems operate optimally/production/utilization.
+		- That's an interesting concept - the difference between volume and speed. From some further research it looks there are two sides to the story. Mitochondria function is being repaired/enhanced so there would be less free radicals being released and increased antioxidants. Though enhanced output may still lead to overall increase in oxidative stress - I guess it is all very dependent on dose and it'll be difficult to find out the actual antioxidant:oxidative stress increase.
+		- http://www.reddit.com/r/Nootropics/comments/1uyqc8/is_transcranial_low_level_light_therapy_tlllt/
+		- Benefits
+			- Cumulative results - short-term tiredness next day, then boosted after
+				- Find a balance between a little hormetic energy reduction and long-term enhancement
+			- EVERYTHING is enhanced. Literally. Intelligence, memory, mood, socializing, creativity, reasoning, mental endurance, physical endurance, balance, strength, reaction time, coordination. It makes sense...energy is fundamental
+			- Fast thought fluency (creativity + sociability)
+			- Focus and Attention
+			- Metabolism
+				- http://www.ncbi.nlm.nih.gov/pubmed/23806754 http://www.ncbi.nlm.nih.gov/pmc/articles/PMC3065857/
+			- Mental endurance + energy
+				- "I can study 14 hours a day without getting tired" - LostFalso longecity
+				- Reduced sleep need http://www.jneurosci.org/content/30/26/9007.full.pdf http://www.reddit.com/r/Nootropics/comments/1lvm37/sleep_and_brain_energy_levels_atp_changes_during/ http://www.ncbi.nlm.nih.gov/pubmed/11959421 19% higher ATP, 0% more ADP
+				- LostFalco = 5 hrs sleep, Aarfai = 4
+			- Access to LTM http://www.scopus.com/record/display.url?eid=2-s2.0-84872251156&origin=inward&txGid=70D935D47311DCF03ADFB2657BCF394C.N5T5nM1aaTEF8rE6yKCR3A%3a2
+			- Improved mood + protection vs anxiety/depression
+				- http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2796659/ http://www.ncbi.nlm.nih.gov/pubmed/23200785
+			- Relaxation
+				- http://www.ncbi.nlm.nih.gov/pubmed/23943284
+			- Memory
+				- http://www.ncbi.nlm.nih.gov/pubmed/22850314
+			- Executive function
+				- http://www.ncbi.nlm.nih.gov/pubmed/21182447 (TBI patients), http://www.collegeofsyntonicoptometry.com/articles/Is_It_time_to_Consider_Photobiomodulation_As_a_Drug.pdf
+			- Neurogenesis http://www.kurzweilai.net/growing-new-brains-with-infrared-light www.ncbi.nlm.nih.gov/pubmed/22040225‎ http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2672926/
+			- Vs Alzhiemers
+				- http://www.ncbi.nlm.nih.gov/pubmed/23944056 http://www.ncbi.nlm.nih.gov/m/pubmed/23946409/ http://www.huffingtonpost.com/2013/08/14/alzheimers-research_n_3757357.html http://www.ncbi.nlm.nih.gov/pubmed/23942088
+			- Parkinsons http://www.ncbi.nlm.nih.gov/pubmed/23643800 http://www.ncbi.nlm.nih.gov/pubmed/19374590 http://www.ncbi.nlm.nih.gov/pubmed/23937586 http://www.ncbi.nlm.nih.gov/pubmed/23939409
+			- Testosterone http://www.webmd.com/erectile-dysfunction/news/20030422/bright-light-may-boost-testosterone http://www.ncbi.nlm.nih.gov/pmc/articles/PMC1851732/
+			- Muscle recovery http://www.ncbi.nlm.nih.gov/pmc/articles/PMC3671618/, intraworkout http://www.ncbi.nlm.nih.gov/pubmed/24102167 , http://www.ncbi.nlm.nih.gov/pubmed/24128929
+			- On testicles improves sperm fertility http://www.rj-laser.com/english/laser_therapy_male_infertility.htm I could've sworn somebody was stimulating the genitals for possibly enhanced testosterone.
+			- treating cuts/bruises/burns, healing-resistant wounds and ulcers (e.g., chronic diabetic ulcers) http://blog.thorlaser.com/thor-at-harvard-mit/ http://www.earthpulse.net/bone.htm http://www.webermedical.com/en/weber-medical-for-professionals/med-lasertherapy/intravenous-laser-therapy/
+			- I use light mostly immediately after an injury, right before applying ice for 5 minutes, and then repeat once every 6 hours for a day or two. Immediately after injuries, ice is more important.
+			- wrinkles
+			- Pain management (For example, you can shine a red laser pointer on a cut for a minute or two to see the pain go away)
+			- in spinal cord and nervous system injuries
+			- Relieve ((66a2d2f3-2757-4602-af49-61b6a7663e3d)) / anxiety
+			- Nausea, joint damage,
+				- http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2796659/ single session 4 week effect :O
+				- http://www.lef.org/magazine/mag2013/aug2013_Three-Step-Strategy-to-Reverse-Mitochondrial-Aging_02.htm
+				- http://www.ncbi.nlm.nih.gov/pubmed/23806754
+				- http://www.ncbi.nlm.nih.gov/pubmed/23200785 - PVT and mood improved
+				- http://blog.thorlaser.com/low-cold-level-laser-light-therapy-lllt-photobiomodulation-research-training-and-conference-news-august-2013/#more-1525
+				- http://blog.thorlaser.com/my-top-five-lllt-wound-healing-papers/
+				- http://www.ncbi.nlm.nih.gov/pubmed/20961231?dopt=Citation = increase muscle activity and prevent fatigue
+					- http://www.longecity.org/forum/topic/66095-lasersledsatpmitochondriabioenergetics-and-exercise/
+				- http://heelspurs.com/led.html
+				- http://www.ncbi.nlm.nih.gov/pubmed/23946409 LLT activated CREB, upregulated BDNF, and increased hippocampal dendrite growth, length, branching, and spine density
+			- Anti-oxidant
+			- "PGC1α is a transcriptional coactivator that is a central inducer of mitochondrial biogenesis in cells. Recent work highlighted that PGC1α can also modulate the composition and functions of individual mitochondria. Therefore, it is emerging that PGC1α is controlling global oxidative metabolism by performing two types of remodelling: (1) cellular remodelling through mitochondrial biogenesis, and (2) organelle remodelling through alteration in the intrinsic properties of mitochondria." http://jcs.biologist...25/21/4963.long
+			- Wiki quotes
+			- "Most significantly, the study demonstrated that PQQ not only protects mitochondria from oxidative stress—it promotes the spontaneous generation of new mitochondria within aging cells, a process known as mitochondrial biogenesis.[8] The implications of this discovery for human health and longevity are significant because the only other known methods proven to stimulate mitochondiral biogenesis in aging humans are intense aerobic exercise,[9] strict caloric restriction,[10] and certain medications such as thiazolidinediones[11] and the diabetes drug metformin.[12]"
+			- "The team of researchers at the University of California analyzed PQQ’s influence over cell signaling pathways involved in the generation of new mitochondria and found that there are three signaling molecules activated by PQQ that cause cells to undergo spontaneous mitochondrial biogenesis:[8]
+				- PQQ activates expression of PCG-1α (peroxisome proliferator-activated receptor gamma coactivator 1-alpha), a “master regulator” that mobilizes cells’ response to various external triggers. It directly stimulates genes that promote mitochondrial and cellular respiration, growth, and proliferation. Its capacity to upregulate cellular metabolism at the genetic level favorably affects blood pressure, cholesterol and triglyceride breakdown, and the onset of obesity.[13]
+				- PQQ triggers the CREB signaling protein (cAMP-response element-binding protein), which plays a pivotal role in embryonic development and growth. It also beneficially interacts withhistones, proteins involved in the packaging and nuclear organization of cell DNA.[14] CREB also stimulates the growth of new mitochondria.
+				- PQQ regulates a recently discovered cell signaling protein called DJ-1. As with PCG-1α and CREB, DJ-1 is involved in cell function and survival, has been shown to prevent cell death by combating intensive oxidative stress,[15][16] and is likely important to brain health and function. DJ-1 mutations have been conclusively linked to the onset of rare inherited forms of Parkinson’s disease and other neurological disorders.[citation needed]"
+			- Previous post on PGC1a http://www.longecity...350#entry620072
+			- VERY good article on PGC1a as a major regulator of energy production in the body. The best part is this: PGC1a upregulates energy production AND energy cleanup...AND it upregulates cleanup more than production! Therefore, you get more production AND less damage simultaneously. That's pretty effin' cool.
+			- http://jcs.biologist...25/21/4963.long
+			- "Overall, the studies on the effect of PGC1α on oxidative metabolism reveal that it increases mitochondrial biogenesis in parallel to elevating the cellular ROS-detoxifying capacity, such that cells can benefit from increased respiration and ATP production without suffering from oxidative damage. For these reasons, PGC1α has been suggested to coordinate a ‘clean energy programme’ (Finkel, 2006), in which the generation of mitochondrial high energy metabolites (ATP) and removal of toxic derivatives (ROS) are coordinately regulated."
+		- Mechanism
+			- Reviews: http://www.sciencedirect.com/science/article/pii/S0006295213007417
+			- LLLT/Photobiomodulation: more efficient ATP production due to enhanced mitochondria. Neurogenesis, extended axonal branching
+			- http://www.mediclights.com/wp-content/uploads/2013/02/Brain-stimulation-potential.pdf
+			- Why ATP? It RUNS your body...esp. brain, liver, heart, kidneys (ie. important things).
+			- Why mitochondria? You have TWO interacting genomes...mitochondrial DNA (mtDNA) AND nuclear DNA (nDNA). Mitochondria (some individual cells have 1000+) provide the energy and the nucleus tells the energy where to go and what to build (the information...most of it, anyway).
+			- Red and near-infrared light are a "window" of wavelengths that are able to pass through tissue up to 1 inch deep (not 6 inches like some web sites claim). Red and near-infrared have beneficial effects on cells by "kick-starting" them into immediately creating more ATP (cellular energy) and increasing DNA and RNA activity.(can come from sunlight, halogen, LED or laser)
+			- In hindsight, we can say "people have always known Sunlight is good for you". It seems intuitively clear to most people that Sunlight helps sick people and enables people to be more active. Injured cells need the extra ATP to repair themselves.
+			- Red and near-infrared photons are absorbed in the mitochondria by chromophores such as cytochrome c oxidase. Increased mitochondrial membrane potential, increased ATP production, modulation of reactive oxygen species, nitric oxide release, intracellular calcium then follow. Signaling pathways and transcription factors are activated, leading to production of anti-apoptotic, pro-proliferation, antioxidant, anti-inflammatory and proangiogenic factors.
+			- http://journal.frontiersin.org/Journal/10.3389/fnsys.2014.00036/full
+			- What I think is going on with LLLT
+			- 1. Laser for 20 minutes (or whatever), 2. ATP release, 3. ATP is very reactive, therefore gets used up quickly, 4. Tiredness/sleepiness caused by ATP depletion, 5. Body restores ATP levels a few hours (or minutes) later therefore energy (notice one of Opauqe's early experiences...he lasered, got tired, napped, and then had ridiculous mental energy a few hours later), 6. Body responds to this new level of ATP need by upregulating genes related to neurogenesis, ATP production, etc. 7. Results build over time as new structures are built and maintained.
+			- Analogy: bodybuilding.
+			- Q: Why am I tired and why do my measurables decrease after LLLT? A: ATP depletion
+			- Q: Why does sleep/nap/rest help? A: ATP creation...ie. recharging of ATP batteries
+			- Q: Why am I so tired the first time? A: New level of ATP depletion your body has never experienced before PLUS genes are upregulated to new levels and need energy to build their structures according to the new level of increased demand.
+			- Opposite: astronaut bone loss in space.
+			- Principle: use it or lose it?....no..."intensely use it, upregulate it." Just not TOO intensely and not too frequently.
+			- Statement I would coat in gold and hang on every page of this thread if I could..."So the improvement doesn't come while you do it. It comes when you stop, like exercise." -Joe Cohen
+			- 1. Stopping: in the Naeser study (only LEDs, not supplements) they reported a return to baseline after 1 to 2 weeks without the laser. The most I've taken off is about 4 to 5 days. I was still above my previous baseline (before starting) but I felt below the new baseline I had become accustomed to by just a little. Obviously, this is VERY subjective so take it with a grain of salt. =)
+			- 2. I don't think you'd experience a 'crash' but you would probably notice a gradual lessening of abilities (depending on which elements of TULIP you stopped). The new structures you've built while on TULIP would probably take some time to atrophy (think unused muscles).
+			- 3. Our bodies are adaptation machines and they require inputs...oxygen, water, chemical bond energy, etc. I view TULIP and LLLT (especially) as something like exercise. You add it, it upregulates genes. You stop it, those genes downregulate. Our bodies are doing this ALL the time and they are constantly making 'decisions' about which structures to keep and which ones to discard due to limited energy supplies in nature. LLLT/TULIP 'tells' our bodies that mitochondria, neurons, CCO, etc. are worth upregulating, optimizing, and maintaining. Just my opinions. =)
+			- Quick summary: it's your genes that get used to being turned on because you 'tell' them that brain energy is the BEST use of resources. Use TULIP, eat substrates (lipids, aminos, nucleotides, etc.), build ideal brain structures. =)
+			- However, my guess would be that neural architecture would persist as long as it is used. The extra new mitochondria, however, from what I've read (and I can try to find the source) will die when no longer nourished by PQQ, which means that energy would return to baseline, but whatever new memories and learning structures you acquire would only diminish when not used (and do so more gradually).
+				- PQQ triggers the CREB signaling protein (cAMP-response element-binding protein), which plays a pivotal role in embryonic development and growth. It also beneficially interacts withhistones, proteins involved in the packaging and nuclear organization of cell DNA.[14] CREB also stimulates the growth of new mitochondria.
+			- It also seems that Low-level laser therapy (LLLT) acts as cAMP-elevating agent in acute respiratory distress syndrome. [source] Since the mechanism of action on the mitochondrial metabolic level is universal, and cAMP is an aspect of the metabolic process, then cAMP is elevated in the brain also. [see diagram on page 10 of this pdf for confirmation]. Two parts of the CILTEP stack also raise cAMP (forskolin) and inhibit it's degradation(PDE4 inhibitor of choice).
+		- Protocol
+			- Devices
+				- laser (808nm 200mw is most tested http://www.vetrolaser.com// TENDLITE with goggles OR use way cheaper LEDs or a helmet
+					- http://www.overmachogrande.com/
+						- Power density: Do not exceed 320mW/cm2
+				- 96 LED array: http://www.ebay.com/...=item232c0ac99b
+				- Large volumes and deeper layers of tissues can successfully irradiated by laser only (e.g. inner and middle ear diseases, injured siatic or optical nerves, deep inflammations etc.). The LED's are excellent for irradiation of surface injuries. http://laserhealthsystems.com/Dr.%20Tiina%20Karu%20Presentation.htm LED lights probably can provide the same effect with longer exposure times and more specific EEG site placement, but it seems logical that a laser would be able to deliver energy faster, deeper and scatter a larger area of effect
+			- Procedure http://www.longecity.org/forum/user/11887-lostfalco/
+				- Note: infrared isn't visible, maybe through camera phone though. Cover the light detector on the device and remove the glass to put LEDs directly on skin
+				- NEVER daily http://www.ncbi.nlm.nih.gov/pmc/articles/PMC3315174/ every OTHER day (or perhaps 2 on/1 off)
+				- Hormetic biphasic dose response http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2790317/ http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2790317
+				- Falco: start with 30s per region, he's using 2m now
+				- entire skull about 1-2m per spot/region (12m total?) clinical studies in TBI patients are 10-20 per spot (back of head may be unnecessary though as occiptal lobe)
+				- Expectations: You will be tired after the first time for 2 to 24 hours. It's perfectly normal. You *might be slightly tired after future sessions (many aren't) but it will be much less. Analogy: cardio, weight training.
+				- After reading through a lot of the anecdotes and reading some information from Dr. Ray Peat, I'm actually pretty confident that using the LEDs/Lasers at night is the way to go. Normally, I do it directly before bed, within minutes of lying down for bed. Falco says, from his current experience, LLLT seems to be regulatory in that if he is a little bit fatigued or what not, it brings him back up, and if he is too stimulated it can bring him to a more calm state.
+				- Test at night and day
+				- Expect next day tiredness (excess ATP consuming glucose?
+					- I am using a 96 LED lamp, started with 1 min per spot and built up to 5 minutes for a while but in the end I decided that 2 min were the sweet spot for me as I couldn't recognize any benefits for using it longer and there might even be detrimental effects plus it was impractical to hold the lamp for 35 minutes.
+					- I removed the glass of the lamp and press it firmly against my head on all areas besides the back of my head (Joe Cohen noticed that there are mostly optic nerves in the back so no much benefit to stimulate it) and I am using it 3 times per week before bed, mostly Mon Wed Fri
+			- Enhancers
+				- 20mg PQQ: more AND better mitochondria. Makes my body warm, makes me energetic and lowers my hunger.
+				- 300mg? CoQ10: more AND better mitochondrial output (needs to be taken with fat)
+					- ubiquinol absorbs up to 8 times greater than ubiquinone
+					- Even 30mg would have an effect though
+				- + shilajit?
+				- Methylene Blue?
+				- Artichoke extract (not forskolin yet - too much cAMP othewise)
+				- PQQ + CoQ10
+				- http://www.ebay.com/itm/20MG-x-100-CAPSULES-PQQ-10-ADVANCED-MITOCHONDRIAL-NERVE-GROWTH-FACTOR-SUPPORT-/121174310187
+				- SWANSON
+				- PQQ http://www.swansonvitamins.com/swanson-ultra-pqq-pyrroloquinoline-quinone-20-mg-30-veg-caps
+				- CoQ10 http://www.swansonvitamins.com/swanson-ultra-ubiquinol-pure-natural-100-mg-60-sgels
+				- Shilajit http://www.swansonvitamins.com/swanson-superior-herbs-extra-strength-shilajit-extract-100-mg-30-veg-caps
+				- JARROW
+				- PQQ + CoQ10 http://www.amazon.com/Jarrow-Formulas-Ubiquinol-Pyrroloquinoline-Supplement/dp/B00CP8T8FI/
+				- PQQ http://www.amazon.com/Jarrow-Formulas-Pyrroloquinoline-Nutritional-Supplements/dp/B00C1E7SHQ/
+				- CoQ10 http://www.amazon.com/Jarrow-Formulas-QH-Absorb-100-Count/dp/B004VCOOUU/ref=pd_sbs_hpc_1
+				- Shilajit http://www.amazon.com/Jarrow-Formulas-Shilajit-Nutritional-Supplement/dp/B007LEO626/
+				- Swanson Health Searches
+				- PQQ http://www.swansonvi...ns.com/q?kw=pqq
+				- CoQ10 http://www.swansonvi....com/q?kw=coq10
+				- Shilajit http://www.swansonvi...m/q?kw=shilajit
+				- Longecity discussion of Swanson brand http://www.longecity...on-supplements/
+				- LEF all-in-one http://www.lef.org/Vitamins-Supplements/Item01733/Super-Ubiquinol-CoQ10-with-BioPQQ.html?source=search&key=ubiquinol
+				- I'd like to add that even if people have good results, I think NAC will make it even better. To clarify -600mg with meals two times a day, with breakfast and lunch.
+					- When you increase mitochondrial function ROS and oxidation increases. The body up regulates antioxidants to combat this-most importantly glutathione, but the body needs fuel to make glutathione. Cysteine is the rate limiting factor in glutathione synthesis. So while everyone is uprading their engine to a V12, they aren't putting in enough gas. The result? Fatigue. Anyone who gets fatigued should realize that they don't have enough glutathione synthesis. The people who don't get fatigued should be happy that their body is functioning great in that they can up regulate antioxidants without a problem. Other antioxidants like vitamin c pale in comparison to glutathione. That's the theoretical part. My extremely positive experience validates this framework. I strongly support NAC being officially added to this protocol. 600 mg will go a long way and is a minimum, but 1200 mg is better since people aren't practicing MED.
+					- + oxeloacetate + gluthianone from bulletproof exec
+					- Though rely on endogenous ability to release glutathione?
+		- Warnings
+			- Don't take with Methylene Blue (too much hormetic mitochondria effect)
+			- Metabolism increased = need more glucose for brain function or hypoglaecimic?
+		- Laser Dosing Recommendations:
+			- 1. Remove glass cover and place LEDs directly on skin. They get a little warm, but nothing to worry about.
+			- 2. Laser whole brain, before bed
+			- 3. Start with 30 seconds per location. You can always increase. Minimum effective dosing is VERY important with LLLT.
+			- 4. 2 days on/1 day off OR every other day. DO NOT use every day. =) http://www.ncbi.nlm.nih.gov/pmc/articles/PMC3315174/
+			- 5. 850nm, 96 LED, 9 individual "regions" on sides, top, and back of head AND 850nm, 48 LED, 5 individual spots on forehead along hairline (roughly).
+			- Total Time: 7 minutes. Try this for 1 to 2 weeks before increasing dose time. (Note: ALL is currently provisional.)
+		- Read these before beginning AND/OR while self-experimenting:
+			- 1. Synaptic Mitochondria/ATP article http://www.ninds.nih...ia_07252013.htm Entire articlehttp://www.ncbi.nlm....les/PMC3757511/
+			- 2. Low Level Laser Therapy article by Francisco Gonzalez-Lima https://dl.dropboxus...nzalez-lima.pdf
+			- 3. Mitochondrial Enhancement article (pg. 1-3) by Michael Downey http://www.lef.org/magazine/mag2013/aug2013_Three-Step-Strategy-to-Reverse-Mitochondrial-Aging_01.htm
+			- 4. LED dosing and expectations by Margaret Naeser (2 Case Reports) http://www.ncbi.nlm....les/PMC3104287/
+			- 5. The Machinery of Life by David Goodsell http://www.amazon.co.../dp/0387849246/
+			- 6. Life's Ratchet by Peter Hoffmann http://www.amazon.co...t/dp/0465022537
+			- Highly Recommended Supplemental Reading (without endorsing EVERYTHING within):
+			- Minding My Mitochondria: http://www.amazon.co.../dp/0982175086/
+			- Mitochondria and the Meaning of Life: http://www.amazon.co.../dp/0199205647/
+			- Oxygen: The Molecule That Made the World http://www.amazon.co.../dp/B00AAUBP3G/
+			- Life Ascending http://www.amazon.co.../dp/0393338665/
+			- Cosmic Evolution: http://www.amazon.co.../dp/0674009878/
+			- Epic of Evolution: http://www.amazon.co.../dp/0231135610/
+		- I am a HUGE believer in respect and in acknowledging 'shoulders'. Here are a few people to whom I'm extremely grateful (sorry, I know I'm leaving out A LOT!) =)
+		- Laser: Dave Asprey, Tiina Karu, Michael Hamblin, Francisco Gonzalez-Lima, Margaret Naeser, Fredric Schiffer
+		- Supplements: Ward Dean, Michael Downey, Abelard Lindsay, OpaqueMind, Aarfai
+		- Oxygen: Con Stough, Andrew Scholey, Lauren Owen, SC Chung
+		- Theory: David Goodsell, Peter Hoffmann
+		- Future Experimental Directions: A ton! (will update more soon)
+			- 1. Happy CIL-TULIP: Mr. Happy's Stack + Abelard's CILTEP + TULIP
+			- Abelard’s CILTEP: http://www.longecity.../pagest1890
+			- Happy Stack: http://www.longecity.../pagest2130
+			- Happy Stack Reddit: http://www.reddit.co...in_development/
+			- TULIP Main Thread: http://www.longecity...s/pagest780
+			- TULIP Experiences: http://www.longecity...uantified-self/
+			- TULIP Research: http://www.longecity...biophysics-etc/
+			- TULIP Stacking thread: http://www.longecity...soxygenepo-etc/
+			- 4) Exercise and laser TULIP http://www.longecity.org/forum/topic/66095-lasersledsatpmitochondriabioenergetics-and-exercise/
+		- LLLT and oxidative stress (hormetic dose-response)
+			- Neurological and psychological applications of transcranial lasers and LEDs http://www.ncbi.nlm.nih.gov/m/pubmed/23806754
+			- Improved attention, memory and mood in healthy individuals http://www.ncbi.nlm.nih.gov/m/pubmed/23200785/?i=4&from=low%20level%20laser%20therapy%20cognitive
+			- 670 nm laser light and EGCG complementarily reduce amyloid-β aggregates in human neuroblastoma cells: basis for treatment of Alzheimer's disease? Sommer AP, et al. Photomed Laser Surg. 2012
+			- Hormetic dose response http://www.ncbi.nlm.nih.gov/m/pubmed/22461763/?i=14&from=transcranial%20low%20level%20laser%20therapy
+			- Safe long term http://www.ncbi.nlm.nih.gov/m/pubmed/20961232/?i=16&from=transcranial%20low%20level%20laser%20therapy
+			- No neurogenesis if NAC present ie antioxidants block the oxidative stress necessary for cell proliferation http://www.ncbi.nlm.nih.gov/m/pubmed/24595962/?i=1&from=low%20level%20laser%20therapy%20antioxidant
+			- Increases antioxidant activity http://www.ncbi.nlm.nih.gov/m/pubmed/15954814/
+			- Before exercise increases performance, reduces oxidative stress and muscle damage http://www.ncbi.nlm.nih.gov/m/pubmed/21739259/?i=6&from=/20602109/related
+			- Gonzalez Lima paper
+			- Oxidative stress and antioxidant level unaffected http://www.ncbi.nlm.nih.gov/m/pubmed/23952682/?i=4&from=low%20level%20laser%20therapy%20antioxidant
+			- No protection from radiation following LLLT, though cites other studies finding a boost http://www.ncbi.nlm.nih.gov/m/pubmed/23099481/?i=8&from=low%20level%20laser%20therapy%20antioxidant
+			- Restores oxidative stress balance (reduces ROS formation) http://www.ncbi.nlm.nih.gov/m/pubmed/22882462/?i=11&from=low%20level%20laser%20therapy%20antioxidant
+			- Alleviated oxidative stress and mitochondrial dysfunction. significantly higher mitochondrial DNA (mtDNA) copy number, white blood cell adenosine triphosphate (WBC ATP) synthesis, and total antioxidant capacity (TAC) with significantly reduced malondialdehyde (MDA). http://www.ncbi.nlm.nih.gov/m/pubmed/22891782/?i=10&from=low%20level%20laser%20therapy%20antioxidant
+			- Increases IGF-1 short term and decreases long term, increases antioxidant activity http://www.ncbi.nlm.nih.gov/m/pubmed/22714676/?i=13&from=low%20level%20laser%20therapy%20antioxidant (perfect for short term muscle growth and long term longevity?)
+			- Increases antioxidant activity http://www.ncbi.nlm.nih.gov/m/pubmed/22354548/?i=17&from=low%20level%20laser%20therapy%20antioxidant
+		- [ all these ingredients were deeply researched beforehand. But more importantly, I've figure out the optimal dosage,
+		- way of administration and optimal time of consumption according to the pharmacokinetics propeties of the substances. ]
+		- [ only in days of LLLT ]
+			- - 5g curcumine + 2g black pepper - both need to be dissolved in oil. preferably olive oil or fish oil
+			- - 2g cinnamon - Need to be dissolved with a little hot water, and let sit for a while.
+			- - 20 drops of diluted Methylene blue
+			- - 10mg noopept
+			- - 60mg Ginkgo Biloba ( pill )
+			- - 200mg CoQ 10 ( pill )
+		- All this need to be taken 1.5 - 2 hours before the LLLT treatment, as this is the peak concentration in the bloodof most of the mentioned agents. All these agents are basically serve for their neuro-protective properties, that literally `buy some time` ,in order to prolong the time-per-spot
+		- Bionasal LLLT https://www.dropbox.com/s/crd8p4hwc4t7hog/0%20Laser%20Function%20Medicine%20and%20its%20Applications%20%28Combined%29%2002-12.pdf
+		- also mentioned by dave asprey
+		- -Front of the head for Increased focus and increased analytical ability
+		- -Upper and side portions of the head for creativity
+		- Oxygen--Oxygen concentrator, Scuba gear, etc.
+		- Comments--100% oxygen breathed for 3 minutes has been shown to increase oxygen blood levels and greatly increase learning...especially memorization and reaction time. Studies have also shown that 30% and 40% work as well. It seems that the dangers of oxygen mostly occur when someone breathes it for a much greater time than this. I really want to try this and will very soon. Any experiences from anybody here? I do worry about damage so feedback there would be greatly appreciated.
+		- Look up the work of Karu http://online.lieber...9/pho.2013.3510, Hode http://www.prima-boo...apyHandbook.php , and Hamblin http://www.ncbi.nlm....pubmed/22807422
+		- Check out these recent studies for more info. The first one is the best.
+		- http://www.ncbi.nlm....pubmed/23806754
+		- http://www.ncbi.nlm....pubmed/23200785
+		- http://dspace.mit.ed...le/1721.1/58558
+		- http://www.ncbi.nlm....pubmed/19995444
+		- http://www.prima-boo...en-Lectures.php
+		- Here's a reddit thread with most of the current studies listed. http://www.reddit.co..._medium=twitter
+		- Best Virtually Unknown Noot--Lasers, low-level laser therapy, led therapy, infrared therapy
+		- I use 808nm wavelength light to my forehead at 200 mW...it's called the Vetrolaser, and yes, it's for horses with tendon problems (and for humans with thinking problems). I've also used the 660nm Tendlite with awesome results but 808 is my favorite. It increases ATP production, cerebral blood flow, and neurogenesis by adding energy at the cytochrome C oxidase photoacceptor. http://www.ncbi.nlm....les/PMC3104287/ Can't believe that more people don't rave about this. Has massively enhanced the lives of head injury and stroke victims. Highly recommended, very safe (wear goggles please!)
+		- Where to Buy: Vetrolaser http://www.vetrolaser.com/
+		- Tendlite http://www.amazon.co...ywords=tendlite
+		- Goggles http://www.eaglepair...lobalPage_ID=76
+		- Note: I'm currently researching WAY cheaper lasers that are just as effective. I'm pretty sure I've found a few high quality options in the $25-$50 range. I'll keep you guys posted.
+		- Here's a cool customer review of Eagle Pair OD 4+ goggles (he reviews goggles that block different wavelengths than mine, but same brand). Just scroll down the page for the review. http://laserpointerf...ebay-55221.html
+		- Conclusion: "Completely blocks the specified wavelengths. You need not worry about any eye damage as a result of the beam hitting the glasses." Note: he used a 270mw laser with a 660nm wavelength and a 940mw with a 445nm wavelength.
+		- Dear Dave: I got this idea from you. There is no way that I would have ever pointed a laser at my head if I had not heard you talk about it in a podcast and watched you do it in a YouTube video. http://youtu.be/Sc7NNr8KnYs?t=9m36s Seriously man, thank you! You've permanently changed my life.
+		- THE ULTIMATE LASER PROTOCOL aka TULIP (another nod to Longecity's Abelard Lindsay, inventor of CILTEP http://www.longecity...ly-induced-ltp/ )
+		- The Core: PQQ (20mg) + CoQ10 (300mg) + laser. Clearly, this stack centers around mitochondrial function and OXPHOS. So far, it has been mind-blowing! In a good way. =) The idea is simple: add mitochondria, optimize/enhance mitochondrial energy, optimize clean up.
+		- Future Experimental Directions As of 8/14/13
+		- Add Mitochondra
+		- 1. PQQ (20mg) http://www.amazon.co...eywords=pqq lef
+		- Optimize/Enhance Mitochondrial Energy
+		- 2. CoQ10 (300mg) http://www.amazon.co...words=coq10 lef
+		- 3. laser (808nm 200mw, 2days on, 1day off per 10-20 EEG site)
+		- 4. concentrated oxygen (70% oxygen, 3L/min; 3 minute 'sips' every 10-15 minutes, oxygenation tested with pulse oximeter http://www.walgreens...451_pla&adtype={adtype}&kpid=prod6089451&sst=65bde3b7-52ce-49a8-5aa8-0000734a440c )
+		- 5. glucose (3tsp) (Dave, what is your recommendation here? I've been trying rice glucose as well as a glucose-that-shall-not-be-named. I remember that you once recommended 3 teaspoons of glucose in BP Coffee/day to an LSAT student you were coaching. What did you use?)
+		- 6. D-ribose (5g/day) http://www.amazon.co...d-ribose jarrow
+		- Optimize Clean Up (this still needs significant work on my part)
+		- 7. Oxeloacetate (100mg) http://www.bulletpro...-aging-formula/
+		- 8. Glutathione (1 pump every 3-4 hours) http://www.bulletpro...ed-glutathione/
+		- Future Experimental Directions:
+		- 9. Creatine (I have some on the way and will add it this week)
+		- 10. EPO I may try a hypoxic tent http://www.hypoxico....g-systems.shtml , intranasal EPO http://www.ncbi.nlm....pubmed/23813967 , injectible EPO (anybody have Lance's phone number?), etc. For those of you that blindly follow the media, EPO is not dangerous when used in doctor-monitored, reasonable amounts. If too much, then blood thickens, then death. If proper amount, then more red blood cells, then more oxygen, then more intelligence. It's illegal without a prescription. Hypoxic tent/room/mask is probably the better choice (just ask Michael Phelps http://www.hypoxico.com/ ), though expensive. I'll provide extensive links below on the utterly AMAZING neuroprotective and neuroenhancing properties of EPO. It enhances neuroplasticity, memory, attention, neurogenesis, and hippocampal function while reducing depression. It even affects cognitive function without affecting red blood cells!
+		- 11. Resveretrol Spray http://www.prototype...p?ProductCode=R and Leucine (thanks to Joe Cohen from http://selfhacked.com/ for introducing me to this idea...btw, it's not necessary to use spray here)
+		- 12. Metformin http://www.antiaging...formin-metforal
+		- 13. Mitoquinone
+		- 14. Idebenone http://www.newstarno...s.com/index.php
+		- 15. Ursolic Acid Spray (50 sprays) http://www.prototype...?ProductCode=UR I'm very interested in this substance for it's antiinflammatory properties and it's purported ability to mobilize brown fat to burn white fat. I do have concerns about possilble temporary infertility in males and it's somewhat untested state. (see the Examine.com article below for more info)
+		- 16. NADH
+		- 17. IAS's ATP-Boost (combo of ALCAR, ALA, and ATP)
+		- 18. Methylene Blue http://www.amazon.co...=methylene blue ( read this amazing article for info on methylene blue and its relationship to photobiomodulationhttp://www.ncbi.nlm....pubmed/23806754 )
+		- Special Acknowledgments:
+		- Dr. Ward Dean: There is an excellent 4 paragraph discussion of mitochondrial optimization on page 17 of 'Aging Matters Magazine' (Issue 2, 2013) by 'Smart Drugs' author himself Dr. Ward Dean. Here are his recommendations: 1. Increase Number of Mitochondria: PQQ
+		- 2. Increase Mitochondrial Energy Producing Intermediates: D-Ribose (5g/day), Creatine (5g/day), CoQ10SR (100mg/day), NADH, and IAS's ATP-Boost (combo of ALCAR, ALA, and ATP).
+		- Dave Asprey: Introduced me to the idea of photobiomodulation/low level laser therapy in a podcast.
+		- Con Stough and Andrew Scholey: Introduced me to the idea of concentrated oxygen and glucose as nootropics.
+		- Studies/Sources
+		- PQQ
+		- http://www.ncbi.nlm....les/PMC2804159/
+		- http://www.fasebj.or...bstracts/540.21
+		- http://en.wikipedia....inoline_quinone
+		- http://www.lef.org/m...chondria_01.htm
+		- http://examine.com/s...noline quinone/
+		- Source: http://en.wikipedia....inoline_quinone
+		- "In humans, in one double-blind, placebo-controlled clinical trial conducted in Japan in 2007, supplementation with 20 mg per day of PQQ resulted in improvements on tests of higher cognitive function in a group of 71 middle-aged and elderly people aged between 40-70, who outperformed the placebo group by more than twofold in their standardized memory tests.[18] Interestingly, co-administration of the unrelated compound coenzyme Q10 (CoQ10) further improved performance on standardized memory tests when subjects also took 300 mg per day of CoQ10. No adverse effects were linked to the supplementation, and the results suggested that PQQ, especially when combined with CoQ10, can be used to improve mental status and quality of life in older patients, and help slow or prevent age-related cognitive decline in middle-age patients.
+		- However, the study was not peer-reviewed and was published in a non-academic journal. No proper scientific study of PQQ effects on memory or cognition in humans has been conducted, as of 2013."
+		- Ursolic Acid
+		- http://www.ncbi.nlm....pubmed/23707761
+		- http://www.ncbi.nlm....pubmed/21496491
+		- http://www.sciencedi...006295207004339
+		- http://www.sciencedi...889159111002066
+		- http://www.ncbi.nlm....pubmed/23690863
+		- http://en.wikipedia....ki/Ursolic_acid
+		- http://examine.com/s...cid/#summary8-2
+		- Oxygen
+		- http://www.amazon.co... stough scholey
+		- http://www.ncbi.nlm....pubmed/18569150
+		- http://www.ncbi.nlm....pubmed/17395994
+		- http://www.ncbi.nlm....pubmed/22285726
+		- http://www.ncbi.nlm....pubmed/17662686
+		- http://www.ncbi.nlm....pubmed/19429029
+		- http://www.ncbi.nlm....pubmed/20080151
+		- Glucose
+		- http://www.amazon.co... stough scholey
+		- EPO
+		- http://neuroscene.com/?p=234
+		- http://miskowiak.dk/publications.html
+		- http://www.amazon.co...uman capacities
+		- Recent Meta-Analysis:
+		- "METHODS: We systematically reviewed the published findings from animal and human studies exploring the potential of EPO to treat depression-related cognitive dysfunction and depression.
+		- RESULTS: We identified five animal studies (two in male rats, two in male mice and one in male rats and mice) and seven human proof-of-concept studies (five in healthy volunteers and two in depressed patients) that investigated the above. All of the reviewed animal studies but one and all human studies demonstrated beneficial effects of EPO on hippocampus-dependent memory and antidepressant-like effects. These effects appear to be mediated through direct neurobiological actions of EPO rather than upregulation of red cell mass.
+		- CONCLUSIONS: The reviewed studies demonstrate beneficial effects of EPO on hippocampus-dependent memory function and on depression-relevant behavior, thus highlighting EPO as a candidate agent for future management of cognitive dysfunction and mood symptoms in depression. Larger-scale clinical trials of EPO as a treatment for mood and neurocognitive symptoms in patients with mood disorder are therefore warranted."
+		- Photobiomodulation/Low Level Laser Therapy
+		- (see above discussion for studies)
+		- OXYGEN--Oxygen concentrator, scuba gear, etc.
+		- Comments--100% oxygen breathed for 3 minutes has been shown to increase oxygen blood levels and greatly increase learning...especially memorization and reaction time. Studies have also shown that 30% and 40% at 8L/min work as well. It seems that the dangers of oxygen mostly occur when someone breathes it for a much greater time than this.
+		- Source: http://www.amazon.co... neurocognition
+		- Thoughts on Air: I've already added an oxygen concentrator and scented oils and now I'm looking into hyberbaric chambers or hyperoxic tents. Altitude training/sleeping (10-14 hrs/day) causes your body to adapt by making more EPO and thus more red blood cells (erythropoesis). Here's a quote from the wiki on EPO "Multiple studies have suggested that EPO improves memory. This effect is independent of its effect on hematocrit.[6][7] Rather, it is associated with an increase in hippocampal response and effects on synaptic connectivity, neuronal plasticity, and memory-related neural networks.[8][9] EPO may also be an effective treatment for depression.[7][10]" Of course, I'm also looking into the drug EPO. If you are diligent about monitoring your red blood cell levels and you don't over do it, EPO is actually pretty safe. People run into trouble when they use too much, get too many red blood cells, thicken their blood, and die. Check out this AWESOME book for more info. http://www.amazon.co...uman capacities The audio book is much cheaper ($27). http://www.audible.c...72136461&sr=1-1
+		- Hypoxic Tents: http://www.hypoxico....-products.shtml
+		- Elevation Training Mask (unfortunately, I don't think this will stimulate endogenous EPO): http://www.amazon.co...s=altitude mask
+		- I'm also looking into Nicergoline. "Nicergoline works by activating the brain’s metabolism and increasing arterial flow, lowering vascular resistance and improving the use of glucose and oxygen. The effect of this is improved mental agility, clarity, perception and concentration." http://www.antiaging...128-nicergoline I've got pure glucose http://www.amazon.co...eywords=glucose and I've got a concentrator, throw in some nicergoline, hop on the vibration plate for 10 minutes and then study for 10 hours. So, hypoxic tent (14 hours) + concentrated oxygen (3 minute sips every 10 min) + nicergoline + glucose. We'll see what happens.
+		- Note: vinpocetine + vibration plate was awesome. I had energy for hours afterward.
+		- Recent 'Stack': Concentrated Oxygen + Bulletproof Vibration Plate
+		- Recent Uber Nerd Stack: Laser (with goggles!) + Oxygen + BP Vibration Plate
+		- Here's a quick summary. http://www.longecity...1887-lostfalco/
+		- Here's the main thread where you can read others' experiences. http://www.longecity...s/pagest750
+		- Here are the other two threads.
+		- Stacks: http://www.longecity...soxygenepo-etc/
+		- Research: http://www.longecity...biophysics-etc/
+		- Disclaimer: I am not a doctor, not a scientist, not an expert. ALL decisions are your exclusive responsibility. I do hope some of this info might help ya though. =)
+		- My (humble/non-medical) Recommendations
+		- 2. Neurofeedback
+		- Opaque: NeurOptimal http://www.upgradeds...al-trainer.html
+		- Me: nIR HEG http://www.upgradeds...in-trainer.html
+		- 3. Hypoxic Tent/Endogenous EPO production
+		- http://www.hypoxico.com/
+		- Cosmic Evolution with Harvard Course Syllabus
+		- https://www.cfa.harv...ocs/splash.html
+		- Einstein and Photoelectrons
+		- http://en.wikipedia....electric_effect
+		- http://en.wikipedia.org/wiki/Einstein
+		- Interview with Harvard Astrophysics Professor Eric Chaisson
+		- http://youtu.be/ChAmeRD3b-I
+		- I tried combining it with CILTEP and got a minor headache. Nothing too severe, but definitely out of the ordinary as I never get them. I have however used it on days inbetween laserings to good effect. I have a vague, potential hypothesis - cAMP overload
+		- According to the PQQ wiki page -
+			- PQQ triggers the CREB signaling protein (cAMP-response element-binding protein), which plays a pivotal role in embryonic development and growth. It also beneficially interacts withhistones, proteins involved in the packaging and nuclear organization of cell DNA.[14] CREB also stimulates the growth of new mitochondria.
+		- It also seems that Low-level laser therapy (LLLT) acts as cAMP-elevating agent in acute respiratory distress syndrome. [source] Since the mechanism of action on the mitochondrial metabolic level is universal, and cAMP is an aspect of the metabolic process, then cAMP is elevated in the brain also. [see diagram on page 10 of this pdf for confirmation].
+		- Two parts of the CILTEP stack also raise cAMP (forskolin) and inhibit it's degradation(PDE4 inhibitor of choice).
+		- I think this four-fold action causes just way too much cAMP for the brain to deal with, causing headaches and other unpleasantries.
+		- So... I found this.
+		- http://www.ncbi.nlm....pubmed/22655115
+		- Basically, the researchers tested CoQ10 in conjunction with alpha-lipoic acid. The result, they found, was an increase of levels of PGC1α, a "master switch of energy metabolism and mitochondrial biogenesis."
+		- Considering that ALA is also synergistic with acetyl-L-carnitine, which is also important in mitochondrial energy, it seems reasonable to add ALA to the stack.
+		- Aarfai 8/16/13
+		- I use your every other day 3-4 mins/spot protocol for the 808nm laser. The supplements are a bit expensive however they DO work. It has been nearly 2 months on TULIP and I have experienced similar results as LF: significant increase in energy, increase in verbal fluency, increase in overall cognition with enhancements in well-being and perhaps even confidence? When speaking, I can FEEL the effects the most. For example, I sense I can take the conversation anywhere I please, in any direction. Like LF, I often find myself toning down my thoughts or vocabulary in conversations. Generally speaking, I have MUCH more access to information.
+		- > blind test
+		- Just LLLT for 10-15 minutes (so 10-15 spots), 7-10 days = 1 cycle, gonna do 4 cycles total. Doing it blinded and not sure if I should go with ABAB or do it random (my dad blinds me and does all the "work").
+		- Neuroscience. 2013 Jan 29;230:13-23. doi: 10.1016/j.neuroscience.2012.11.016. Epub 2012 Nov 27.
+		- Transcranial infrared laser stimulation produces beneficial cognitive and emotional effects in humans. Barrett DW, Gonzalez-Lima F.
+		- Source
+		- Department of Psychology and Institute for Neuroscience, University of Texas at Austin, Austin, TX 78712, USA. Abstract
+		- This is the first controlled study demonstrating the beneficial effects of transcranial laser stimulation on cognitive and emotional functions in humans. Photobiomodulation with red to near-infrared light is a novel intervention shown to regulate neuronal function in cell cultures, animal models, and clinical conditions. Light that intersects with the absorption spectrum of cytochrome oxidase was applied to the forehead of healthy volunteers using the laser diode CG-5000, which maximizes tissue penetration and has been used in humans for other indications. We tested whether low-level laser stimulation produces beneficial effects on frontal cortex measures of attention, memory and mood. Reaction time in a sustained-attention psychomotor vigilance task (PVT) was significantly improved in the treated (n=20) vs. placebo control (n=20) groups, especially in high novelty-seeking subjects. Performance in a delayed match-to-sample (DMS) memory task showed also a significant improvement in treated vs. control groups as measured by memory retrieval latency and number of correct trials. The Positive and Negative Affect Schedule (PANAS-X), which tracks self-reported positive and negative affective (emotional) states over time, was administered immediately before treatment and 2 weeks after treatment. The PANAS showed that while participants generally reported more positive affective states than negative, overall affect improved significantly in the treated group due to more sustained positive emotional states as compared to the placebo control group. These data imply that transcranial laser stimulation could be used as a non-invasive and efficacious approach to increase brain functions such as those related to cognitive and emotional dimensions. Transcranial infrared laser stimulation has also been proven to be safe and successful at improving neurological outcome in humans in controlled clinical trials of stroke. This innovative approach could lead to the development of non-invasive, performance-enhancing interventions in healthy humans and in those in need of neuropsychological rehabilitation.
+		- View Postlostfalco, on 04 November 2013 - 07:20 PM, said:
+		- I've been shining halogen light (I bought a $10 halogen bulb and a $5 lamp from Target) on my water (I've been calling it 'Laser Water' cause I'm a dork) for the past week for a minimum of 5 minutes. I haven't changed anything else (that I know of) in my life. My blood oxygenation level (as measured with a pulse oximeter) has gone up to 99% and my resting pulse rate has dropped to 50. I've measured these dozens of times over the past year and my resting pulse rate has always hovered around 60 (non-modafinil) and 70 (on modafinil) and my blood oxygenation has always been 98% (unless I'm using my oxygen concentrator). I've gotta go dig my blood pressure monitor out of storage and check to see if that has changed as well.
+		- If anyone else tries it out...please report back. I'd love to see if it seems to work for you guys as well. =)
+		- Just to make sure I understood it right... you are shining your (bottle, glass, a container of) water with a halogen bulb for 5 mins minimum and than drink it?
+		- http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2843558/ http://articles.mercola.com/sites/articles/archive/2013/08/18/exclusion-zone-water.aspx http://faculty.washington.edu/ghp/uploads/T%20R01%20research%20strategy%202013%20final%20formatted.pdf http://faculty.washington.edu/ghp/ http://www.youtube.com/watch?v=i-T7tCMUDXU
+		- Reasons I use it
+		- Increases brain angiogenesis, neurotrophins, and neural stem cells. [More...]
+		- Increases nitric oxide.
+		- Increases NGF: Nerve growth factor.
+		- Increases BDNF: Brain-derived neurotrophic factor.
+		- Increases brain metabolism
+		- Increases blood flow
+		- Increases ATP production
+		- Suppresses inflammation
+		- May even help with Male Pattern Baldness
+		- Promotes the synthesis of DNA and RNA
+		- Reduces amyloid-β aggregates in human brain cells (in-vitro)
+		- Research Snippets
+		- -Cytochrome oxidase is an ideal target for cognitive enhancement, as its expression reflects the changes in metabolic capacity underlying higher-order brain functions. Brain photobiomodulation with LLLT is paralleled by pharmacological effects of low-dose USP methylene blue, a non-photic electron donor with the ability to stimulate cytochrome oxidase activity, redox and free radical processes. Both interventions provide neuroprotection and cognitive enhancement by facilitating mitochondrial respiration, with hormetic dose-response effects and brain region activational specificity. This evidence supports enhancement of mitochondrial respiratory function as a generalizable therapeutic principle relevant to highly adaptable systems that are exquisitely sensitive to energy availability such as the nervous system.
+		- -We found that at low fluences (0.3–3Jcm2) mitochondrial respiration was stimulated, as shown by the increase in adenosine triphosphate (ATP), Ca2+, and mitochondrial membrane potential. This, in turn, generated low amounts of reactive oxygen species (ROS) and nitric oxide (NO) that activated signaling pathways and gene transcription without causing cytotoxicity
+		- -Comparisons between groups showed that HeNe laser increased the mRNA expression of both BDNF and NGF factors after 14 days ofLLLT, with peak expression at the 21st day. Increase in NT-3 mRNA expression was not observed.
+		- -The reported data could have a relevant practical value because LLLT is a noninvasive procedure, and have revealed significant increase in neurotrophic factor expressions and inflammatory process reduction, opening the possibility of using LLLT as an important aid to nerve regeneration process.
+		- -Based on its effects on energy metabolism, it is proposed that LLLT will also affect the cerebral cortex in vivo and modulate higher-order cognitive functions such as memory.
+		- Take with
+		- -NAC, in the morning, with a meal. I find there’s also a synergism with lactic acid from sourdough bread or kombucha. I’m gluten intolerant, so I don’t use sourdough.
+		- Side effects
+		- -Degraded sleep, cognitive laziness the day after.
+		- When will you see results?
+		- LLLT is like exercise. Benefits are accrued and realized after the healing stage, but there’s a noticeable effect the next day.
+		- You can purchase the device for 10 dollars here: Crazy Cart 48-LED CCTV Ir Infrared Night Vision Illuminator
+		- Don’t forget the plug as well: DC Power Adaptor 12 V DC 2.1MM
+		- View PostNeuroGeneration, on 31 March 2014 - 02:52 PM, said:
+		- @LostFalco - I'm hoping you can answer this; anyone else who has some thoughts on the topic, please chime in!
+		- I've come across a number of studies & posts that refute, or at least question, the use of antioxidants for mitochondrial function. More generally speaking, the science is questioning the theory of ROS & its contribution to cell aging. Here are a couple of posts that get to the point:
+		- http://suppversity.b...tochondria.html
+		- http://suppversity.b...raining-in.html
+		- http://suppversity.b...se-neither.html
+		- This blog is focussed on weight training & exercise (which I do a lot of), but I can't help but question whether the effects of ROS in relation to muscular adaptations (strength increases) would also apply to the brain and other cells. After all, studies have found that antioxidants as simple as Vitamin C, and as standard as NAC, have both led to reduced muscle growth from training. And I know we're all familiar with hormesis, and that for LLLT it's recommended that we do a day or two on, a day off, for the sake of recovery, but... Does it not stand to reason that the Ubiuinol / PQQ are in fact reducing potential gains?
+		- Quote
+		- How increased oxidative stress promotes longevity and metabolic health:
+		- The concept of mitochondrial hormesis (mitohormesis)
+		- "Moreover, these findings indicate that approaches to induce
+		- mitochondrial metabolism are likely to promote metabolic health
+		- and may potentially extended lifespan. This notion is supported
+		- by the fact that not only calorie and/or glucose (and possibly amino
+		- acid) restriction, but also longevity-promoting physical exercise induces
+		- mitochondrial metabolism and ROS formation (Davies et al.,
+		- 1982; Chevion et al., 2003; Powers and Jackson, 2008). Notably,
+		- supplementation with ROS-reducing antioxidants inhibits (Gomez-
+		- Cabrera et al., 2008; Ristow et al., 2009) the health-promoting
+		- effects (Higuchi et al., 1985; Lindsted et al., 1991; Manini et al.,
+		- 2006; Warburton et al., 2006; Lanza et al., 2008) of physical exercise."
+		- My apologies if this topic has already been covered (if so, please shoot a link over), but I'm curious of your perspective on this, in relation to both the brain & muscles, and whether antioxidants should be used daily, in small & controlled doses, or even at all.
+		- Thanks!
+		- http://www.theguardian.com/society/2014/feb/28/dna-pioneer-james-watson-theory-diseases
+	- Muse - EEG Headband $299
+	    collapsed:: true
+		- $299 http://www.choosemuse.com/products/muse
+	- neurofeedback training by pocket neurobics
+	- No More Needles: A Crazy New Patch Will Constantly Monitor Your Blood
+	- Non-Invasive Continuous Blood Glucose Monitoring
+	    collapsed:: true
+		- http://www.mendosa.com/meters.htm
+		- Existing Non-invasive and/or Continuous Meters
+			- Added March 14, 2008:
+			- Abbott Diabetes Care announced on March 13 that the Food and Drug Administration has finally approved its FreeStyle Navigator Continuous Glucose Monitoring System. The FreeStyle Navigator system will be available in the second quarter of 2008 by prescription only. It received CE Mark in June 2007 and has been available outside the United States since September 2007. The URL is
+			- http://www.abbottdiabetescare.com
+		- The FreeStyle Navigator Continuous Glucose Monitoring System can only be purchased from Abbott Diabetes Care. The System Kit, (reusable wireless transmitter and receiver, user guide and belt clip) is priced at £950. Sensors, which can be used for up to 5 days, are priced at £240 for a box of six 6 units. In addition, we will provide free of charge download software, so that you can review your data on your computer, and a telephone training session with one of our expert trainers. Unfortunately the Freestyle Navigator Meter and sensors are not covered by NHS reimbursement.
+			- DexCom Inc. in San Diego offers a short-term sensor that wirelessly transmits glucose readings to a hand-held receiver, providing real time continuous measurements. The company is also developing the first long-term implantable sensor for the continuous monitoring of glucose in people with diabetes. Full disclosure: I own stock in DexCom (ticker symbol DXCM). The URL is
+			- http://www.dexcom.com/
+			- Updated July 3, 2007:
+			- Medtronic Diabetes in Northridge, California, offers two continuous sensors for patient use:
+				- The Guardian Real Time Continuous Glucose Monitoring System displays real-time glucose readings and alerts patients when glucose values become too high or low. The URL is
+				- http://www.minimed.com/products/guardian/
+				- The MiniMed Paradigm REAL-Time System is the first continuous sensor approved for integration with an insulin pump. The URL is
+				- http://www.minimed.com/products/insulinpumps/index.html
+			- Added April 27, 2007:
+			- A. Menarini , headquartered in Florence, Italy, offers its GlucoDay S continuous glucose monitor in Italy, Spain, Portugal, Greece, France, Germany, UK, Sweden, Belgium, The Netherlands, Luxembourg, Austria, and Slovenia. The URL is
+			- Glucoday
+			- Updated April 23, 2009:
+			- OrSense Ltd., in Nes Ziona, Israel, says that it is developing the NBM-200G continuous non-invasive monitoring system. But it is still limited to investigational use and has not been approved for sale anywhere. The URL is
+			- http://www.orsense.com/Glucose
+			- New Books About Noninvasive Glucose Sensors
+				- There have been many attempts over last few decades to find a means for measuring glucose without drawing blood or causing pain. But in spite of brilliant, determined, and resourceful investigators and the investment of hundreds of millions of dollars, no one has yet succeeded. As a scientist and technical executive in the industry for many years, Dr. John L. Smith participated in the evaluation of more than a hundred such attempts, only to see the same technology investigated time and time again, primarily because no one had detailed why previous attempts had not succeeded. He is the former CEO of Fovioptics and earlier the chief scientific officer of LifeScan. In a 24-year career he professionally evaluated more than 100 noninvasive meter technologies. Dr. Smith wrote the first edition of a book on the subject in 2006, and I hosted it here. Five years later, while we have yet to witness success, many more attempts have been made, and a second revised and expanded edition of the book, The Pursuit of Noninvasive Glucose: “Hunting the Deceitful Turkey," is now complete and has once again been made available for everyone to read. It is dedicated to the hope that someday, this long-sought goal will finally be achieved. You can read the entire book at The Pursuit of Noninvasive Glucose 3rd Edition.pdf
+			- Added September 21, 2009:
+			- Guy Bechet has translated this book into French athttp://www.mendosa.com/bechet.pdf It's not a computerized translation, so it was quite an effort. There is also a brief summary of the book with some other notes attached at http://www.mendosa.com/bechet_summary.pdf.
+			- Added February 13, 2010:
+			- A new technical book with thorough descriptions of the problems involved in developing non-invasive senors just appeared. The book is In Vivo Glucose Sensing (Chemical Analysis: A Series of Monographs on Analytical Chemistry and Its Applications) and is edited by David Cunningham of Abbott and Julie Strenken.
+			- Added February 14, 2012:
+			- An even bigger and more technical book is Handbook of Optical Sensing of Glucose in Biological Fluids and Tissues. Edited by Valery V. Tuchin, CRC Press in Boca Raton, Florida, published this 709-page book in 2009.
+			- Current Blood Glucose Meters
+	- Passive Calorie Tracking Will Be A Gold Mine
+	    collapsed:: true
+		- Consider these two statements:1. Humans are generally lazy. 2. If you measure something, and can see the results, it will improve.](null)Weight loss and gain are approximately determined by the simple laws of thermodynamics. If you put more energy into your body than you require, it will be stored as mass, and vice versa. Therefore, the simple equation of Calories in minus Calories out is a pretty easy way to determine if a person will gain or lose weight.
+		- We’ve gotten pretty good at passively measuring caloric output. I’ve been wearing the BodyMedia Fit Link Armband, and plenty of others around the globe are monitoring with other “Quantified Self” devices such as the Jawbone Up, Nike+ Fuelband, various FitBits, and the Basis B1.
+		- The thing we’re not good at is measuring caloric input. I’m good at it, but I’m not a normal person. When I’m cutting body fat, or performing an experiment that I’m determined to stick to, I track every macronutrient and Calorie that goes into my body with MyFitnessPal or DailyBurn. However, normal people aren’t that diligent (see rule #1), and they often don’t want to face the reality that the donut that they just ate may be half of the Calories that they require for the day. Ignorance is bliss, even if it’s self-imposed.
+		- These “Calories out” measurement devices are proving that passive measurement tools work. If a person doesn’t have to perform work to measure their energy output, they’re perfectly willing to track and analyze it. In fact, it capitalizes on rule #2: If you measure something, and can see the results, it will improve. Dick Talens of Fitocracy recently wrote an awesome piece on generating a positive feedback loop for results, and I couldn’t agree more.
+		- The thing that we haven’t gotten yet, is passive measurement and visualization of Calories in. The moment we can hook up some sort of combination glucose monitor + heart rate monitor + mass differential measurement tool to even ballpark the Calories we’ve ingested, there will be a gold rush to create weight-loss tracking tools with merely the effort of strapping on a device.
+		- I don’t know where the state of scientific research is in this area, but the race is on. And if you’ve got any ideas of how to guess at how many Calories a person has ingested, I’d love to work with you.
+		- Comment](http://benjamingilbert.net/passive-calorie-tracking-will-be-a-gold-mine/#respond) ([RSS
+			- © Benjamin J. Gilbert
+			- |
+			- RSS
+			- |
+			- You should follow me on Twitter.
+	- http://en.wikipedia.org/wiki/Pulse_oximetry
+	- The Ultimate Laser Protocol TULIP
+	    collapsed:: true
+		- Q's Nootropic Blog: T.U.L.P. = The Ultimate Laser Protocol = Laser+PQQ+CoQ10 = Enhanced Mitochondria/ATP = Transformed Life ](null)[ TULIP is a stack that aims to produce higher performance in all cognitive levels by improving Mitochondria, (the energy factories of the cells), ATP production and increased neurogenesis & extended axonal branching. Lostfalco, a member of Longecity.org in this forum ](null)[TOPIC, thought up TULIP.
+			- The core of the Protocol of TULIP is:
+			- 1. Laser/LED’s (LLLT/Photobiomodulation): more efficient ATP production, neurogenesis, and extended axonal branching.
+			- 2. PQQ: more & better mitochondria.
+			- 3. CoQ10: more & better mitochondrial output.
+			- See HERE](http://www.longecity.org/forum/topic/65619-tulip-experiences-thread-anecdotes-and-quantified-self/#entry610528) for a log of Lostfalco’s experiences with TULIP. In addition, [HERE](http://www.longecity.org/forum/topic/63228-lostfalcos-extensive-nootropic-experiments/page-10#entry597659) is the link for the birth post of TULIP if you want to read up on it from the beginning. [HERE is another Article from SelfHacked.com on LLLT.
+			- ___________________________
+			- “The number one thing is speed. My thoughts are just lightning fast...way faster than they've ever been. The most interesting thing about it to me is that it's that way all the time. It's not like I dose in the morning and then slow down four hours later. This is part of what I mean when I say I feel changed. This just seems to be how I am now. It makes sense given the proposed effects of PQQ and photobiomodulation. I just have to make sure I get enough calories.” ___________________________
+			- The whole goal is to improve the number and efficiency of, (ie. smaller), Mitochondria for increased ATP synthesis. ATP runs every cell = tissues =organs = YOU! More ATP equals more energy and improved function. The smaller the mitochondria you have the better the improvement and energy/ATP available. Another note is that you have two interacting genomes...mitochondrial DNA (mtDNA) and nuclear DNA (nDNA). Mitochondria, some individual cells have 1000+, provide the energy and the nucleus tells the energy where to go and what to build, at least the information portion of it. See these videos for a general description of LLLT: https://www.youtube.com/watch?v=rBoNl64fZHQ](https://www.youtube.com/watch?v=rBoNl64fZHQ) [https://www.youtube.com/watch?v=g1Jek7bLOM4
+			- NOTE TULIP focuses on using Infrared LED array(s) or Laser(s) on your head/skull for improving ATP production in your brain. Yes people, we are shining near infrared light into our heads for cognitive optimization. In addition, YES! There is a lot of science behind this having quite strong and paramount potentials.
+			- Here are the full texts of five human studies (Source of Links Lostfalco): 1. http://dspace.mit.ed...le/1721.1/58558](http://dspace.mit.edu/handle/1721.1/58558) (scroll to bottom to download full text pdf of pilot study) 2. [http://www.ncbi.nlm....les/PMC2796659/](http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2796659/) (non-controlled) 3. [http://stroke.ahajou.../38/6/1843.long](http://stroke.ahajournals.org/content/38/6/1843.long) 4. [http://stroke.ahajou.../40/4/1359.long](http://stroke.ahajournals.org/content/40/4/1359.long) 5. [http://pdfcast.org/pdf/i-ve-seen-the
+			- Here are some intriguing resources LLLT:
+			- 1. Gonzalez-Lima Summary Article https://dl.dropboxus...nzalez-lima.pdf
+			- 2. Hamblin Summary http://www.ncbi.nlm....les/PMC3288797/
+			- 3. Zawy's page http://heelspurs.com/led.html](http://heelspurs.com/led.html) 4. Nattzor's Self-Experiment and Gwern's Analysis [http://www.gwern.net/LLLT Choosing an Near Infrared Array
+			- 808nm Lasers are more common in research literature but 850nm IR LEDs are easier to get and cheaper. This makes it the most commonly used by people doing this protocol. You can find 850nm LED arrays on amazon and eBay relatively cheap. Preferably, look for a unit with power brick included. HERE](http://www.ebay.com/itm/96-LED-Night-Vision-IR-Infrared-Illuminator-Light-lamp-For-Security-CCTV-Camera-/151062759835?pt=US_Surveillance_Gadgets&hash=item232c0ac99b) is a 96 LED array that I use. For someone who would use an 808nm laser, I suggest a [Vetrolaser. Yes, it is a bit more costly but it is medical grade and safer* to use then getting a 808nm 200-300mw laser off of eBay and hoping you know what you are doing.
+			- Different wavelengths are noted to have different effects on cognition/cells. Most people will being using 850nm LED arrays and research is showing that LED’s may be more effective over lasers not to mention cheaper and much *safer for home applications. However, they do not penetrate as deeply. I will be referencing them in the majority of the article.
+			- If you get an LED infrared array that is cased you need to remove the glass cover and place the LED array directly on your head. It may get a little warm, but this is nothing to worry about. To answer a commonly asked question, no you do not need to be bald for this to work.
+			- Lasering Provisional Protocol
+			- 1. Laser your whole brain, preferably before bed. Some people prefer not to laser the back of head, where the optic nerve is, due to circadian rhythm concerns (resetting and such). Personally, I feel a little dazed when I shine the LED array on the back of my head. My friend, however, finds it quite uncomfortable.
+			- 2. Begin with 30 seconds per location.
+			- 3. There are 9 individual "regions" on the sides, top, and back of your head; and roughly 5 individual spots on your forehead along the hairline, that need to be aimed for.
+			- 4. Recommended 2 days on/1 day off or every other day. DO NOT use every day.
+			- 5. Total Time: 7 minutes. Try this for 1 to 2 weeks before increasing dose time. (Note: ALL is currently provisional.)
+			- You can also use the LED array on your stomach, (it is great for reliving aches), Thyroid, and Gonads among other parts of the body. Generally, infrared light is good for reveling pain and inflammation. (Different wavelengths have different actions on cells/types of tissue)
+			- Over doing it, using it too long, or trying to MEGA DOSE is a bad idea! Commonly reported problems are; tiredness, increased need for sleep*, and loss of benefits. This is very much like physical exercise, only for your brain, and it is not that hard to overdo it. LLLT is very much a curve response. Benefits peak up to a point then can diminish with furthering the ante. Start with 30 seconds and keep it there for the one or two weeks to see what TULIP can do even at smaller doses. Then increase from there gradually to find your limit and optimal dose and schedule for you.
+			- *whereas appropriate doses typically decrease the need of sleep
+			- Here is an intriguing post by domenic, a longecity user, posted in the Primary TULIP thread. There are many others but this one has a solution* and potential for furthering TULIP and discussion.
+			- *This was his solution, but it may not work for everyone.
+			- ___________________
+			- “…I have been using the TULIP protocol for 3 weeks now, and have had similar results to other on this thread. However, a week ago I feel asleep while Lasering with a 96 array led. It was only between 3-5 minutes, but it was enough to throw me off for the past week. I was not feeling the benefits of TULIP and felt significant brain fog, even taking every other day off and 5 days off last week. I have been reading Dr. Jack Kruse and realized that possibly I had overdosed in transferring electrons via increase in mitochondria. Dr. Jack Kruse calls this molecular density, which he argues is the cause of several health problems because it does not allow cells to process electrons efficiently and thus fucks up their function.
+			- According to Dr. Kruse, electromagnetic frequencies above the magnetic resonance of the earth, and irregularities in circadian biology caused by the use of artificial light and eating out of season or after dark, are two causes of this molecular density or clogging. His prescription for these, other than reducing out exposure to them is his well known Cold Thermogenesis. Dr. Kruse says that adapting to the cold through dunking yourself in 50-55 F water, has the primary effect of reducing molecular density. Thus, in a cold adapted state your mitochondria process electrons for energy in a vastly more efficient manner. Similar, he says, to the way superconduction works better in supercooled states. So, I had been taking cold showers getting used to the idea of cold adaptation for the past while and finally I worked up the courage for an ice bath.
+			- The past couple of nights using an Ice Bath has completely returned me to baseline and allowed the benefits of TULIP to continue. It has completely eliminated my brain fog and overfilled feeling I had from accidently doing to much laser.
+			- In fact I think cold adaptation might help improve the TULIP protocol because of the way in which cold allows our cells and mitochondria to be much more receptive to electron transfer and become more efficient in general.
+			- Jack Kruse actually has said that there are ways in which out cells can by pass ATP and use solely electron transfer through a pathway called the PPPQ but I don't fully understand his ideas yet.
+			- Sorry if my understanding of Jack Kruse or Biology is lacking I am just beginning to learn this stuff and biology in general”
+			- ___________________
+			- PQQ & CoQ10
+			- 1. Suggested 100-200mg Ubiquinol CoQ10 for best absorption. Both of these can be a bit energizing. J
+			- 2. PQQ suggests that you buy the 20mg capsules and open them to split the powder into 10mg each. It is considerably cheaper this way. Personally, I suggest Swanson’s Vitamins or Amazon for these two mitochondria enhancing supplements. Jarrow’s is a good brand on either of these sites.
+			- PQQ
+			- http://www.ncbi.nlm....les/PMC2804159/](http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2804159/) [http://www.fasebj.or...bstracts/540.21](http://www.fasebj.org/cgi/content/meeting_abstract/24/1_MeetingAbstracts/540.21) [http://en.wikipedia....inoline_quinone](http://en.wikipedia.org/wiki/Pyrroloquinoline_quinone) [http://www.lef.org/m...chondria_01.htm](http://www.lef.org/magazine/mag2010/ss2010_Rejuvenate-Your-Cells-Growing-New-Mitochondria_01.htm) [http://examine.com/s...noline quinone/](http://examine.com/supplements/Pyrroloquinoline+quinone/) Source: [http://en.wikipedia....inoline_quinone
+			- ___________________________
+			- "In humans, in one double-blind, placebo-controlled clinical trial conducted in Japan in 2007, supplementation with 20 mg per day of PQQ resulted in improvements on tests of higher cognitive function in a group of 71 middle-aged and elderly people aged between 40-70, who outperformed the placebo group by more than twofold in their standardized memory tests.18]Interestingly, co-administration of the unrelated compound coenzyme [Q10 (CoQ10) further improved performance on standardized memory tests when subjects also took 300 mg per day of CoQ10. No adverse effects were linked to the supplementation, and the results suggested that PQQ, especially when combined with CoQ10, can be used to improve mental status and quality of life in older patients, and help slow or prevent age-related cognitive decline in middle-age patients.
+			- However, the study was not peer-reviewed and was published in a non-academic journal. No proper scientific study of PQQ effects on memory or cognition in humans has been conducted, as of 2013."
+			- ___________________________
+			- First Effects: You could likely be tired after the first dose for 2 to 24 hours. Normally it lasts around an hour. This is true as long as you do not begin with a dose higher than the recommended starting dose. Bedtime is terrific time to use the LED array; it puts the tiredness to work. Take the mitochondria enhancing agents first thing in the morning. Future sessions may make you a little bit tired but this is NOT the norm. It is associated with longer then recommended starting doses. The results build over time; give it a few weeks to reach heightening effects.
+			- Here is a quote from http://www.gwern.net/LLLT:
+			- ___________________________
+			- “…it is widely reported among people trying out LLLT that after the first application of the LEDs to the head, one feels weirdly tired for around an hour. I felt this myself upon trying, several people report it in the Lostfalco thread, and an acquaintance of mine who had never seen the Lostfalco thread and had tried out LLLT a year before I first heard of it mentioned he had felt the same exact thing. This feeling seems to go away after the first time, but perhaps it just becomes weaker?”
+			- ___________________________
+			- There are many additions to this Protocol such as Shilajit, Pregnenolone, Creatine, & D-Ribose possibly in Bulletproof coffee. Glutathione or Oxaloacetate is a great idea for mitochondrial cleanup. J
+			- Quote
+			- ___________________
+			- "Supplemental coenzyme Q10 blocks mitochondrial aging, while PQQ triggers the creation of new mitochondria. In addition, shilajit works synergistically with CoQ10, replenishing its electrons and prolonging its antioxidative effectiveness.
+			- Taken together, CoQ10 and PQQ and shilajit offer a potent program to inhibit? And reverse? The intensely destructive cycle that is believed to be a root source of aging!"
+			- ___________________
+			- Suggested Research from Lostfalco’s Profile Page see link for full detail.
+			- A video I made a while back when I first began TULIP. I do look a little awkward…
+			- https://www.youtube.com/watch?v=q6hAVPd5ReA ___________________
+			- “Read these before beginning AND/OR while self-experimenting: 1. Synaptic Mitochondria/ATP article http://www.ninds.nih...ia_07252013.htm](http://www.ninds.nih.gov/news_and_events/news_articles/pressrelease_motile_mitochondria_07252013.htm) Entire article [http://www.ncbi.nlm....les/PMC3757511/](http://www.ncbi.nlm.nih.gov/pmc/articles/PMC3757511/) 2. Low Level Laser Therapy article by Francisco Gonzalez-Lima [https://dl.dropboxus...nzalez-lima.pdf](https://dl.dropboxusercontent.com/u/182368464/2013-gonzalez-lima.pdf) 3. Mitochondrial Enhancement article (pg. 1-3) by Michael Downey [http://www.lef.org/magazine/mag2013/aug2013_Three-Step-Strategy-to-Reverse-Mitochondrial-Aging_01.htm](http://www.lef.org/magazine/mag2013/aug2013_Three-Step-Strategy-to-Reverse-Mitochondrial-Aging_01.htm) 4. LED dosing and expectations by Margaret Naeser (2 Case Reports) [http://www.ncbi.nlm....les/PMC3104287/](http://www.ncbi.nlm.nih.gov/pmc/articles/PMC3104287/) 5. The Machinery of Life by David Goodsell [http://www.amazon.co.../dp/0387849246/](http://www.amazon.com/The-Machinery-Life-David-Goodsell/dp/0387849246/) 6. Life's Ratchet by Peter Hoffmann [http://www.amazon.co...t/dp/0465022537](http://www.amazon.com/Lifes-Ratchet-Molecular-Machines-Extract/dp/0465022537) Highly Recommended Supplemental Reading (without endorsing EVERYTHING within): Minding My Mitochondria: [http://www.amazon.co.../dp/0982175086/](http://www.amazon.com/Minding-Mitochondria-2nd-progressive-wheelchair/dp/0982175086/) Mitochondria and the Meaning of Life: [http://www.amazon.co.../dp/0199205647/](http://www.amazon.com/Power-Sex-Suicide-Mitochondria-Meaning/dp/0199205647/) Oxygen: The Molecule That Made the World [http://www.amazon.co.../dp/B00AAUBP3G/](http://www.amazon.com/Oxygen-molecule-Popular-Science-ebook/dp/B00AAUBP3G/) Life Ascending [http://www.amazon.co.../dp/0393338665/](http://www.amazon.com/Life-Ascending-Great-Inventions-Evolution/dp/0393338665/) Cosmic Evolution: [http://www.amazon.co.../dp/0674009878/](http://www.amazon.com/Cosmic-Evolution-Rise-Complexity-Nature/dp/0674009878/) Future Experimental Directions: A ton! (will update more soon) 1. Happy CIL-TULIP: Mr. Happy's Stack + Abelard's CILTEP + TULIP Abelard’s CILTEP: [http://www.longecity.../pagest1890](http://www.longecity.org/forum/topic/51732-chemically-induced-ltp/pagest1890) Happy Stack: [http://www.longecity.../pagest2130](http://www.longecity.org/forum/topic/51802-gpc-choline-uridine-dha/pagest2130) Happy Stack Reddit: [http://www.reddit.co...in_development/](http://www.reddit.com/r/Nootropics/comments/1lw5cc/synapse_formation_and_cognitive_brain_development/) TULIP Main Thread: [http://www.longecity...s/pagest780](http://www.longecity.org/forum/topic/63228-lostfalcos-extensive-nootropic-experiments/pagest780) TULIP Experiences: [http://www.longecity...uantified-self/](http://www.longecity.org/forum/topic/65619-tulip-experiences-thread-anecdotes-and-quantified-self/) TULIP Research: [http://www.longecity...biophysics-etc/](http://www.longecity.org/forum/topic/65618-tulip-research-thread-mitochondriaatpbiophysics-etc/) TULIP Stack: [http://www.longecity...soxygenepo-etc/](http://www.longecity.org/forum/topic/65620-tulip-stacking-thread-laserleddietsupplementsoxygenepo-etc/) 2. Neurofeedback Opaque: NeurOptimal [http://www.upgradeds...al-trainer.html](http://www.upgradedself.com/tech/neuroptimal-personal-trainer.html) Me: nIR HEG [http://www.upgradeds...in-trainer.html](http://www.upgradedself.com/tech/upgraded-focus-brain-trainer.html) 3. Hypoxic Tent/Endogenous EPO production [http://www.hypoxico.com/](http://www.hypoxico.com/) Cosmic Evolution with Harvard Course Syllabus [https://www.cfa.harv...ocs/splash.html](https://www.cfa.harvard.edu/~ejchaisson/cosmic_evolution/docs/splash.html) Einstein and Photoelectrons [http://en.wikipedia....electric_effect](http://en.wikipedia.org/wiki/Photoelectric_effect) [http://en.wikipedia.org/wiki/Einstein](http://en.wikipedia.org/wiki/Einstein) Interview with Harvard Astrophysics Professor Eric Chaisson [http://youtu.be/ChAmeRD3b-I”
+			- ___________________
+	- Recommendations | Pulsed Electromagnetic Therapy
+	    collapsed:: true
+		- Please read the book first to better appreciate and understand these suggestions. The below recommendations are based on trying over $500,000 worth of devices and my 18 years of research and experience in the field of energy medicine. I do sell some of these devices, but I only sell and recommend what my research has proven to be most effective. Also Note that this list of recommendations will change from time to time as better machines or technologies present themselves. ](null) ](null)[ The 5th Element – Earth PEMFs (The Schumann and Geomagnetic Frequencies) Supplement with a good earth-inspired PEMF device. This is my #1 recommendation based on all the devices I have ever used, owned, researched and experienced. The amazing results I have seen in myself and in hundreds of others is the motivation for writing this book. If you have a limited budget, I would invest in a good earth-based PEMF system first. available at www.imrs2000.com
+			- Comment - The iMRS meets all the criteria listed in chapter 8 of my book and is the device that most closely duplicates the Earth’s Natural PEMFs in book frequency, Intensity, Waveform and Phase/Timing.
+			- ](null)[ Element Earth – Food and Nutrition Eat only organic non-GMO whole foods. Eat more raw foods, especially fruits and vegetables and fresh green juices. Check out your local organic farmers and farmers markets. Try to buy local. Also, check and see if you have any local raw food restaurants. Most health food stores have a raw food section. You don’t have to be 100% raw and vegan, but start incorporating more fresh, raw food especially for snacks and desserts. Organic food is more expensive, but well worth it. Get a good variety of healthy organic foods in your diet and you’ll not need to supplement as much. Also try to make a salad your meal or have a salad or greens with every meal. Stock your cupboards with healthy foods and you’ll eat healthy foods. Set yourself up for success! Also eat relaxed and chew your food well. Make every bite count! I also recommend Dr. Schultze’s Superfood, colon cleansing and herbal remedies. Check out www.herbdoc.com
+			- Element Water
+		- Invest in a good water ionizer. Buy only the top of the line ionizers as they have more plates of ionization, better electronics, and better cleaning cycles. Also absolutely make sure it has good filtration with the ability to remove fluoride, chloramines and other hard to remove toxins.
+			- Recommendation - The Vesta GL by Alkaviva available at www.VestaGL.com
+			- Comment - The Vesta GL combines the Best Purification System along with 9 plates of Ionization, advanced Samsung electronics and advanced cleaning cycles with no maintenance required (except changing the filters). It is also the most ecofriendly unit.
+			- Element Fire – Full Spectrum Lighting and Infrared Therapy
+		- 1) Use only FULL spectrum incandescent lighting in your house. (Avoid fluorescent and compact fluorescent lights at all costs!) Full Spectrum lights available at http://www.fullspectrumsolutions.com/
+			- 2) Invest in a light box if you live in Northern Climates. This is a must if you spend long periods of time with little or no sunlight. Recommendation -UltraLux I or Ultralux II available at http://www.fullspectrumsolutions.com/
+			- 3) Invest in a good Near Infrared Sauna. Look for high quality construction, non toxic wood and materials, low emf and even heat distribution. Far infrared is good also, but Near Infrared has the added benefits of making you sweat faster, better detox, added color therapy and better skin rejuvenation. Also you can request a couple extra sockets for FULL SPECTRUM lightbulbs so you would not need a light box. Also you can add other colors for advanced color therapy. Check out www.NearInfraredSauna.com for the best of the best in Saunas.
+			- Element Air – Oxygen and Clean air
+		- 1) Invest in a good indoor air purifier.
+			- Recommendation - IQ Air Healthpro Series available at many online stores.
+			- 2) Also look for an air ionizer for healthy negative ions Recommendation - I like the Elanra available at http://www.negativeions.com/
+			- Exercise and Whole Body Vibration
+		- 1) Do cardiovascular training if possible 3-5x/week 2) Do strength training if possible 3-5x/week 3) Research the exciting new science of whole body vibration.
+			- Recommendation - The Noblerex K1 available at www.theNoblerexK1.com
+			- Comments - The Noblerex K1 is commercially rated and based on the original Galileo developed by the Russian Space Program. Its well, built, affordable and very effective as evidenced by the hundreds of positive reviews including my own (I use it everyday).
+	- Remee is a scam and here's why - Lucid Dreaming App
+	    collapsed:: true
+		-
+			- Remee is a scam, and here’s why:
+		- When I first learned about Remee in May 2012 from a reader of my blog, I was excited. I thought that the future is here, and the 80$ lucid dreaming aid is reality. I even put up a link to their kickstarter page on my site. When my Remee finally arrived, I realized I was wrong.
+		- Yes, I own remee
+		- You see, over the last 6 months or so, I’ve heard about Remee mentioned next to real lucid dreaming induction masks, like NovaDreamer and REMDreamer so many times, that I started to believe I’m getting the real deal…cheap.
+		- With the name like Remee, it’s easy to get confused. It turns out I was wrong, and should’ve read the fine print. The fine print (somewhere in the comments section) says:
+		- “Remee does not detect REM (Rapid Eye Movement) sleep”.
+		- What is this REM sleep?
+		- Rapid Eye Movement sleep is when you are most likely to dream, and most likely to remember your dreams. The amount of REM sleep is unequal throughout the night, with the majority of it starting to appear towards the end of the night. REM sleep occurs as a part of sleep cycles, which are roughly 90 minutes long. Later sleep cycles have more REM sleep, thus more intense and long dreaming. A person can dream in non-REM, but is less likely to remember such dreams. A person can stay in REM and not dream coherently.
+		- Real Lucid Dreaming Masks – what do they do?
+		- Real lucid dream induction masks(300$+), like NovaDreamer and REMDreamer are built around these two principles:
+			- Detect when the user is experiencing REM Sleep by monitoring eye movements
+			- Produce a signal to the user
+		- A real lucid dream induction mask uses eye movement sensors to actually detect when the user’s eyes exhibit slow rolling or other kinds of movement that is frequently observed in REM sleep. The only need for timer in such masks is to enable detection after some time delay. Unlike the real ones, Remee simply starts flashing after a timer has counted down 4.5 hours.
+		- The intention of the real masks is to limit lucid dream induction attempts to the REM phase only, and to minimize the disruption of regular sleep. Signals sent during non-REM sleep are at best harmless, at worst they wake you up and you cannot go back to sleep. Because Remee does not detect REM sleep, it is just a bunch of LED lights sewn into a mask, with a timer circuit attached. It will flash light whenever the timer fires, without regard for whether you are dreaming or not. In vernacular, Remee is a scam, if pitched as a real lucid dreaming mask, which it frequently is.
+		- Why random timers do not work.
+		- I’m a sleep researcher. I built two lucid dream induction apps for Android and iPhone. I look at my sleep cycle graphs with Zeo Sleep Manager’s EEG, and over the last year I’ve recorded over 700 dreams times in my electronic dream journal, like in the screenshot.
+		- Each green marker stands for the time when I’ve woken up from a dream. I have complete 90 days of sleep history published, if you wish to review it.
+		- I hope this gives me some authority to speak on lucid dream induction, and what I have to say is:
+			- The dreaming period is short.
+			- Even if I remember 6 dreams in a night, they are less than 15 minutes long, with most being about 5 minutes.
+			- The times of dreams shift from night to night
+		- For example, in the image to the right, I experience two more or less consistent dream awakenings: one at around 6AM, another one is at around 7:30 AM. Mind you that this is after monitoring my sleep history for 90 days. A regular person would not have this information available.
+		- Why Remee timer would fail to catch this “clear and predictable” pattern of awakening? Take a look at the black circle to the left of green ones. This circle indicates when I went to bed at a particular day. If you count the number of hours from the black circle until 6AM or 7:30 AM, you will notice that the times are not consistent: on one day it is 4.5 hours, on another day it is 3.8 hours, then around 3 hours. With Remee, I have a single shot with a followup at hitting my dream. But if your bedtime changes, and your dream times change, then it would be very hard to hit a 15 minute dreaming window that occurs around 4.5 hours after bedtime. Arm your timer too early and it will, at best do nothing, arm it too late, and it will flash when you are awake.
+		- Now, here’s another catch: Notice how some circles on my sleep history are brighter than others? These bright green circles are high-clarity, long dreams, while dark green circles are fragments. Not only do I have to hit the correct dream time with Remee, I also have to hit the correct dream intensity.
+		- I tried, and thousands of users of my app tried, but hitting REM, even with a “smart timer” is hard, and I have not heard many success stories. Hitting REM with a blind timer is a ridiculous task.
+		- Why I’m upset at Remee.
+		- It’s a harmless gimmick, right? So what if people put 80$ for a harmless sleeping mask? The answer is simple – such scams hurt the public’s good faith in development of real, evidence and science based lucid dream induction aids, like halographs. The incredible amount of hype and publicity around the Remee will easily turn sour, once people realize that the mask does not work as advertised.
+		- For example, I’ve bought several “lucid dream induction pills” on the web. They were all crap. Will I buy lucid dream induction pills again? Highly unlikely, unless there’s a ridiculous amount of evidence that pills work safely. Now lets say a biohacking team comes up with a semi-working lucid dream induction pill. To market this pill, they have to fight an uphill battle against all the crap publicity that will remain on the web forever from the previous scammy lucid dream induction pills. The public’s good faith in the product has been tarnished.
+		- Another example – a lucid dream induction app comes along that is marginally effective. Now it has to fight against all the existing publicity and hyperlinks to this site, and my apps. Will a user download another lucid dream induction app after the first X failed? Possibly, but not for 9.99$. This means a lot of effort put into marketing, something that most engineers, scientists and hackers are not accustomed to. As such, a new semi-working lucid dream induction app is less likely to get off the ground, and is less likely to be completed and made functional.
+		- Finally, the Remee, a lucid dreaming mask. It’s cheap, so many people may get it. But without REM detection, most people would just put it on the shelf after less than a dozen attempts. Would these people buy another lucid dream induction mask? Would they buy the new and improved Nova Dreamer and support real lucid dreaming research? Something tells me that these people would be wary of spending money on lucid dreaming products.
+		- Real lucid dream induction masks are built by researchers who spent quite a lot of time on… research and development. Such people are not the best at marketing, and the high product cost of their products keeps amateurs away. With 80$ Remee, which will soon flood eBay for like 30$, novices are exposed to the mask, that looks like a lucid dreaming mask and shines light. Such novices will not know better to distinguish between the real mask that detects REM and a gimmick that only shines light, because they look the same. Think the following conversation:
+			- “What do you think of Lucid dream induction masks?”
+			- “Oh, they don’t work, I got one”
+		- What is REM enhancement anyway?
+		- The project’s name is Remee, an REM (rapid eye movement) enhancing mask. The first thing that bothers me is the name Remee. Each lucid dreamer will recognize the term REM in the name. Why is REM there, if the mask is just a timer? It simply confuses potential customers, sure did trick me into seeing what I wanted to see.
+		- One might ask, what is REM enhancement? How can the interaction of 100 billion neurons, making 100 trillion connections, and exhibiting a cyclical pattern of activity each sleep cycle be enhanced by 6 light emitting diodes? Hmm. I’m out of ideas here. What I would be concerned about is that it does not disrupt my sleep.
+		- Wrong, oh so wrong
+		- I’m amazed at the amount of hype and publicity that surrounds the release of Remee, a lucid dreaming aid that does not even detect REM, even though articles like the one below might make you believe a whole bunch of things that the mask might do. They make you hear what you want to hear:
+			- With Remee, a series of flashing red lights on your sleep mask will appear within your dreams, reminding you that you’re in a dream state. Once those stimuli are acknowledged and understood, a user can begin lucid dreaming as they say see fit. From person to person, lucid dreaming can be a great many things — a means to fly, teleport or meet famous people.
+		- This is wrong, because light cues will occasionally integrate into your dreams, and will appear as random light. Not red. Not flashing. Random. Occasionally the user will recognize that the lights are out of place. From what I’ve heard, the effectiveness of even the “real” lucid dream induction masks is from 13-30% for a trained user, on nights when the user puts effort into signal recognition.
+			- The Remee mask will target the parts of your sleep pattern — typically toward the end — that fall under REM, where dreams occur. It is then that the six red lights under the mask will begin their work. If you’re not in REM, the lights will not effect your sleep, but if you are, it will present the opportunity for the user to become lucid.
+		- What it should read: Remee is a hit and miss timer. It will fire after a static amount of time, with the possibility of some “wiggle”. As a developer of two lucid dream induction apps, I can tell you that this simply does not work that way:
+			- REM times are not static
+			- Dream times shift over the course of several days
+			- REM times are dependent on how long it took you to fall asleep, and when you went to bed.
+		- This means that using Remee after a delay is like tossing a dart in the dark and hoping that it sticks into something. There are a few free timer-based lucid dreaming apps available for your smartphone – try them and see if they work for you. But I would not drop 80-100$ on Remee, because in its current state, it’s a gimmick, or a scam, depending on what you expect. I remind you that I backed the project 6 months ago and even posted links to the project.
+		- Upgrade potential?
+		- I checked reddit and see that people are excited about Remee and Zeo, Remee and EEG headband X. So I opened up my Remee and checked what’s inside. How upgradable it is? As an electrical engineering student, who has experience assembling electronics, I say: Looking inside the mask leaves a slim hope for this version.
+		- The “flexible printed circuit board” that causes so much of a delay in production is actually just 2 pieces of regular circuit board, connected by a cable ribbon. There’s really no space for additional electronics, like a bluetooth module, and the 3.3 volt watch battery would not be able to support wireless data. I guess we get what we paid for.
+		- Is there anything right about Remee?
+		- You bet, the simple fact that a couple guys were able to
+			- raise half a million dollars
+				- put a product on the market with public funding is good.
+			- It’s good that they were able to develop a product that is wearable.
+		- This shows that there’s an unfulfilled need for a lucid dreaming aid at affordable prices. It shows that Kickstarter projects can succeed.
+		- Share
+	- RFID Toys: Cool Projects for Home, Office and Entertainment (ExtremeTech)
+	    collapsed:: true
+		- Radio frequency identification now belongs to the masses, and it lets you control all sorts of things. Like access to your front door. Or valuables in an RFID-enabled safe. You can corral your stuff within an RFID-monitored perimeter, or build a shelf that tells you when you’re out of hot sauce. This book shows you how, with step-by-step instructions, illustrations, photos, and a list of the tools and tech- nology you need for every project. It even supplies the lowdown on read/write tags and—for the truly extreme—implantable chips.
+			- Home door lock
+			- Vehicle access
+			- Computer logon
+			- Electronic safe
+			- Smart shelves
+			- Doggie door
+			- Object locator
+			- Theft alert
+			- Handheld scanner
+			- Implantable chips
+	- Scanadu Scout, the first Medical Tricorder | Indiegogo
+	- http://store.sensoriafitness.com/sensoria-fitness-wellness-reinvented/
+	- Seven Reasons Why I’m Using The BodyMedia Activity Tracker | Bionic.ly
+	    collapsed:: true
+		- Seven Reasons Why I’m Using The BodyMedia Activity Tracker
+		- Posted by Stephen Davies on Tuesday, March 26, 2013 · 3 Comments
+		- c26-B0049POHK6-6-l
+		- I’ve used a number of activity trackers on and off for the last year and have concluded that all of them suit a purpose. Whether it’s getting someone to be more active by making them aware – with data – of their sedentary lifestyle or to the more advanced users who want to know in precise detail how many calories they’ve burnt during that hour of intense exercise.
+		- Thankfully there are activity trackers that cater for both camps. When I’m in training I’m more in the latter camp and so I need a tracker that can fullfil a number of my needs. I’ve researched a number of different offerings and have concluded that the activity tracker best suited to my needs is the BodyMedia FIT LINK and here’s why.
+		- 1. Measures Calories Used While Stationary
+		- Most activity trackers such as the Fitbit are accelerometers which mean they calculate activity and calories burnt by movement. This is fine if running is your thing but what about if you lift weights or use stationary equipment like an exercise bike? The BodyMedia’s patented sensor technology can calculate calories burn by analyzing movement via the accelerometer as Fitbit and other trackers do but goes much further by analysing both skin temperature and what BodyMedia calls Galvanic Skin Response, which measures sweat and its electrical conductivity.
+		- iScienceSensors
+		- Smart stuff! So regardless of the type of activity you’re doing from riding a bike to deadlifting a horse, the BodyMedia will give you an accurate measure of calories burned.
+		- 2. Accuracy
+		- As illustrated above the BodyMedia is around 90% accurate across different exercises and the company is working on making it even more accurate. Its accuracy alongside other activity trackers has been documented by independent users across forums and blogs. Third-party endorsement is important when making purchasing decisions and the BodyMedia has a lot of them from people serious about their fitness.
+		- 3. Larry Smarr Endorses It
+		- Larry Smarr is a pioneer of biohacking and used the BodyMedia for a year while calculating his daily calorific burn. Larry shared on Google Plus his love for the accuracy of the BodyMedia. If Larry recommends it you know it’s a great product.
+		- 4. Product Development
+		- Screen Shot 2013-03-26 at 11.01.35
+		- BodyMedia armbands aren’t the prettiest of wearable devices. Wearing a visibile one with a t-shirt brings stares from people on the street and having to explain to inquisitive friends and acquaintances why you’re wearing it often brings a raised eyebrow.
+		- However, that’s about to change as BodyMedia announced at CES this year that it’s launching an updated body monitor for the fashion conscience. The company also released information at the 2012 CES that it is working on a disposable adhesive patch that does the same as the BodyMedia Link but this has yet to launch.
+		- 5. MyFitnessPal Integration
+		- When I’m tracking my nutritional intake MyFitnessPal is the app I use. It works brilliantly and the more it’s used the easier it is to input nutritional data, either by the barcode scanner or pre-loaded foods. It also integrates with the BodyMedia dashboard and app so you can track how many calories you’re consuming alongside how many you’re burning. A must for anyone who wants to lose, gain or maintain weight.
+		- 6. RunKeeper Integration
+		- RunKeeper is an integral part of my training. I run outdoors a lot and use RunKeeper to track my times, pace and heart rate. Luckily for me both BodyMedia and RunKeeper integrate with one another allowing me to track my activity over both platforms.
+		- 7. It Tracks the ‘After Burn’ of High Intensive Interval Training
+		- High Intensity Interval Training (HIIT) has numerous cardiovascular and fat burning benefits, and it’s been said that an individual’s metabolism speeds up in the short term after performing HIIT exercise. Although these examples are only an N=2 study this lady found that her calorie burn had an increase on her average the following day of HIIT training and this BodyMedia user did also. I’m looking to integrate HIIT in to my training regime and will be interested to see if it is does pick it up.
+		- For the swimmers amongst us (including myself occasionally) it’s a shame the BodyMedia isn’t waterproof. Maybe that’s in the pipeline? Regardless, in a year or so this blog post will be woefully out of date as activity trackers develop and sensor innovation continues to move at a dramatic pace.
+		- Tweet
+		- 10
+		- This page has been shared 10 times. View these Tweets.
+		- 0
+		- Category: Devices, Sensor Technology · Tags:
+		- 3 Comments on “Seven Reasons Why I’m Using The BodyMedia Activity Tracker”
+			- RED-DOLPHIN
+			- March 27, 2013
+			- agree with you and you have very good reasons to prefer BodyMedia device and integration.
+			- We will include more infos about this solution on http://www.red-dolphin.com and welcome you to post with us your links.
+			- We just miss the BodyMedia designs products looking a bit more lifestyle and we are there !
+			- Reply
+			- Pingback: Personal Biohacking Experiment | Bionic.ly
+			- SmarterMuscle
+			- April 24, 2013
+			- The BodyMedia products are currently sold in the UK as KiFit (www.kiperformance.co.uk)
+			- Reply
+		- BodyMedia Hacks: Body Media Metrics and How I Use Them
+		- personal analytics personal informatics tools bodymedia review body media review by measured me blogMy second week of using Body Media tracker is about to end, and by now I am very used to wearing the tracker. I feel comfortable wearing it even with the short sleeves and tank-tops. Who knew that a little gadget on your arm could be such a great conversation starter, at the gym and and on the street! I also had enough time to play with the dashboard and reporting tools, and in today’s post would like to discuss the metrics that I have been collecting on a daily basis, and how I am going to use them.
+		- Total daily caloric expenditure: number of calories burned during the given day. I prefer to underestimate it rather than overestimate, and usually round down the reported number by 10% (reported BodyMedia accuracy is 90%). For instance, if BodyMedia reported that I burned 3,720 calories, I would log it as 3,300. I then use this number to compute the calorie balance:
+		- Caloric Balance = Caloric Intake – Caloric Expenditure.
+		- I estimated the caloric intake (number of calories I consumed on that day) using special calculator that I developed in Google Spreadsheet, and which I will share in one of my following posts. The ultimate goal is to accumulate enough data points to see how the caloric balance and total daily amounts of protein, carbs and fat correlate with the body fat loss and muscle mass gain.
+		- Workout efficiency: by selecting specific time period of the day on dashboard, I can isolate the number of calories burned during my workout at the gym. For now, I am just logging the number, but in the future I hope to compare different sets of exercises to see which ones result in greater caloric and body fat loss. This metric, of course, does not take into account the possible “afterburn effect” (it’s when after the workout your body continues to burn calories at the higher than usual rate). I am actually thinking about running a couple of experiments to see if BodyMedia can capture this effect.
+		- Metabolic rate: this may be not a very scientific method, but I am considering to use average number of METS (metabolic equivalent, calculated as a number of calories burned per body mass and per hour) reported by BodyMedia for a time period between 12 a.m. and 6 a.m. on weekdays as an estimate of my metabolism on that week. For instance, if on Monday, Wednesday, and Friday my reported rate was 1.3 mets, and on Tuesday and Thursday, the number was 1.2, then the average sleeping metabolic rate for that particular week was (1.3+1.1 +1.3 + 1.1 + 1.3)/5 = 1.22. My theory is that as my metabolism increases due to the diet and exercises, this number will also be going up, but I may be wrong, and it may be limited by some natural upper boundary (e.g. won’t never exceed 1.4).
+		- Physical activity: every time I move, Body Media records it as an activity. It then further classifies my activity levels as either moderate or vigorous, and records total time for each level. I am not certain yet, how I could use these numbers, but I would try correlating these numbers with my mood and stress levels. My theory is that as a person who likes to be constantly on the move, my higher activity levels may be associated positively with less stress and better mood.
+		- Walking: not sure yet, how can I possibly use this metric, but for now I will also be logging the number of steps taken on a given day. I actually love to walk, so, perhaps, number of steps will be correlated with my stress levels and mood.
+		- Sleep Quality: the two summary numbers, reported by BodyMedia are time spent lying in bed and time spent actually sleeping. These numbers are then used to compute the “sleep efficiency”, which is simply time slept divided by time lying in bed:
+		- Sleep Efficiency = (Time Slept / Time in Bed)* 100%
+		- However, if you look closer the graph on the dashboard, you can also see how often I wake up during the night (show as gray bands), and by hovering the mouse over those breaks, you can see how long they lasted.
+		- Bm_sleep_band
+		- I consider these metrics also to be important indicators of sleep quality. For instance, the graph above from July 11 shows that on that night, I woke 12 (!) times, and the total time of those “breaks” was 46 minutes. In a couple of weeks, I will start experimenting with some herbal teas and meditation to improve the quality of my sleep, and these metrics will be very useful.
+		- I am also concurrently collecting comparable data from similar devices (cardio machines at the gym, pedometer and Azumio’s Sleep Time app) to validate some of these BodyMedia numbers, and will be posting results shortly.
+	- Smart Food Scale
+	    collapsed:: true
+		- http://www.kickstarter.com/projects/chefsleeve/smart-food-scale-less-about-weight-more-about-you
+	- Smart Watch + Fitness band
+	- Somaxis: Muscle electrical output via electrodes
+	- Wireless GSR Sensor | Galvanic Skin Response Sensor for GSR Biofeedback
+	    collapsed:: true
+		- Measure what topics brought up bring anxiety, etc
+	- Withings Smart Body Analyzer: Amazon.co.uk
+	    collapsed:: true
+		- Ultra precise weight and body fat measurement with Position Control
+		- Heart rate measurement by stepping on the scale
+		- Continuous indoor air quality tracking
+		- Automatic upload of your measurements in Wi-Fi and Bluetooth
+		- Health Mate app to visualize trends and improvements (iOS and Android)
+- Diet
+    collapsed:: true
+	- Intermittent Fasting
+	    collapsed:: true
+		- ((66a2d2f5-f13c-43a5-a0be-dc05fa5ace57))
+		- http://www.lift-heavy.com/intermittent-fasting/
+		- T Nation promotes 6 meals a day because it's unsustainable and you'll need protein shakes and meal replacement powders
+		- IntermiSent
+		- fas<ng
+		- (IF)
+		- • Fas<ng
+		- for
+		- 12-­‐24
+		- hours
+		- intervals
+		- per
+		- day
+		- produces
+		- similar
+		- health
+		- benefits
+		- as
+		- general
+		- calorie
+		- reduc<on,
+		- without
+		- ac<va<ng
+		- a
+		- starva<on
+		- response
+		- or
+		- risk
+		- loss
+		- of
+		- lean
+		- muscle.
+		- •
+		- A “cycling” approach may op<mize sensi<vity to hormones such
+		- as insulin, lep<n, ghrelin, cor<sol, and thyroid hormones
+		- • Once you adapt, IF naturally suppresses between-­‐meal hunger
+		- Multiple mechanisms:
+		- Autophagy: A cellular “recycling” process turned on by reduced intracellular
+		- insulin, insulin, IGF-1 and growth hormone
+		- Activated by low insulin, IGF-1, growth hormone
+		- • Cell engulfs damaged molecules in “vesicle”
+		- • Vesicle fuses to lysosome & recycles its junk
+		- Mitohormesis: A defense response initiated in the mitochondria. Calorie
+		- restriction turns on sirtuin genes that code for endogenous antioxidant
+		- enzymes and neurotropic factors like BDNF, neutralizing reactive oxygen
+		- species (ROS).
+		- Receptor upregulation. After 3 months of restricted eating, D2 dopamine
+		- receptors in the brain are upregulated. This in effect lowers body fat “set
+		- point” and upregulates GLUT-4 insulin receptors in muscle and liver
+	- Protein Fluff
+	    collapsed:: true
+		- Protein Fluff
+			- Low Calorie-Density Foods (high volume) like protein fluff
+				- Airpopped popcorn, big bowls of sliced fruit + veg, cabbage in broth, thin lentil soups, carrots, yoghurt with fruit, egg whites, skimmed milk, watermelon
+				- Popcorn...but divide into 3 bowls. In one, put salt and spring onions or something like that; in the next, onion powder, curry or powdered cheese; in the last, cinnamon, a little butter, honey or maple syrup.
+			- 1 to 2 scoops of casein
+			- 50ml milk
+			- 1tsp xanthan gum
+			- - blend together then electric whisk to fluff it up
+			- OPTIONAL: frozen berries, (liquid) egg whites, flavourings, xanthan/guar, stevia/sweetener,
+			- Or try egg whites/milk/flavouring? (no fat)
+		- 100g berries for flavour + slow dissolving, 3 eggs and 150ml skim milk each time fluffing it (all components necessary for big fluff, no casein needed, FlavDrops also make it dissolve)
+		- Made fluff with 100g blackberries (40p) 200ml milk (15p) and 2 large egg whites (40p) It fluffed to the top in 2 mins - I wonder how responsible for the fluff the milk was?
+		- - Having at least 4 small/2 large egg whites is crucial so that it retains 'fluff' for a while whilst eating. Casein is non-essential, and in fact is most expensive component.
+		- > Test how many berries essential for my 'Berry Fluff' as they flavour the fluff strongly (or at least just blackberries do). Also test milk required
+		- 50g blackberries (20p), 200ml milk, 2 medium eggs - took 7 mins to fluff to top but is taking ages to dissolve. Cheapest and least calories (125kcal)
+		- 50g summer berries, 150ml milk made a big fluff. Barely grew at all though for second fluffing - I think all the milk makes the fluff so adding milk should improve second fluff
+		- > Stick with 50g berries. Experiment with 100ml milk next and dif types of berries "
+		- - Didn't fluff at all 2nd time, 3rd time it did when I added milk. flavouring led to fast dissolving
+		- - Double Berry Fluff (300ml skim milk, 3 eggs, 100g berries). At least 150ml extra milk necessary for second fluffing, also changing from 50g to 100g berries to make it more flavoursome (thus I'll eat more fluff and less calories before dinner)
+		- > Use berries instead of eggs. Less weight to carry, only 50p of a frozen fruit pack used, less time than splitting yolks and makes tonnes of fluff (could even split the same fluff into 2 meals)"
+		- > Make a berry/egg fluff and eat half of it when I get home. Mix it again before dinner and eat other half. "
+		- Made fluff with 2 eggs and 100g blackberries - stick to this for after school meal. Takes half the time for prep+eating compared to the chicken salad plus there's enough leftover to mix before dinner using same batch. And most importantly of all I was only 105kcal over rest day target of 1320.
+		- Introducing protein fluff
+		- Now this is some truly great stuff. Only 200 calories, tastes awesome and extremely satiating.
+		- This recipe has been around on Swedish forums for some time. I didn't come up with it myself and I owe it to a guy named Fever for coming up with the original recipe and Andreaz for perfecting it. Andreaz was eating it like crazy on his latest contest prep and it was probably one of the reasons he felt this was his easiest diet ever. Wish I knew about this little gem a few years ago.
+		- This is what you need:
+		- ~40 g protein powder. Works with: 100% Casein Protein , Nitrean, Sloow Protein and some whey protein brands (I've tried it with Syntrax Matrix). Unfortunately, I've not been able to make it work with Micellar Creme. Please let me know in comments when you find new brands this works with and I'll add them here.
+		- 200 g thawed and mashed berries: strawberries, raspberries or blueberries. Works best with strawberries or raspberries in my experience. Word on the street is it apparently also works with mashed bananas though I haven't tried it yet.
+		- 50ml (or 1.7 ounces) skim milk. You can probably use water as well but I think skim milk will get you a better "fluff".
+		- Sweetener (optional)
+		- Alternative version: 30 g protein powder, 125 g berries, 125ml (4.25 ounces) water or skim milk.
+		- 1. Mix all ingredients in a bowl.
+		- 2. Use a mixer on the strongest setting and mix thoroughly for several minutes.
+		- The concoction will expand or "fluff up" to several times its original size. After 8-9 minutes, it'll look like the picture below.
+		- Serve and enjoy as it is or add some extras like cacao or sliced bananas.
+		- It all comes out to about 225 kcal, 36 g protein, 21 g carbs and zero fat. You can also put it in the fridge for about 30 minutes and it'll resemble a creamy kind of sorbet.
+		- If you plan on eating this on a regular basis, getting a standing good mixer with a bowl will be a nice time-saver in the long run. I'm using "Philips HR1565" which is about $80 or so. If you can't get a hold of that one, Sunbeam 2371 Mixmaster Stand Mixer, White seems like a good alternative. It's important that the mixer is strong (350 watts or more) and has a large enough bowl (3 liters or more).
+		- Ingredients:
+		- 6 Tablespoons of Liquid Egg Whites
+		- Handful of Ice Cubes.
+		- Small Handful of Strawberries.
+		- 40g of Chocolate Whey Protein.
+		- 100ml of Skimmed Milk.
+		- 1 Sachet of Splenda
+		- Method:
+		- 1. Whip 6 tablespoons of liquid egg whites and a sachet of splenda in bowl with an electric mixer until stiff.
+		- 2. Gradually add the protein powder and milk to the bowl whilst mixing.
+		- 3. Crush a handful of ice and your choice of fruit and add.
+		- 4. Mix all the ingredients together for a further 3-4 minutes or until it reaches a light and fluffy consistency.
+		- Nutritional Information Per Serving:
+		- 251 kcals
+		- 45g Protein
+		- 11g Carbohydrates
+		- 3g Fat
+		- Thread: Protein Fluff - 3:1:0 ratio
+		- Protein Fluff - 3:1:0 ratio
+			- This concoction first learned about on leangains sparked my interest enough and over time I've tweaked this to be a little more friendly to my diet when trying to cut weight where I need to make my calories stretch. Voluminous eating for the win.
+			- When making this, I use a kitchen aid stand mixer with whisk attachment and a blender. Your results are going to vary if you have a hand mixer or if you dare try this by hand...good luck, lol.
+			- Base Recipe:
+			- 34g Trutein Vanilla Protein (1 scoop)
+			- 3 Egg Whites
+			- 2 Packets of Splenda
+			- 1/2 c. Skim milk
+			- 8 - 9 ice cubes, finely blended <---- Magic ingredient.
+			- 1/8 tsp Xanthan Gum
+			- 1/8 tsp Guar Gum
+			- Macros: 227 Calories; 41g protein 15g cho 1g fat
+			- That's the base. Boring. Here's some flavor ideas I've either come up with on my own or inspired by others.
+			- Chocolate espresso: Add 2 tbsp Hershey's Unsweetened Baking Cocoa and 1 tbsp finely ground coffee/espresso powder. Instant works too.
+			- Banana: Add a couple drops of banana extract and at the end, fold in some mashed up banana for extra flavor / texture.
+			- Coconut: Add a couple drops of coconut extract and fold in sweetened coconut flakes.
+			- Pumpkin Pie: Add 1/4 cup Libby Pure Pumpkin, and pumpkin pie spice
+			- Apple Pie: Reduce milk by half, add 1/4 cup apple cider, apple pie spice and fold in some diced apples at the end.
+			- Lemon Creme Pie: Use XF LCP instead of Trutein.
+			- Orange Dreamsicle: Replace the ice with a frozen seedless orange (still put it in the blender), orange zest and some frozen orange juice.
+			- Instructions:
+			- 1. Egg whites in bowl - Crystal Farms 100% Egg Whites will work. Egg beaters will not. Whisk on highest setting until stiff peaks.
+			- 2. Add in your wet and dry ingredients. Mix on low until it's all incorporated and then back to high for a couple minutes. It will probably deflate some and will not fluff at this time.
+			- 3. Ice in blender. Make it like shaved ice. If you have ANY large chunks, you're going to make a mess in the next step.
+			- 4. Ice into mixing bowl. Whip it on the highest setting. It could take anywhere from 2 to 6 minutes.
+			- 5. Once fluffed. Fold in your coconut, banana, apple chunks etc.
+			- Yes you "can" freeze it but I prefer to eat it straight. Once finished it should be light, airy and creamy. It may cause some bloat for a bit because of the air you're ingesting. You will feel very full.
+			- Xanthan / Guar Gum. Both can be found in the grocery store. Bob's Red Mill sells both. $8 - 9$ for the X Gum and $5-$6 for the Guar.
+			- I've done this with Myofusion, Trutein and Xtreme Forumulations.
+			- Yes, you can use berries. Berries add carbs. I prefer without the berries. Here are a couple of random photos I've taken over the last couple months.
+	- Tip #1: Gorge Before Going
+	    collapsed:: true
+		- July 19th, 2011
+			- Sticking to a diet when out in public is difficult. If you haven’t noticed, people tend to sell whatever will keep you coming back for more rather than what is good for you. But I’ve discovered a few tricks to keep from straying that, on a high-fat diet, work especially well. I call this one Gorge Before Going.
+		- Gorge Before Going is the most effective of my strategies. It means filling up on protein and fat before heading out. A few eggs, or half an avocado, a few sips of coconut milk. I do this even if I’m not hungry to inoculate myself against hunger.
+			- As I said, some of these techniques work best on a high-fat diet and this is definitely one. First, the fat and protein provide a satisfying fullness longer than any other calorie source, meaning maximum protection while venturing out in the food desert. Second, you really can gorge because fat and protein absent the carbs will not cause one to gain weight. Besides, when I say gorge I mean to the extent that you can. Because on a high-fat diet one gets uncommonly full.
+	- joshwhiton.com » Tip 2: Cascading Indulgence
+	    collapsed:: true
+		- Tip #2: Cascading Indulgence
+		- July 19th, 2011
+		- Sticking to a diet when out in public is difficult. If you haven’t noticed, people tend to sell whatever will most likely snare you rather than what is good for you. But I’ve discovered a few tricks to keep from straying that, on a high-fat diet, work especially well. I call this one Cascading Indulgence.
+		- Cascading Indulgence is a way to negotiate a compromise between a craving and your dietary goals. It goes like this:
+		- I see a cookie. I crave that cookie. Another part of me says “No!”
+		- The key here is not to deny your craving and move on. That’s a dangerous move. You’ll be patting yourself on the back for the next five minutes till you accidentally wander back by the cookie and observe your hand go from cookie to mouth like a chameleon catching a fly. Meanwhile your iron will is piddling around in the yard and your philosophical resolve is in the loo.
+		- Instead, negotiate. “You’re right. That cookie does look delicious. You know what else is delicious? Avocado. Look I’m grinding fresh pepper onto one now!”
+		- “That does sound tasty,” your craving will say. “But I still want that sugary cookie.”
+		- “And you shall have it my good craving! You shall! Just after a snack,” you reply as you get out some peanut butter and put a dollop in your mouth.
+		- Do you see what’s going on here? We agree to give into the craving after a few conditions are met. In this case, the condition of not eating the cookie till after we eat some tasty, satiety-inducing food. Do you know why? Because when it comes time to give in to the craving we will likely find it has disappeared.
+		- Sometimes a particularly strong craving will persist even after the fat and protein decoy, especially if you’ve only begun resisting sugar and carbs. “Hey, about that cookie… just a taste?” It still wants something sweet.
+		- “Ok craving. You got it. Just after we have a few of these strawberries. Look! I’m dipping them in rich coconut milk!”
+		- What you know that the craving doesn’t, is that there’s more sugar in that single cookie than in two dozen sweet strawberries. And we most likely won’t need to eat that many strawberries before finding the craving satisfied and gone.
+		- So stop denying your cravings outright and put a policy of cascading indulgence in place.
+		- *According to the internet, a chameleon’s tongue is rather like Bruce Lee’s arm: a complex arrangement of bone, muscle and sinew, the chameleon’s tongue extends faster than the human eye can follow, hitting its prey in about 30 thousandths of a second.
+	- Satiety Index
+	    collapsed:: true
+		- "Roughly speaking, the more fiber, protein and water a food contains, the longer it will satisfy. But you have to look at each foodstuff individually—and that is why we think our index will be so useful."
+		- Another thing that makes a food satisfying is its sheer bulk. "You can eat an awful lot of popcorn without taking in a lot of calories," says Holt. "It may not weigh much, but it makes your stomach feel full just because it takes up so much space. Oranges come out very high on the index for the same reason—but orange juice probably wouldn't, even though it has the same number of calories."
+		- It is, in fact, the size, bulk and blandness of potatoes that may account for much of its high satiety. Their "portion weight was up to four times greater than the other foods [for the same caloric content]," Holt and her co-authors note in a paper published in the December 1996 issue of the European Journal of Clinical Nutrition.
+		- http://www.drbriffa.com/2013/03/05/study-finds-dietary-fibre-is-more-likely-to-be-cause-of-rather-than-a-cure-for-constipation-and-other-bowel-symptoms/
+		- popcorn?
+		- boiled/baked/broiled potatoes
+		- broccoli
+		- carrots
+		- green veg eg kale, asparagus
+	- Shangri La Diet
+	    collapsed:: true
+		- Flavour associations affect set point
+		- The Shangri-La theory argues that strong or familiar flavors enhance appetite when they become associated with caloric foods.
+		- Foods with a weak flavor-calorie association will lower your body fat set point and cause you to lose weight; foods with a strong flavor-calorie association will do the opposite.
+		- unfamiliar food causes loss of appetite. Fructose digested more slowly than sucrose, sugar water decreased appetite.
+		- Consuming daily fructose water left Roberts hungry enough to eat only “about one meal every two days”, and he steadily lost about 2 pounds a week, dropping from 185 to 150 pounds in short order. He satisfied his desire for non-caloric flavors by drinking tea and chewing gum, and his desire for texture by consuming small portions of crunchy or chewy snacks like apples, nuts, or jerky.
+		- Roberts then generalized his diet to stipulate ingesting small 200-calorie doses of flavorless calories, at least an hour before or after any meal. eg nose clipping
+		- - In a further experiment, Cabanac found that letting subjects consume as much as they wanted of a restricted bland liquid diet let to significant weight loss without hunger.
+			- For example, Roberts predicted and confirmed that appetite suppression and weight loss can also be achieved by consuming foods with unfamiliar flavors, so one variation of SLD is to add “crazy spices” to foods to break the flavor-calorie association, or by using nose-clipping to suppress detection of flavors while eating.
+		- Body fat set-point regulates appetite. Flavour-calorie associative learning (makes food taste better when associated with biological importance ie calories).
+		- Your set point (leptin levels)is always naturally dropping, but is raised by eating - set point is regulated by flavour-calorie association.
+		- If you eat something with flavor X, which is followed by your metabolism detecting a large source of calories, flavor X will (a) seem more appealing and taste better, and (b) will raise your set point whenever you eat items with flavor X.
+		- The actual Shangri-La Diet is painfully simple by comparison: consume nearly tasteless extra-light olive oil, being careful not to associate it with any flavors before or after, to raise your body weight a little without raising your set point. Your body weight goes above your set point, and you stop feeling hungry. Then you eat less... and your weight drops... and your set point drops a little less than that... but then next morning it's time for your next dose of extra-light olive oil, which once again puts your (decreased) weight a bit above the set point.
+		- i.e. consuming food increases leptin
+		- Between meals set point goes down. Eating raises it as much as association strength. So eat set-point lowering calories and less set-point raising ones:
+		- 1) Eat foods with weak flavour eg ((66a2d2f5-7fd1-4fdb-80cd-b3248a71639b))
+		- 2) Avoid foods with exact same flavour every time eg processed food
+		- 3) Eat foods that are digested slowly eg low carb and GI
+		- 4) Eat unfamiliar foods
+		- 5) Nose clip foods to make flavours uniform, which reduces appetite as foods aren't novel
+		- 6) Slow digestion of foods e.g. added fibre such as psylium husks or superveg; added fat
+		- 7) Increase novelty of foods e.g. crazy spicing such as tumeric, cinammon in pizza,
+		- SLD Flavourless Calories (4*bw i.e. 300kcal) - 30ml
+		- Eg olive oil or sugar water, butter with meat or Novel Protein Shake (below)
+		- Another theory: Calorieless flavours?
+		- http://boards.sethroberts.net/index.php?topic=4361.0
+		- e.g. low calorie Kool-aid, diet drinks, olives in hot peper sauce, shrimp in extra hot chili, raw apples with cinammon, cinammon flavoured sugarless gum, tea, sauces, few nuts, finger in jam
+		- > doesn't this go against Food variety theory i.e. we eat more of novel foods
+		- Novel Protein Shake
+		- Here's a drink I make in my blender:
+		- 1. Crush bout 1 cup of ice.
+		- 2. add 1-2 T half-and-half.
+		- 3. add 2 Splenda packets
+		- 4. add 2-4 T protein powder (flavored okay)
+		- 5. add approx 1/4 - 1/2 tsp of each of 4 or 5 randomly chosen spice blends
+		- blend until smooth.
+		- This makes a pleasant and satisfying drink. It tastes "spicy" -- not unpleasant at all.
+		- The half-and-half and the protein powder supply calories, which will be in range 100-300. Which should be just as effective at appetite suppression as the same number of calories of ELOO.
+		- I like this for two reasons, both of which improve on the simple idea of adding random spices to your food:
+		- 1. It is pleasant to drink. Unlike most foods, the pleasure doesn't come at all from the flavor. It comes from the creamy texture (supplied by the half-and-half), the protein taste (supplied by the protein powder), sweetness (from Splenda), saltiness (from the spice blends), and the liquid (ice). Each of these components produces a little bit of pleasure, which sum up. The whole food is constructed to provide the pleasure that the flavor fails to provide.
+		- 2. There is no sense of loss. This food is new to me so I don't have any expectation that it "should" taste better than this. I don't think: oh no, I am going to add spices and make it taste worse. I think this is what caused many people to reject crazy spicing; they don't want good foods to taste worse.
+	- http://skinnyfattransformation.com/price-6-pack-skinny-fat/
+	- The Second Meal Effect - small first meal?
+	    collapsed:: true
+		- ](null)[ Noticed a 200 cal chilli con carne meal had a big effect on hunger and no postprandial somnolence](null)[The Second Meal Effect: Hacking Your Insulin Sensitivity](null)[BY ](null)[KEVIN GEARY](http://rebootedbody.com/author/kgeary/)[2 COMMENTS
+		- There are some hidden gems in the world of nutrition and fitness — findings that have interesting and useful implications outside of the general “eat this, not that” advice.
+		- Resistant starch is one of them. The second meal effect is another.
+		- Once you know these things exist, you can put them to immediate use. That’s what I love about them, they’re directly actionable.
+		- Low carb diets are popular — especially among T2 diabetics — because of their regulatory nature when it comes to insulin and blood sugar. If you eat a high carb meal, you spike your blood sugar. Eat a low carb meal and you don’t.
+		- Let’s say you eat a low carb (or low-glycemic) breakfast: the interesting part about doing so is that it doesn’t just have a positive effect on blood sugar at the time, it actually improves your PPGR (postprandial glycemic response) at the subsequent meal. This is termed “the second meal effect.”
+		- Postprandial is a really fancy term for “after the meal.” PPGR is a gauge of hormonal and metabolic function (and thus health). If you have a functional metabolic and hormonal response and eat a high carb meal, you’ll see a certain spike in blood sugar (appearance) that is flushed from the body in a certain period of time (clearance): PPGR.
+		- If you feed someone with a dysfunctional hormonal and metabolic response the same meal, you’ll see a bigger spike with a much greater struggle to flush the system back to normal. Their PPGR is worse. This person would benefit from a low carb lifestyle that avoids spiking blood sugar in the first place.
+		- If you have a functional response, you still benefit from anything that will help you reduce spikes and flush blood sugar faster. Enter the second meal effect, where eating a low carbohydrate diet for a first meal makes you more carb-tolerant at the second meal.
+		- Understanding this means that if you’re planning on ingesting a higher carbohydrate meal, you can time it optimally or strategically set it up.
+		- Carbs come in handy when you’re actively working to increase performance; they restore glycogen stores; they improve sleep in some people; they help avoid physiological insulin resistance seen in long-term low carb diets and so on. But there are still hazards with regard to constant spikes and good blood sugar control reduces general risk for disease.
+		- So if you can blunt the spike and aid clearance, that’s a good thing. Resistant starch does just that (among other things). And so does gaming the second meal effect.
+		- In simple terms: if you’re planning on going higher carb for a meal — for whatever reason — low carb the meal prior to it. Don’t think of “2nd meal” as “lunch.” The name is a bit confusing. It should probably be called “the subsequent meal effect.”
+		- If you eat a low carb dinner, your PPGR will be improved at breakfast the following morning (what most people would consider “first meal”). Make sense?
+		- Understanding both the second meal effect and the positive effects of Resistant Starch, my recommendation would be to eat low carb along with RS supplementation prior to the meal where you increase carb intake.
+		- Of course, don’t take my word for it — go buy a blood glucose monitor and verify for yourself. They’re insanely cheap for giving such important verification.
+	- Top Tips For Fixing Insulin Resistance
+	    collapsed:: true
+		- Why we get tired after carbs In a sentence, we get tired after eating carbs because of an insulin spike. There are two reasons why we secrete too much insulin post meals with carbs. and fertility issues, but males can have a similar kind of issue and the symptoms manifest itself as premature balding. In thin people, IR is caused by an inefficient conversion of Inositol to D-Chiro-Inositol and because of excess oxidative stress. In overweight people who initially were never tired after eating carbs, being overweight is the more likely cause of IR. It’s usually the case that thin people with IR experienced fatigue since adolescence and it’s possible that they stayed thin, part, because this fatigue causes them to eat less. For people who’ve always experienced fatigue AND are overweight, they have it the worst.
+			- 2) In relatively thin people, gut problems can limit the production of DPP4, which is an enzyme that breaks down a gut hormone called GLP-1. Too much GLP-1 causes a hyperinsulin response. The way to deal with this type of hyperinsulinism is to fix the gut and take DPP4 enzymes.
+			- Read: What may be the markers of the male equivalent of polycystic ovary syndrome?
+			- About one third of the premature balding men showed the combination of hormonal shifts and higher insulin resistance. This frequency corresponds to the prevalence of PCOS in women. Solutions
+			- The solutions for insulin resistance will be similar if not the same whether you are thin or obese.
+			- If you are overweight, the single most important thing you can do is lose weight. In that case, the right diet and plenty of exercise is 95% of the battle. If there are other reasons for your IR, supplements will play a significant role. For losing weight, you can try the diet I have designed or whatever else works for you. The RS diet is loaded with fiber and is comprised of foods with low calorie density, so it’s hard to consume too much calories. Supplements can be of help here, but diet and exercise should be the main focus.
+			- If you are thin, you will need to focus more on supplements and abstaining from gluten, casein, yeast and other foods that you may be sensitive to.
+			- Environmental factors that can contribute to insulin resistance
+			- I believe that people should always first take away what’s bad before being proactive and trying to change everything. So below is a list of some causes for why people have insulin resistance:
+			- Low endogenous antioxidants because not enough vegetables, excess saturated fat or excess fat (Poly-6), inflammation, food sensitivities, excess calories, circadian rhythm disruption, cortisol -mainly from psychological stress, frying food, high fructose intake, excess and low sodium, excess uric acid (caused by excess animal protein, sugar)
+			- Excessive dosages of supplements like uridine, glucosamine, CLA, antioxidants (vitamin C,E, and beta-carotene), glutamine, iron, calcium, growth Hormones and drugs/food additives/toxins such as nicotine, protease inhibitors, BPA, tolylfluanid (fungicide used) and carrageenan.
+			- Lifestyle and Diet
+			- -As I mentioned before, eat the right diet - this is CRITICAL. Low glycemic index foods are key.
+			- -Use mindfulness and meditation for Stress Management (Full Catastrophe Living), to prevent the issue from getting worse in the long term.
+			- -Do 3 sets of pull-ups with a pull-up bar as soon as fatigue sets in. If you’re relatively thin and have problems with fatigue after carbs in addition to having gut problems, then stay away from gluten(wheat, spelt, rye, barley and oats), casein (all dairy products), yeast (in gluten-free breads) and unfermented soy, as well as all food additives like carrageenan (in rice milk, almond milk, etc..), BPA(in cans) and potassium sorbate. This essentially means to stay away from packaged and processed foods. Also, avoid all oils. Small and frequent meals are essential.
+			- The most effective supplements
+			- -Semi-nutrients/amino acids: 4g Inositol, 500 mg NAC (with morning meal or upon awakening but with some food and with lunch if still fatigued), 100mg Stabilized R-Lipoic Acid with meal. These supplements are especially important for people who have IR caused by gut problems and oxidative stress.
+			- -Minerals: 20mg Zinc, 2.5g Magnesium (before bed), 200mcg GTF Chromium, 200mg Calcium Citrate 2X/day if no/little dairy. These supplements are especially important for people who have IR caused by gut problems and oxidative stress.
+			- -Herbs: 16oz Kombucha tea, 2 tablespoons Bragg Apple Cider Vinegar or Apple Cider Vinegar pills before meals, 2.5g Matcha or tea, Grape Seed Extract , 1 tsp Chyawanprash a half an hour before morning meal, 5g Ceylon Cinnamon, 400mg Berberine (with meals). These supplements are good for overweight and thin people.
+			- -Vitamins: 2000iu Vitamin D3 and 1 cap K2
+			- -Enzymes: DPP4 enzymes and other Digestive Enzymes right before a meal. Don’t use this if you are overweight.
+			- -Foods: uncooked 20g Arrowroot Starch, 20g Potato Starch or 2 semi-green bananas. 2 cloves of raw garlic. These foods are good whether overweight or thin.
+	- Whole Health Source: Food Reward: a Dominant Factor in Obesity, Part VI
+	    collapsed:: true
+		- this also means any sort of achievement e.g. completing to-do list, daily goals, socialising etc removes hunger I've been least hungry when I'm busy doing shit and in flow Beyonce on the set for 3 days, she forgot she didn't eat Food Reward: a Dominant Factor in Obesity, Part VI
+		- Reward Centers can Modify the Body Fat Setpoint Dopamine is a neurotransmitter (chemical that signals between neurons) that is a central mediator of reward and motivation in the brain. It has been known for decades that dopamine injections into the brain suppress food intake, and that this is due primarily to its action in the hypothalamus, which is the main region that regulates body fatness (](null)[1](http://www.ncbi.nlm.nih.gov/pubmed/466454)). Dopamine-producing neurons from reward centers contact neurons in the hypothalamus that regulate body fatness ([2](http://www.ncbi.nlm.nih.gov/pubmed/7417845)). I recently came across a paper by a researcher named Dr. Hanno Pijl, from Leiden University in the Netherlands ([3. The paper is a nice overview of the evidence linking dopamine signaling with body fatness via its effects on the hypothalamus, and I recommend it to any scientists out there who want to read more about the concept.
+		- [](null)
+			- Increased dopamine signaling, particularly through the dopamine D2 receptor, can attenuate and in some cases reverse obesity in diet-induced obese animals, seasonally obese animals (squirrels, Syrian hamsters, etc.), and overweight/obese humans (4](http://www.ncbi.nlm.nih.gov/pubmed/14623356)). Not only that, it can increase resting metabolic rate and attenuate the metabolic abnormalities associated with obesity even before the fat is lost, which emphasizes that these circuits control metabolism directly, as well as indirectly by influencing fat mass ([5](http://www.ncbi.nlm.nih.gov/pubmed/16803851))*. Conversely, people who have genetic or drug-induced reductions in D2 receptor signaling gain fat at an accelerated rate ([6](http://www.ncbi.nlm.nih.gov/pubmed/18927395), [7.
+			- Together, this supports a hypothesis that I've scarcely seen in the scientific literature: that reward centers, and probably food reward itself, can directly influence body fatness and metabolism. Other people have made parts of this argument, however, I've never seen anyone put together the evidence from psychology, pharmacology and neurobiology into a single coherent hypothesis.
+		- Addiction and Obesity
+			- Speaking of dopamine D2 receptors, people who produce fewer of them due to their genetic makeup not only tend to gain more weight, they're also more susceptible to addictive behaviors such as drug abuse and excessive gambling (8](http://www.ncbi.nlm.nih.gov/pubmed/8261891), [9](http://www.ncbi.nlm.nih.gov/pubmed/8873216), [10. In other words, they respond differently to rewarding stimuli than others and are more susceptible to developing pathological relationships with high-reward things.
+			- When you look at D2 receptors in the human brain, the more fat a person carries, the fewer D2 receptors are available for binding dopmaine** (11](http://www.ncbi.nlm.nih.gov/pubmed/11210998)). This is the same thing one sees in the brains of people who are addicted to drugs ([12](http://www.ncbi.nlm.nih.gov/pubmed/11729018)). In the case of drugs, reduced dopamine signaling may lead to increased drug-seeking behavior to compensate for a "reward deficit". This is based on the hypothesis that highly rewarding drugs or foods eventually cause the brain to become desensitized to food reward, creating a vicious cycle in which people seek out more and more food reward to reach the same level of reward signaling in the brain. In his nice review article "Food reward, hyperphagia and obesity", Dr. Hans-Rudolph Berthoud and colleagues refer to the chronic intake of highly rewarding food as an "escalating, addictive process leading to obesity" ([13](http://www.ncbi.nlm.nih.gov/pubmed/21411768)). Rodents that are accustomed to eating human junk food will endure foot shocks and extreme temperatures to obtain it, even when regular chow is freely available in unlimited quantity ([14.
+			- Commenter "mem" recently pointed me to the research of Dr. Robert Pretlow. He has a nice slideshow online that describes his research (15. He set up a support website for overweight youths, and uses it to conduct his research. He has some interesting observations:
+			- Many youths describe themselves as addicted to junk food. They know it's unhealthy but they have little control over their cravings.
+			- Many say they use junk food as a way to cope with stress-- unstable home life, school pressures, lack of sleep, etc.
+			- Some find that their cravings subside and weight decreases if they can avoid junk food for enough time. I think the chronic stress of the modern lifestyle is one of the things that leads people to eat highly rewarding food. Rewarding foods are comforting and reduce stress (16](http://www.ncbi.nlm.nih.gov/pubmed/21059919), [17](http://www.ncbi.nlm.nih.gov/pubmed/17543357))***. These are the foods people prefer to eat to relieve stress ([18:
+			- Candy/chocolate
+			- Ice cream
+			- Potato chips
+			- Cookies/cake
+			- Fast food
+			- Pizza I consider these foods to be the archetypal "maximum reward" foods, and they should be the first to go if you want to reduce food reward. They fulfill the basic criteria of being calorie-dense and supplying some combination of fat, starch, sugar, salt, glutamate (umami) and no bitterness, while also having pleasant and consistent aromas that maximize reward value. In addition, there are probably other rewarding aspects to these foods that are not yet understood.
+		- Putting it All Together
+			- I believe the evidence as a whole shows that chronic consumption of foods with an excessive reward value causes abnormalities in parts of the brain that regulate body fatness, metabolism and reward/motivation. This can lead to weight gain and metabolic problems, and favor addictive and compulsive relationships to food and other things. The combination of readily accessible, cheap, high-reward food, and stressful lifestyles that drive us to eat it, is probably a major contributor to overweight, obesity, diabetes and perhaps other health problems in affluent nations.
+- Recreational
+    collapsed:: true
+	- $32 Mimosa + other materials {DMT}
+	    collapsed:: true
+		- Before the year is up, take DMT at least once> extract it during summer latest?Our society values productive problem-solving Psychedelics eg LSD, weed etc are banned because they don't promote productionRather than what books do you read, the future question will be what psychoactive chemicals do you use to enhance and widen your consciousnessSet and Setting is extremely importantBut your mental state gets transported to somewhere elseMental state - your experiences, beliefs, current moodInformation](null)[http://www.ayahuasca.comhttps://www.erowid.org/chemicals/ayahuasca/ayahuasca_info3.shtmlhttp://forums.ayahuasca.com/
+			- ](null)[http://www.dmt-nexus.me/forum
+			- http://www.shroomery.org/
+			- http://wiki.dmt-nexus.me/w/images/5/5c/Psychedelic_adverse_effects.pdf
+			- https://www.erowid.org/references/refs_view.php?A=ShowDocPartFrame&ID=6271&DocPartID=6239
+			- http://www.youtube.com/playlist?list=PLJk0yT4erxuRd_GNnlALfv6VpsFXIsEh7
+			- Making dmt google
+			- WikiSYNTHESIS & EXTRACTIONS #
+		- DMT for the Masses (M. tenuiflora extraction), by Noman
+		- Yoda's DMT Extraction Action
+		- DMT & DET Synthesis
+		- QT's DMT Extraction for Students
+		- Experiences
+			- http://www.grahamhancock.com/forum/HancockG4-Letters-from-the-Far-Side.php
+			- http://www.mensjournal.com/magazine/the-dark-side-of-ayahuasca-20130215
+		- Tips
+			- https://www.erowid.org/chemicals/dmt/dmt_info1.shtml
+			- drink flavoured milk or iced coffee before you take anything so your vomit comes up nice and easy.
+			- For ayahuasca you need to take an MAO inhibitor, which comes in many forms, some plant derived others you can get from someone with a pharmaceutical hookup.
+			- Ayahuasca- will most likely make you vomit, but you'll feel amazing after the trip
+		- Buy Ayahuasca
+		- https://maya-ethnobotanicals.com UDV usa church, one in Sante Fe, new Mexico
+		- Amazon shamans
+		- Make DMT
+		- DMT for the Masses (M. tenuiflora extraction), by Noman
+		- Yoda's DMT Extraction Action
+		- DMT & DET Synthesis
+		- QT's DMT Extraction for Students
+		- DMT Extraction Workshop - DMT.20M.Com, David Barlow
+		- Rhodium : DMT Section
+		- that extraction had yielded 0.946 of a gram of recrystallized material from only 100 grams of root-bark--almost a full 1.0%. Not bad.
+		- I performed the Noman tek on a kilogram of Mimosa tenuiflora root-bark, resulting in 9.1 grams of recrystallized DMT
+		- A standard dose for vaporized DMT is between 15–60 mg.
+		- https://maya-ethnobotanicals.com/herbs/by-scientific-name/mimosa-hostilis
+		- 100g = $32 (900mg final product?)
+		- 250g = $79
+		- 500g = $143
+		- https://www.dmt-nexus.me/forum/default.aspx?g=posts&t=40433
+	- £16 Magic Truffles
+	    collapsed:: true
+		- http://www.trufflemagic.com/checkout/cart/ PSILOCYBE TAMPANENSIS
+		- I've found that microdosing shrooms (~.3g) here and there, perhaps once or twice a week max, does have a beneficial effect on motivation.
+		- Noise-cancelling ear muffs + sleep mask?
+		- £7 http://www.amazon.co.uk/Silverline-633816-Defenders-Folding-30dB/dp/B000QHF98K/ref=cm_cr_pr_product_top
+		- http://banoosh.com/blog/2013/07/08/psilocybin-mushrooms-promote-growth-of-new-brain-cells-can-even-cure-ptsd-and-depression-exciting-new-studies-taking-place-despite-government/
+		- http://emilkirkegaard.dk/en/wp-content/uploads/Mystical-Experiences-Occasioned-by-the-Hallucinogen-Psilocybin-Lead-to-Increases-in-the-Personality-Domain-of-Openness.pdf
+		- Psilocybin occasioned mystical-type experiences: immediate and persisting dose-related effects
+		- http://link.springer.com/article/10.1007%2Fs00213-011-2358-5
+	- DMT
+	    collapsed:: true
+		- DMT ](null)[ > only 'productive goal-directed mindset' is useful to western elites ](null)[](null)[[https://maya-ethnobotanicals.com](https://maya-ethnobotanicals.com)
+		- https://www.dmt-nexus.me/forum/
+		- http://forums.ayahuasca.com
+		- (be aware that it is a strong laxative and it also makes you vomit quite a few times)
+		- Need a guide, someone you can trust. Or just a sitter
+			- It started to go all wrong when the shaman and his family tried to hijack my experience bringing their instruments and playing a fucking orchestra beside me with loud singing, drums and guitar. I wanted to kill them and they wouldn't stop. They also did all kind of weird stuff around me and I knew I should never have taken ayahuasca from them.
+			- The best thing about DMT is that is provides a 'business man's trip', meaning you get insane visuals and hallucinations, but it only lasts for around 15-20 minutes and then you're in a euphoric state for a few hours after depending on how much you do. That's why I prefer it to LSD. Sometimes with LSD I feel like I'm just sitting around waiting for it to wear off at the end of the peak, and the stuff lasts like 12 fucking hours
+			- They have no patience for any "dumb questions" or any "questionable negativity". In their eyes it is only positive, not a single negative. Hence, they seem to smoke it recreational (once or twice a week).
+			- It has turned one of my best friends into a manipulated man. For all of the time I have known him he has had amazing skills with women, natural red pill kind of guy. Now he has this total love for freaky (DMT goddess type look) women and spends his time following their every command and involving himself into their drama to the point where it consumes him.
+			- A Croatian buddy and I had to put it to him bluntly. His desire to believe that the world is made only of love, and that all women (and men, possibly) deserve to have this, has made him an easy target. Our Croat friend thinks it has turned him "30% gay".
+			- I am inclined to agree.
+		- Ayahuasca is intense. There's a reason that shamans and medicine men exist. You need a guide for this shit, someone who knows how to brew it and how to guide you on your trip. I'd say all psychedelics are like this actually. For ayahuasca you need to take an MAO inhibitor, which comes in many forms, some plant derived others you can get from someone with a pharmaceutical hookup.
+		- I swear ayahuasca IS a MAO inhibitor
+		- [Report(s)] A warning to my fellow psychonauts regarding hyperspace entities (wall of text alert!) - DMT - Quality experience reports - Welcome to the DMT-Nexus
+			- [https://www.dmt-nexus.me/forum/default.aspx?g=posts&m=580899](https://www.dmt-nexus.me/forum/default.aspx?g=posts&m=580899)
+	- http://en.wikipedia.org/wiki/Echinopsis_pachanoi
+	- Virtual drugs experience
+	    collapsed:: true
+		- http://www.erowid.org/experiences/exp.php?ID=65270
+	- Devices - Mind Machine - Stroboscopic Programmed Hypnosis - 34731
+	    collapsed:: true
+		- http://www.erowid.org/experiences/exp.php?ID=34731
+	- Mind machine experience
+	    collapsed:: true
+		- http://www.erowid.org/experiences/exp.php?ID=42391
+	- GHB synthesis
+	    collapsed:: true
+		- Erowid GHB Vault : Synthesis
+		- Erowid GHB Vault
+		- Gamma-hydroxybutyrate (GHB)
+		- Basic Synthesis Procedure
+		- This piece is intended to describe the basic GHB synthesis procedure for those who are interested. It is not meant to be instructions for how to make GHB. It does not (and is not intended to) contain all the information you would need if you were actually going to attempt the procedure. Please do not contact us asking for further instructions.
+		- Production of GHB consists simply of mixing "lactone" (short for gamma butyrlactone) and lye (sodium hydroxide) in the proper amounts. The only equipment necessary for doing this in grey and black market production are: a scale which can measure grams accurately (or premeasured chemicals such as what comes with a GHB kit, though kits are much less available now that GHB has been scheduled in the U.S.), a container for the reaction, pH papers, and some human-safe acid such as vinegar or lemon juice, and someblue food coloring. The chemicals are mixed according to simple ratios which are available on the internet.
+		- The biggest dangers of black market GHB is that the originating chemicals are often not human-consumption grade and may contain impurities or contaminants. In practice, however, high grade lactone and sodium hydroxide have been easily accessible from online and local chemical suppliers. Neither lactone nor lye are currently controlled anywhere in the US to my knowledge (Jan '99). There are many chemical suppliers on the net and otherwise who sell these very common chemicals.
+		- Sodium hydroxide (lye) is a powerful and dangerous base which can and will burn exposed skin. Unreacted lye which is swallowed or that contacts sensitive areas like the mouth will burn and can kill. Lye is normally stored as a dry material and when kept very dry it does not react quickly; thus the main danger is getting it wet and then leaving it. Gamma butyrlactone, on the other hand, is a relatively safe chemical to handle.
+		- The chemical reaction between the gamma butyrlactone and the sodium hydroxide (lye) is exothermic, meaning it creates energy/heat when they are mixed. This requires that the GHB chemist have a pyrex or borosilicate glass beaker which won't crack when heated. Metal pans should not be used as the chemicals can react with the pan leaving the chemist with metal in their finished product. Pyrex or borosilicate beakers can be purchased at chemical supply stores, and some home chemists use extra large pyrex measuring cups available at home stores.
+		- The actual process of making GHB is considered some of the simplest home chemistry possible in the grey/black market, which is one of the main reasons for GHB's popularity and wide spread use. The process consists of putting lactone into the heat-resistant container, adding a small amount of water, and then mixing NaOH slowly into the solution. This is usually done over a hot water bath to make it easier for the sodium hydroxide to go into solution. The solution of NaOH and lactone are heated for 10-30 minutes over simmering water in order to force any residual lactone and NaOH to react.
+		- By smelling GHB liquids it is possible to tell whether there is unreacted lactone in the solution. The primary indicator used to determine if the reaction is complete and useable is pH. The pH of safe liquids are generally between pH 6 and 8. Home chemists use pH papers to test the acidity/alkalinity of their products and then use more NaOH or a little lemon juice or vinegar (acetic acid) to adjust the pH to between 7 and 8. Some chemists say that it is best to keep the acididity of their liquid GHB nearer 8 in order to keep the lactone from 'coming back out of solution'.
+		- Because of the shift in laws, other GHB-relatives have been popular as well including 1,4 butanediol and just straight lactone (it is said to convert to GHB in the stomach). Some 'diols' are said to be heavy kidney loads, but there have been no reports yet of serious long term health problems resulting from ingestion of 1,4b.
+		- Consuming any GHB salt should be combined with consuming excess water as it is a very heavy salt load -- normal dosages of Na-GHB or K-GHB are in the 1-3 gram range, sometimes taken multiple times per day. Each gram of GHB contains a large amount of either Potassium (K) or Sodium (Na) salt. A high salt diet can be hard on the kidneys as well as causing other health problems. Making sure to drink plenty of water with GHB might help reduce kidney problems.
+		- Once the GHB has been adjusted to the correct pH it should be cooled (either at room temperature, or in the refrigerator). When it is cool, add a little blue food coloring to the GHB. GHB is a clear liquid which visually can be easily mistaken for water. Despite it's relatively strong taste there have been quite a few cases of accidental ingestion of GHB where an individual takes a drink of what they think is water...only realizing after they've swallowed that it obviously was something else. Making sure to color GHB blue can help prevent this (Blue was chosen as a good color to try to set as the standard. Red, yellow, and orange could all possibly be mistaken for some sort of juice, while green is traditionally the color of absinthe.) Erowid strongly recommends that people color their GHB blue; simply add a couple of drops of food coloring and mix it in.
+	- Erowid psychoactive tech vaults
+	    collapsed:: true
+		- http://www.erowid.org/tech/
+	- Kava
+	    collapsed:: true
+		- Kava
+		- Anti-anxiety
+		- Kava
+		- Kava is a natural anxiolytic produced from the root of Piper methysticum. It's use goes back thousands of years in the south Pacific. A systematic review of studies found Kava could effectively mitigate anxiety to a greater extent than placebo, with few adverse effects.[38] Kava doesn't seem to have short-term tolerance issues greater than placebo, about 25% of placebo and kava users will want to increase their dose.[39] At low therapeutic doses kava doesn't seem to impair cognitive function and it may actually enhance some aspects of attention.[40] Kava may also have beneficial effects on female sexual function, though this could be caused by reduced anxiety.[39]
+		- There have been reports of kava induced liver toxicity which led the EU, UK and Canada to put restrictions on kava. However, a direct link between liver toxicity and kava use seems to be extremely rare. In most cases there were other probable contributing factors, such as use of other medications, high alcohol consumption and medical conditions.[41] Caution should be used when taking kava. Make sure the preparation is from a company with a great reputation and derived from the root of the plant. Don't use kava if you have any liver conditions, consume alcohol frequently or are taking other medications. The safety of long term kava use hasn't been rigorously confirmed.
+		- Standard dose: 400mg of kava with %30 kavalactones (the active ingredients) once or twice a day.
+		- Reliable Suppliers
+		- Also try kava http://www.gll-getalife.com/2013/05/yogi-kava-tea/
+		- Kava
+		- Dosage: 300mg
+		- 300mg Kava tends to be the highest recommended dose, with 100-300mg commonly used and taken equally with meals (for 300mg that is taking 100mg with breakfast, lunch, and dinner).
+		- Kava is seen as one of the most potent herbal anxiolytics, but there are some reports of liver toxicity with Kava. For the most part, these are either misattribution (not Kava's fault) or due to interactions with pharmaceuticals (and thus talk to your doctor if using any drugs). That being said, there are a few case studies that make a strong case for Kava itself causing the problems.
+		- The extract of WS 1490 or LI 150 (both patented extracts with quality assurance) are highly recommended, due to the variability of Kava quality and the exclusion of some molecules (pipermethylstine) that might contribute towards liver complications.
+	- Kratom
+	    collapsed:: true
+		-
+		-
+		- Suppliers
+			- [https://www.kraatje.eu](https://www.kraatje.eu) (EU)
+				- £18 shipping
+				- _Orders_
+					- £48 (incl £18 shipping) - 160g of samples (8x 20g packs)
+						- Naming acronyms
+							- GM is Green Malay
+							- BWV is Borneo White Veine
+							- SR is Sumatra Red
+							- GR is Green Riau
+							- RR is Red Riau
+							- SW is Sumatra White
+							- BRV is Borneo Red Veine
+							- RT is Red Thai
+						- Green Malay
+						- Red (Bali) and White Borneo
+						- Red and Green Riau
+						- Red and White Sumatra
+						- Red Thai Maeng Da
+			- Kratom from Happy Hippo Herbals - £61.34 TOTAL
+				- ](null)[£11.58 Royal Mail (£3.58 customs fee, £8 royal mail handling fee)£49.76 subtotal
+					- ](null)[http://www.happyhippoherbals.com £14.40 shipping
+						- $24 UK shipping, $53 for 3 strains = $77/£46.30 for 3oz/84g
+							- approx £10/oz, 55p per gram
+						- + $3.30 paypal charge
+						- (Red Hot Hippo (Red-Vein Thai); Hyper Hippo (Elite Maeng Da); Busy Green Hippo (Green-Vein Thai))
+		-
+		- When I next buy Kratom
+			- Need to work out Kratom cost per dose (though I'll be using different retailers in future)
+			- Last shop approx £60, 2g doses = £1.40/dose
+		- Opioid (similar to opiate)
+		- - analgesic, anti-depressant, anxiolytic,
+		- Mood, energy, anxiety
+		- http://www.herbal-salvation.com/
+		- http://kratomone.com/
+		- mmmSpeciosa, http://www.kratomforest.com/](http://www.kratomforest.com/) [https://www.mistymountainherbals.com](https://www.mistymountainherbals.com/) [http://www.getkratom.com
+		- https://docs.google.com/spreadsheet/ccc?key=0Aoh8XIs4GhJTdDY1NXB0Z1JSNHdUNUNCSFo3dXhYRXc#gid=0
+		- https://www.google.co.uk/search?q=kratom&oq=kratom&aqs=chrome..69i57&sourceid=chrome&espv=210&es_sm=122&ie=UTF-8
+		- http://www.goodlookingloser.com/all-about-kratom-1/
+		- [](null)
+		- Types
+			- Location and Colour will determine it's speed, don't get extracts
+			- Fast strain
+				- Generally from Thailand (Maeng Da, Red Vein Thai) etc)
+				- Effects - strong energy, positive mood, motivation (exercise, writing), appetite, sociability (night game), productivity, analgesic
+				- Stimulant-like, but opioid (may create anxiety)
+				- Side effects - may sensitive you to music (overwhelming at times?), reduced STM?, may be addictive
+			- Moderate
+				- Bali (Bali, Boreno) e.g. Green Riau, Happy Hippo 1 or 2
+				- Effects - less likely to be stim-like (anxiety/energy), sociability (daygame), productivity, creativity, relaxation
+			- Slow
+				- Indonesia (Sumtra, Sundanese, Kali, Riau, Indo) Super Green Malay
+				- euphoric, low productivity, longer-lasting, sleep aid, positive mood, anxiolytic
+		- METHOD
+			- In general, take on empty stomach (can be taken several times daily in the day if desired. Only 1 strain per day + write down which one you burned)
+			- 3-4 grams effects will be in 20 mins (up dose by 1-2 grams after 30-45m if no effect)
+				- Try even 200mg caps up to 4
+			- Lasts generally 2-3 hours
+			- Avoiding Tolerance - rotate strains and speeds (at least 5, 7-10 is better) only one strain per day
+				- Wash Out - 5 days off
+				- Stem and Vein blends (light brown) also rotate this in, need it fresh though
+				- Loperamide for constipation is an opioid (20mg+) and good to remove withdrawal symptoms)
+				- Kava, Phenibut,
+			- Different alkaloloids and ratios of Mitragynahttp://www.goodlookingloser.com/all-about-kratom-3
+		- How do you burn Kratom?
+			- Mix it with milk/water/stevia/protein shake/yoghurt/almond milk/unsweetened ice tea
+			- OR shot it with water
+			- I usually do a toss n wash. but its starting to get irritating. i like the way it hits with a tnw better than making a tea.
+			- http://www.reddit.com/r/kratom/comments/1mlwn7/i_have_discovered_the_perfect_beverage_to_toss/
+		- Personally I have been using it as a stimulant, gastrointestinal aid, and mood enhancer. It doesn't really remove anxiety in any way, so I wouldn't use the term anti-anxiety personally. I bought from mmmspeciosa which I personally found amazing in terms of quality and price. Recommending their classic bali (july) and white thai (may). Also Ken is a really nice guy, almost always gives free samples of products you are not ordering.
+		- As a stimulant: I really like how I can take kratom and it won't make me feel "jittery" like caffine or modafanil (I'm very sensitive to both). Too much of it will, but in the doses I take I don't have a problem until I hit 4 caps (200mg doses). And I would only do that when I am going to a social event that I need a little extra energy for (ie: meeting a bunch of law students I didn't know two weekends ago).
+		- As a gastrointestinal aid: I don't understand the mechanism but somehow it acts like a opiate in that it slows down your intestinal movements? Anyhow I notice when I take it I just don't have intestinal pain/irritable bowel syndrome like I have had most of my life. FYI I am very fit and have tried numerous diets, medical, and non-traditional methods to try and battle this. Kratom seems to work for me better than anything.
+		- As a mood enhancer: Two main uses here. After a long day I just want to relax and have a good time hanging out, playing video games, or whatever. So instead of having a beer (which is my alternate choice) I'll take a cap of kratom. Or if it's a long day at work I'll take kratom if I notice my mood is souring and I think it really helps life me up and get me engaged with work/people again.
+		- Here is what I do:
+		- I take 2.5 teaspoons of kratom and put it in some pantyhose. Then I submerge the pantyhose in water in a saucepan. I add lime juice, and bring the water to a boil and let it boil for few minutes.
+		- Then, I take the pantyhose out of the water, pour the kratom water in a second saucepan and bring that to a boil. I put the pantyhose back into the first saucepan with some more water and add more lime juice and bring that to a boil.
+		- After a few minutes, I add the kratom water to the second saucepan. I repeat a third time. Sometimes I'll do it a fourth time but usually three is enough. I basically keep doing it until the water is clear.
+		- The goal is to leech all of the alkaloids from the kratom leaf. Once I have done this, I boil the water in the second saucepan all the way down until there is hardly any water left.
+		- Finally, I pour the tiny bit of water in a shot glass and slam it down. IMO this is better than toss-and-wash for two reasons:
+		- 1. No diarrhea
+		- 2. The lime juice extracts more alkaloids, giving you a better (stronger) kratom experience
+		- But that's besides the point. Make a tea with the stuff. Forget eating it. The absorption is much slower, regardless of how finely ground it may be, because you have to digest the plant matter. I brew 15g at a simmer with 500mL and 2tbsp lemon juice for about an hour, strain it with a very fine cloth tea filter, then rebrew the spent material a second time. Lemon juice is absolutely necessary for proper extraction... don't skip out on it. Then combine the liquid, cool it in the fridge until it is very cold. You can optionally boil the tea down into a mouthful, but find it's extra time and energy wasted.
+		- Drinking it is easy since the temperature is low. Your taste buds are somewhat numbed, so it's much more tolerable to drink. Try drinking a cup of hot kratom tea and you'll know what I mean. Just pound it all back within a few minutes. Have a very light snack beforehand to avoid any nausea whatsoever.
+		- I find you get the best experience this way since you absorb it all almost at once. It can be more wasteful and time consuming instead of toss n' washing of course, but not much at all.
+	- LSD microdosing
+	    collapsed:: true
+		- http://www.gwern.net/LSD%20microdosing
+		- An unscientific but hopefully objective experience with taking small doses of amphetamines and microdosing LSD for short term cognitive enhancement. (wall of text) : Nootropics
+			- Let me start out by warning that LSD and stimulants are NOT nootropics, I'm just posting this here because of an interest a lot of readers have in short-term cognitive enhancement.
+				- The Idea
+				- About three weeks ago, I realized I was quite behind in a rigorous college program, I was apathetic and I was having trouble focusing. I'm not sure why that all hit at once, but I had three upcoming exams and I realized I would need something (hence the amphetamines) but I decided it was a good opportunity to experiment with the elusive LSD microdose. My initial plan was to use lisdexamphetamine (vyvanse, metabolizes into d-amphetamine) to break the cycle of what I figured was stress-induced apathy and throw LSD on top in an attempt to increase neuroplasticity and learn habits faster. (LSD is believed to effect neuroplasticity though it's hard to find studies specifically on this). I would take a small dose of LSD (15-35ug) every day with a small dose of an amphetamine (20-23mg lisdexamphetamine, which translates to ~7-9mg adderall) Sunday-Thursday and take Fridays and Saturdays off to drop the tolerance a bit. The goal was to learn better study habits and critical thinking skills in a short period of time. After the second Thursday, I would cut every psychoactive substance I possible could for a week before writing the report. That includes caffeine from anything (except one to two cups of white tea a day), nicotine, any amount of alcohol, even corn syrup and large amounts of simple sugars. Today is Friday, and I sit here with my first cup of caffeinated tea in a week, absolutely ecstatic to finally be able to indulge in tasty things again.
+				- Before you read any further, I just want to make this clear: I did not measure the LSD. I do not have a microgram scale, nor a supplier of pure LSD crystals. It was simply cutting trying a blotter up and going by feel. I estimated this batch of tabs to be 250-300ug, so one outlasted the experiment. This is NOT a scientific study. I did not take EEG scans or any other measurements. This is purely "gut feeling." I apologize for that, but this was focused around getting me out of a pretty deep hole rather than the betterment of /r/nootropics. I'm sorry. Don't read on if that bothers you. It would bother me if it wasn't me doing the experiment.
+				- About me:
+				- I am 19 years old, weigh ~130lbs, 5'9" physically active and eat mostly well.
+				- Other substances and supplements used throughout the two weeks:
+				- 4-Fluoroamphetamine (I'll go into that later)
+				- Caffeine (tea and coffee)
+				- L-theanine (tea)
+				- Creatine
+				- Magnesium Glycinate
+				- Oxiracetam
+				- Aniracetam
+				- DMAE
+				- I cut alcohol and marijuana for the extent of the study.
+					- Day One (Monday):
+				- I sloppily cut the tab of LSD into sixths, took one third, and measured out ~23.3mg Vyvanse (I had 70mg caps, weighed out the powder inside and divided by 3) and took both at the same time. As expected, the vyvanse hit first. I no amphetamine tolerance at this point, so even a dose that low got me sweating. I had some differential equations work to do in the morning, but I couldn't figure out certain problems the day before. I figured I would go to campus and ask the TA to help me out. Before I left, I took 125mg aniracetam, 150mg oxiracetam, and 200mg DMAE. If I take regular doses of racetams I get very irritable, cold sweats, etc. but I get positive effects from low doses such as those. I got to my TA's office but he was busy, so I decided to sit down and work on it again by myself. By now (two hours in) the LSD was hitting. I realized I had taken way too much for what I was trying to do. It was hard to focus, certain muscles were tightening up, I was sweating more, etc. Still, I trudged on through the work and was determined to learn what I couldn't the day before. Sure enough, I understood the material much faster. Unexpected, but I wasn't complaining. Later, I went to my EM physics recitation. I had never been to class, but somehow the concepts seemed to flow through my head far more clearly than they ever had. Visualizing electric fields was effortless, which was quite a surprise because I have a lot of trouble visualizing things. Still, I was feeling the LSD much more than I had wanted to and was certainly getting some visuals. Socializing was awkward and choppy. I got home, studied more, and cut four of the larger six "sixths" I had cut in halves.
+				- Day two and three were similar in that I felt like I could grasp concepts much faster. I usually get that to some degree with just an amphetamine, but (anecdotal evidence alert) I felt the added LSD helped apply different things I knew to the problem. It's hard to explain, but I felt totally "on." Motivation was another very interesting thing. A low dose of vyvanse doesn't really give me that amphetamine drive to do everything, but the LSD made it much easier to make a rational decision in my head and then follow through with it. For example, I decided I should start walking up the five flights of stairs to get home instead of taking the elevator. Normally I decide not to out of sheer laziness. On the LSD I could make the conscious decision to and sort of "blank out" everything telling me not to. Work was the same way. It was a strange feeling and in some aspects I felt a bit like a robot. It wasn't necessarily good, or bad. Very useful though.
+				- Day 4:
+				- Physics exam that night. I didn't take any LSD or vyvanse until 5PM that night so it would hit just in time for the exam. I had noticed that the tail end of the combination was uncomfortable. Magnesium Glycinate helped alleviate the physical issues (jaw clench and whatnot) but I still felt more separated from reality and my enthusiasm for everything was subpar (7-9 hours after the initial dose was the worst of it, but it would last until I fell asleep and would approach as early as 5 hours in). I also happened to get a really bad cold that day, so I felt like I had a dirty sock in my brain. Still never having been to class, I was running on knowledge I had taught myself by reading a few tutorials online. The combo hit, and I took the aniracetam and oxiracetam before the exam. At least the sock in my brain felt clean now. Visualizing the problems was just as easy as it had been on day 1, but I misread three problems and got those wrong. Still, 14% above the average was better than I think I would have done without any help.
+				- I was too sick to do anything on Friday or Saturday, so Sunday was when I started up again. The effects were just as strong as they were on day 2 (similar doses) if not stronger. I got a lot done and still felt totally "on."
+				- Unfortunately, as time went on that week, I felt that I was not productive without the aid of the drugs. I began to get more tired, spacier, and very apathetic until peaking on the combination. The comedowns were getting worse and I felt like I was burning out. I had two more exams that week, and though I did a bit above average on them, I felt absolutely burnt out and unmotivated by the end. I began cutting my vyvanse dose in half and taking 30-45mg 4-FA in the evening with LSD before my two exams. It helped a bit, but during the day (by wednesday) it was hard to get anything accomplished. My sex drive dropped, and I stopped doing anything active at all. Tea and coffee intake increased to no avail.
+				- Last Thursday I went out with a bang at a punk show and cut all drugs and fun until today. I didn't want to make any conclusions on this experiment until I saw if there were any noteworthy after effects. There weren't. I was apathetic and couldn't really focus on work until Monday, but by Tuesday I felt about back to normal. Nothing new, no incredible effects or anything. Headaches at night for the first few nights, but I'd be willing to bet that was from the lack of caffeine.
+					- General thoughts on the experiment:
+				- This is incredibly useful as a short-term cognitive enhancer. Not long term. LSD and amphetamines are NOT nootropics. They could be useful for digging yourself out of a work-hole, taking exams, or other brain-taxing work. If I were to repeat the experiment, I would take one to three days off between taking the LSD and Vyvanse. I feel that this would have eliminated the "burnt out" feeling and focus issues.
+				- Effects were much more pronounced and useful than just LSD or Vyvanse alone. So was the comedown.
+				- Jaw clench and shaking was a huge issue. Magnesium helped.
+				- One night I had trouble sleeping, but strangely enough I had taken the LSD early that day. Could be coincidence or serotonin depletion.
+				- Certain effects of the LSD got less pronounced over the extent of the experiment. Visual sharpness went away quickly, as did the well-known "acid brain" that was present day one of the first and second week. Motivation, workflow and problem solving did not go away. I'd guess this is related to the fact that your dopamine system downregulates slower than the serotonin system.
+				- Overall I was much spacier while on the LSD. I would go shopping and forget what I had entered the store for, even if it had just been on my mind. I would misplace things all the time. It wasn't too bad, and overall worth that, but absolutely worth noting. I believe it has something to do with the serotonin system disrupting the dopamine system.
+				- I think the LSD could have felt so stimulating with the Vyvanse because it is a D2 agonist. I've heard D2 agonism is also related to problem "flow" and motivation, but I can't find those studies anymore. If anyone has them on hand, please post them. I think the added D2 agonism along with the selective 5-HT agonism of LSD also added to the creativity and unique effects of working on math and science.
+				- Oxiracetam seemed to "activate" everything a bit more, but again, that could have been either placebo or just me.
+				- The goal was not achieved I don't think, but I'm pretty sure this is the closest thing to NZT I've ever done.
+				- TL;DR:
+				- Took ~25-35ug LSD and ~10mg Vyvanse for two weeks, taking Friday and Saturday off. Short-term effects were fantastic, never felt smarter. Tests went far better than expected and visualizing problems was incredible. "Burnt out" towards the end, would not recommend. Short term (once a week)=fantastic. Long term=bad. No noticeable lasting effects after a week off of everything.
+					- Sorry for all of this poorly-written text, some people wanted me to get this out as fast as I could and I'm pretty busy today. I'll add more and edit as I think of it and re-read.
+		- Media article
+			- The Heretic - The Morning News
+			- ProfilesJul 26, 2012
+			- The Heretic
+			- by Tim Doody
+			- For decades, the U.S. government banned medical studies of the effects of LSD. But for one longtime, elite researcher, the promise of mind-blowing revelations was just too tempting.
+			- Credit: Jonathan Castro
+			- At 9:30 in the morning, an architect and three senior scientists—two from Stanford, the other from Hewlett-Packard—donned eyeshades and earphones, sank into comfy couches, and waited for their government-approved dose of LSD to kick in. From across the suite and with no small amount of anticipation, Dr. James Fadiman spun the knobs of an impeccable sound system and unleashed Beethoven’s “Symphony No. 6 in F Major, Op. 68.” Then he stood by, ready to ease any concerns or discomfort.
+			- For this particular experiment, the couched volunteers had each brought along three highly technical problems from their respective fields that they’d been unable to solve for at least several months. In approximately two hours, when the LSD became fully active, they were going to remove the eyeshades and earphones, and attempt to find some solutions. Fadiman and his team would monitor their efforts, insights, and output to determine if a relatively low dose of acid—100 micrograms to be exact—enhanced their creativity.
+			- It was the summer of ’66. And the morning was beginning like many others at the International Foundation for Advanced Study, an inconspicuously named, privately funded facility dedicated to psychedelic drug research, which was located, even less conspicuously, on the second floor of a shopping plaza in Menlo Park, Calif. However, this particular morning wasn’t going to go like so many others had during the preceding five years, when researchers at IFAS (pronounced “if-as”) had legally dispensed LSD. Though Fadiman can’t recall the exact date, this was the day, for him at least, that the music died. Or, perhaps more accurately for all parties involved in his creativity study, it was the day before.
+			- At approximately 10 a.m., a courier delivered an express letter to the receptionist, who in turn quickly relayed it to Fadiman and the other researchers. They were to stop administering LSD, by order of the U.S. Food and Drug Administration. Effective immediately. Dozens of other private and university-affiliated institutions had received similar letters that day.
+			- That research centers once were permitted to explore the further frontiers of consciousness seems surprising to those of us who came of age when a strongly enforced psychedelic prohibition was the norm. They seem not unlike the last generation of children’s playgrounds, mostly eradicated during the ’90s, that were higher and riskier than today’s soft-plastic labyrinths. (Interestingly, a growing number of child psychologists now defend these playgrounds, saying they provided kids with both thrills and profound life lessons that simply can’t be had close to the ground.)
+			- When the FDA’s edict arrived, Fadiman was 27 years old, IFAS’s youngest researcher. He’d been a true believer in the gospel of psychedelics since 1961, when his old Harvard professor Richard Alpert (now Ram Dass) dosed him with psilocybin, the magic in the mushroom, at a Paris café. That day, his narrow, self-absorbed thinking had fallen away like old skin.
+				- People would live more harmoniously, he’d thought, if they could access this cosmic consciousness. Then and there he’d decided his calling would be to provide such access to others. He migrated to California (naturally) and teamed up with psychiatrists and seekers to explore how and if psychedelics in general—and LSD in particular—could safely augment psychotherapy, addiction treatment, creative endeavors, and spiritual growth. At Stanford University, he investigated this subject at length through a dissertation—which, of course, the government ban had just dead-ended.
+			- Couldn’t they comprehend what was at stake? Fadiman was devastated and more than a little indignant. However, even if he’d wanted to resist the FDA’s moratorium on ideological grounds, practical matters made compliance impossible: Four people who’d never been on acid before were about to peak.
+			- “I think we opened this tomorrow,” he said to his colleagues.
+			- And so one orchestra after the next wove increasingly visual melodies around the men on the couch. Then shortly before noon, as arranged, they emerged from their cocoons and got to work.
+			- Over the course of the preceding year, IFAS researchers had dosed a total of 22 other men for the creativity study, including a theoretical mathematician, an electronics engineer, a furniture designer, and a commercial artist. By including only those whose jobs involved the hard sciences (the lack of a single female participant says much about mid-century career options for women), they sought to examine the effects of LSD on both visionary and analytical thinking. Such a group offered an additional bonus: Anything they produced during the study would be subsequently scrutinized by departmental chairs, zoning boards, review panels, corporate clients, and the like, thus providing a real-world, unbiased yardstick for their results.
+			- In surveys administered shortly after their LSD-enhanced creativity sessions, the study volunteers, some of the best and brightest in their fields, sounded like tripped-out neopagans at a backwoods gathering. Their minds, they said, had blossomed and contracted with the universe. They’d beheld irregular but clean geometrical patterns glistening into infinity, felt a rightness before solutions manifested, and even shapeshifted into relevant formulas, concepts, and raw materials.
+				- [The volunteers] remained firm: LSD absolutely had helped them solve their complex, seemingly intractable problems.
+			- But here’s the clincher. After their 5HT2A neural receptors simmered down, they remained firm: LSD absolutely had helped them solve their complex, seemingly intractable problems. And the establishment agreed. The 26 men unleashed a slew of widely embraced innovations shortly after their LSD experiences, including a mathematical theorem for NOR gate circuits, a conceptual model of a photon, a linear electron accelerator beam-steering device, a new design for the vibratory microtome, a technical improvement of the magnetic tape recorder, blueprints for a private residency and an arts-and-crafts shopping plaza, and a space probe experiment designed to measure solar properties. Fadiman and his colleagues published these jaw-dropping results and closed shop.
+			- At a congressional subcommittee hearing that year, Sen. Robert F. Kennedy grilled FDA regulators about their ban on LSD studies: “Why, if they were worthwhile six months ago, why aren’t they worthwhile now?” For him, the ban was personal, too: His wife, Ethel, had received LSD-augmented therapy in Vancouver. “Perhaps to some extent we have lost sight of the fact that it”—Sen. Kennedy was referring specifically to LSD here—“can be very, very helpful in our society if used properly.”
+			- His objection did nothing to slow the panic that surged through halls of government. The state of California outlawed LSD in the fall of 1966, and was followed in quick succession by numerous other states and then the federal government. In 1970, agents of the Bureau of Narcotics and Dangerous Drugs—the predecessor to the Drug Enforcement Administration—released a comprehensive database in which they’d sorted commonly known drugs into categories, or schedules. “Schedule 1” drugs, which included LSD and psilocybin, have a “significant potential for abuse,” they said, and “no recognized medicinal value.” Because Schedule 1 drugs were seen as the most dangerous of the bunch, those who used, manufactured, bought, possessed, or distributed them were thought to be deserving of the harshest penalties.
+			- By waging war on psychedelics and their aficionados, the U.S. government not only halted promising studies but also effectively shoved open discourse of these substances to the countercultural margins. And so conventional wisdom continues to argue that psychedelics offer one of a few possibilities: a psychotic break, a glimpse of God, or a visually stunning but fairly mindless journey. But no way would they help with practical, results-based thinking. (That’s what Ritalin is for, just ask any Ivy League undergrad.)
+			- Still, intriguing hints suggest that, despite stigma and risk of incarceration, some of our better innovators continued to feed their heads—and society as a whole reaped the benefits. Francis Crick confessed that he was tripping the first time he envisioned the double helix. Steve Jobs called LSD “one of the two or three most important things” he’d experienced. And Bill Wilson claimed it helped to facilitate breakthroughs of a more soulful variety: Decades after co-founding Alcoholics Anonymous, he tried LSD, said it tuned him in to the same spiritual awareness that made sobriety possible, and pitched its therapeutic use—unsuccessfully—to the AA board. So perhaps the music never really died. Perhaps it’s more accurate to say instead that the music got much softer. And the ones who were still listening had to pretend they couldn’t hear anything at all.
+			- On a Saturday last October, 45 years after dispensing those last legal doses, James Fadiman stood on stage inside the cavernous hall of Judson Memorial Church, a long-time downtown New York incubator of artistic, progressive, and even revolutionary movements. High above him on a window of stained glass, a golden band wrapped Escher-like enigmas around the Four Evangelists. Fadiman appeared far more earthly: wire frames, trim beard, dropped hairline, khakis, running shoes—like a policy wonk at a convention, right down to lanyard and nametag.
+			- A couple hundred people sat before him in folding chairs and along the side aisles of the hall. He adjusted his head microphone, then scrolled his lecture notes and side-stepped the podium. He felt fortunate to be there for many reasons, he said, including a health scare he’d had a few months back—a rather advanced case of pericarditis. “Some of you, I know, have experimented with enough substances so that you’ve ‘died.’ But it’s different when you’re in the ER.” He chuckled. “And you’re not on anything.”
+			- Most everybody laughed at his icebreaker, understood he was comparing, quite unfavorably, his recent experience to the way that, under the influence of high-dose psychedelics, one’s personality has a tendency to scatter like stardust. Which is to say that Fadiman was not addressing an ordinary audience.
+			- He was the first presenter of the day at the fifth-annual Horizons, a weekend-long forum organized to “open a fresh dialogue” regarding the role of psychedelics in “medicine, culture, history, spirituality, and creativity.” The crowd consisted of young and old, dreadlocks and suits, crushed velvet and institutional bonafides. A self-declared prophet sat near Bellevue Hospital’s leading addictions specialist. Both are pro-psychedelics, though they differ on what qualifies as appropriate usage. Said addictions specialist is currently administering psilocybin to people with recurrent and advanced-stage cancer in—surprise!—a government-sanctioned study. Most people enrolled in his study have reported that a single psychedelic session substantially reduced their anxieties related to death, while also qualifying as one of their most spiritual experiences.
+			- “I kind of did the squarest bio I could,” Fadiman said, pointing at a Horizons brochure, “just in case other people were reading it.” Who did he mean? Squares? Feds? He’d chosen to highlight his post-ban work, which sounded mildly interesting though fairly innocuous. Co-founder of the Institute for Transpersonal Psychology. Course instructor at San Francisco State, Brandeis, and Stanford. Writer. Member of various corporate boards. Don’t be fooled though. His bio obscures a well-documented notoriety.
+			- In The Electric Kool-Aid Acid Test, Tom Wolfe writes about encountering “a young psychologist,” “Clifton Fadiman’s nephew, it turned out,” in the waiting room of the San Mateo County jail. Fadiman and his wife were “happily stuffing three I-Ching coins into some interminable dense volume of Oriental mysticism” that they planned to give Ken Kesey, the Prankster-in-Chief whom the FBI had just nabbed after eight months on the lam. Wolfe had been granted an interview with Kesey, and they wanted him to tell their friend about the hidden coins. During this difficult time, they explained, Kesey needed oracular advice.
+			- Fadiman’s influence transcends counterculture, though. It might even stretch through the very medium through which you’re reading these words. In What the Dormouse Said, John Markoff reports that Fadiman had dosed and counseled numerous “heads” as they were attempting to amplify consciousness through silicon chips and virtual reality. The personal computer revolution, Markoff argues, flourished on the Left Coast precisely because of a peculiar confluence of scientists, dreamers, and drop-outs. And indeed, if you were to illustrate with a Venn diagram the relationships between those involved with Acid Test parties, the Homebrew Computer Club, the Augmented Human Intellect Research Center at Stanford University, Xerox’s Palo Alto Research Center, various backwoods communes, and, of course, the IFAS research center, you’d see an overlap of communities on the San Francisco Midpeninsula that just wasn’t available to the average IBM computer scientist in Westchester.
+				- Though scientists are more typically seen as killers of myth, not its creators, Einstein and many of his more visionary contemporaries sound as trippy as any of yesterday’s mystics.
+			- It’s true that Fadiman cooled it for several decades, did those square things in his bio, settled into the suburbs, and kept on the down-low any lingering passion for chemically boosted consciousness. But then, in 2010, with the publication of his book, The Psychedelic Explorer’s Guide: Safe, Therapeutic, and Sacred Journeys, it became official: At 70 years old, Fadiman had gone rogue. In a mild-mannered sort of way, yes, with charts, hypotheses, and a winning bedside manner. But government be damned, he was now an outspoken advocate for the careful but criminal use of psychedelics, especially LSD, his favorite.
+			- What’s astounding isn’t so much that he came out of the psychedelic closet for a second time—most everyone retains a certain allegiance to their formative experiences—but that he is far from alone. And we’re not just talking about the tens of thousands of utopians who co-create an ephemeral Mecca in the swirling sands of Black Rock each summer.
+			- Though draconian laws still keep psychedelics from the general public, next-generation administrators at the FDA and DEA have been approving research studies again. The taboo broke with a 1992 investigation of how dimethyltryptamine, or DMT, a fast-acting psychedelic, impacts consciousness; DMT wasn’t burdened by the cultural baggage of its three-lettered cousin. And what began quite haltingly had become, by the middle of the last decade, if not routine then certainly notable: Terminated research from the ’60s was being replicated and even furthered in dozens of studies by big-name players, including Johns Hopkins, NYU, and UCLA. These studies, which almost exclusively explore the psychotherapeutic potential of psychedelics (as opposed to, say, how they might influence creativity), are getting results that would make a Big Pharma rep salivate. Of the hundreds of volunteers who’ve participated, a high majority have said that psychedelics, given in a safe, supportive setting, helped them to, depending on the study, accept imminent mortality, overcome drug and alcohol addiction, mitigate obsessive-compulsive urges, or heal post-traumatic stress disorder.
+			- Yet another study recently passed the approval process despite strong objections from the Pentagon: In the summer of 2011, 16 vets who returned from Iraq and Afghanistan with PTSD began receiving a combination of talk therapy and MDMA (pure Ecstasy). This, though the DEA still officially states that psychedelics’ “use in psychotherapy largely has been debunked.” The current relationship between regulators and these Schedule 1 substances is a tangle of impossible possibilities—not unlike the stained glass window overlooking Judson’s stage.
+			- “What happens in serious psychedelic work,” Fadiman said to the people before him, “is there’s a sudden reframing of massive amounts of worldview. We don’t know much about what that learning means, but we sure can see the results.” Though he applauds the aforementioned studies, he has come to Horizons specifically to speak on their limitations. In fact, his entire lecture is intended to be an attack on what he calls “the medical model,” an approach to psychedelic drug use that curtails access to only a fraction of society, and for only narrowly defined goals centered around personal therapy.
+			- Fadiman studied the people before him, then widened his eyes with faux innocence. “How many of you are going to be in a legal research study next year?”
+			- No hands.
+			- “Including not me. You not only have to be ill [to participate], but you have to be ill with something fairly awful. Now, how many of you are planning to have a psychedelic within the next year?”
+			- An overwhelming majority of the audience raised a hand, some enthusiastic, others sheepish. Heads swiveled like periscopes, the better to see all those mea culpas.
+			- “So, I’ll talk to you.”
+			- Widespread laughter: score!
+			- “For a long time after research stopped in the ’60s, I thought, ‘Oh, I can’t do the research that interests me the most, that’s the most life-changing, that has the most potential.’ I also realized that … what the government said is, ‘We are restricting some basic freedoms.’”
+			- Throughout the lecture, his left hand poked like a conductor’s stick as he challenged his listeners with a series of questions.
+			- “Can you go to most any group, from tea parties on one end, to us, I think we’re probably on the other, and say, Is religious freedom something that we support in this country?”
+			- “Is it all right to establish or re-establish or discover a connection to the Divine?”
+			- “Is it OK to do something that leads to your own self-healing and improves your connection to the natural world?”
+			- “Is it OK to discover how the universe works? At the moment, we’ve got two Nobel Prize winners who’ve copped to the fact of where they got their ideas.”
+			- Francis Crick is one and the other: Kary Mullis, who was intermittently under the influence of LSD as he developed the polymerase chain reaction, a genetic sequencing technique through which scientists can detect certain infectious diseases, map the human genome, and trace ancestral heritage back thousands of years.
+			- Fadiman was warming up now, standing tall for the 23 million Americans who, according to government stats, have already taken LSD, and the 400,000-plus who will try it for the first time this year. Curiosity continues to trump criminalization.
+			- “We’re not necessarily going to be content if certain psychedelics are available on prescription [for people who are really ill],” Fadiman said. “That’s not what psychedelic freedom is about.”
+			- Just as he began to speculate on how and when “psychedelic freedom” might be achieved, the microphone slipped off his ear, shoulder-bounced, and tumbled to the floor. It sounded like gunshots or a door being bashed in. Fadiman threw up his hands, fingers splayed, head lowered, as if a SWAT team was raiding the auditorium. He had the audience laughing again as a sound tech scrambled to make things right. Nonetheless, his slapstick evoked a sobering truth concerning the tenuous turf between personal and legal conviction. How many people here have ever been in an actual raid? Hands please?
+			- The discovery of lysergic acid diethylamide, or LSD, is a fairly known tale, at least in certain circles. As war ravaged Europe, Dr. Albert Hofmann hunkered down in his lab in Basel, Switzerland, and synthesized dozens of compounds from ergot, a grain-attacking fungus, in an effort to create a medicinal blood stimulator. In 1943, he accidentally (or, as he has claimed, synchronistically) absorbed a few potent drops from the 25th variety, soon thereafter experiencing a “not unpleasant intoxicated-like condition.”
+			- What’s less commonly known, even in certain circles, is what should or shouldn’t be done with this potent discovery, which Hofmann has referred to as “my problem child.” During a second, entirely intentional exposure, his problem child unleashed upon him a slew of hellish and terrifying visions, severely compromising both his short-term sanity and his ability to navigate the physical world.
+			- Through his re-stabilized head microphone, Fadiman was focusing on exactly these sorts of dangers: He’d transitioned from advocacy to shop talk. “Have you ever had a bad trip?” he asked the audience. “Hands please. That’s quite a few. Do you know why it was a bad trip? Unfortunately, less hands.”
+			- Of his own hands: The right clutched lecture notes, while the left danced. “OK, you aren’t going to be involved in research studies. But in your personal lives you are going to be looking at”—left ascending three invisible steps—“yourself, science, and the Divine. And so it’s important to know, what is necessary for the safest, most successful, and potentially sacred experience?” Palm upward. “The answer is, very simply, six items.” And then down to the podium.
+			- These six items are, perhaps simply enough, factors that Fadiman believes determine the quality of a psychedelic experience, as well as its specific nature. He has culled them from his work with hundreds of people in therapy sessions, creativity experiments, and Death Valley vision quests. They are:
+				- Set: the mental attitude of a would-be psychedelic voyager
+				- Setting: the surroundings in which a psychedelic substance is ingested
+				- Guide: a person experienced with non-ordinary states of consciousness who helps to mitigate challenges and channel insights
+				- Substance: the type and quantity of psychedelic agent
+				- Session: the entirety of a psychedelic trip, including all activities or rituals
+				- Situation: the environment, people, and culture from which a person comes to a session and returns afterward
+			- Regardless of whether they use Fadiman’s preferred terminology, medical researchers conducting government-approved therapeutic studies look for these same essential parameters, as do shamans and tribal elders across the globe. These diverse facilitators of psychedelic experiences carefully screen applicants to ensure they are of sound(-enough) mind and prime them on the benefits that a session can offer, thereby helping to focus intentions, establish positive expectations, and dramatically increase the odds of a favorable outcome.
+			- During the 1960s, researchers determined that non-lyrical music, including solo flute, tribal drums, ragas, and classical recordings greatly augmented a psychedelic experience. Fadiman favors Hovhaness’s Mysterious Mountain and Fauré’s Requiem.
+			- Sessions typically occur in a comfortable, often enchanting, environment—say, a star-shaped temple in the Brazilian Amazon or a cushy, made-over hospital room at NYU’s dental school. And in these settings, therapists, shamans, and researchers follow a certain protocol, comprised of time-tested, peer-reviewed rituals that have been shown to most effectively channel revelatory and even, as Fadiman would have it, sacred, experiences. A psychedelic voyager may be guided with singing and drumming, or with prerecorded non-lyrical music, eyeshades, and photographs of loved ones, or with suggestions, observations, and questions, and, sometimes, later in the session, as the potency of a substance wanes, with forays into particularly choice habitat. Afterwards, the voyager is welcomed back and assisted with integrating into her situation any learning, insights, and mystical flashes that may have occurred.
+			- Those least likely to account for these six factors are typically people with less stable personalities, which is to say, youth. Which is to say, most of us who found ourselves with LSD on our tongues for the first time in a friend’s basement, at a jumping party, or on the untamed outskirts of sprawl. The mind might be entirely unprepared, the dosage too much, the setting and lack of effective support quite dangerous.
+			- “I think guides are wonderful,” Fadiman said, “which often gets me dismissed as a radical conservative—a kind of fun thing to be in this crowd. But look, you don’t go to the airport and say, ‘I want to fly a plane.’ And a pilot says, ‘Here’s the keys, pick one of those, and give it a shot.’”
+			- He has a point. After all, even the most positive LSD experiences often involve disturbing visions and moments of paranoia. Most of us still managed to do OK during our first time, maybe even were steered toward an epiphany. But some of us didn’t. Some of us crash-landed and injured ourselves or others, or were overpowered by unresolved subconscious conflicts, or, in extremely rare cases, unleashed a latent psychosis. Over the last 50 years, more than a few were locked up in a correctional facility of one kind or another and injected with Thorazine, which, unfortunately, has a way of transforming a drug-induced freakout into life-long affliction. (Xanax is a far better option.) Acid casualties from the 1960s still haunt Telegraph Avenue like ghosts with unsettled scores.
+			- When Fadiman sat down to write his book, he had at first been attempting to write a memoir; after an early draft, he decided he was doing too much navel-gazing and shifted his style and content to create The Psychedelic Explorer’s Guide, which reads a good deal like a how-to-manual. Still, he didn’t entirely suppress his initial urge to tell portions of his own tale, and why should he? Even as he conducted government-sanctioned research, he was cavorting with mystics, poets, outlaws, and a pistol-packing man who transnationally distributed LSD, regularly communicated with U.S. intelligence agencies, and pioneered procedures for psychedelic sessions that highly regarded medical facilities still use today.
+			- In one anecdote that made the cut, he recounts a night spent with Ken Kesey on a feral embankment between the shoreline and the town dump of sleepy Pescadaro, Calif. Peaking on a relatively high dose of LSD shortly before dawn, Dorothy, one of Ken’s girlfriends, lay down in the dirt to better observe one particular wild violet. Stardust waltzed off its purple petals into the embankment, the ocean, even the dump. Stranger still, the violet budded, blossomed, withered, and died, both forward in time and in reverse.
+			- When Dorothy tried to explain it all to James, he didn’t scoff. Instead he got down beside her and, utilizing insights he’d developed as an IFAS guide, urged her deeper into the experience. Dorothy became aware that stardust was also coursing through her neural network. The universe wasn’t random chance, she thought that morning, but ebullient choice. She didn’t need to go anywhere because she was everywhere.
+			- If you ask her today, she’ll tell you the effects from her trip lasted long after she came down. For starters, she’d say, this was the pivotal moment that led her to become a filmmaker. (Her short documentaries have earned numerous accolades, including an Emmy, an Oscar nomination, and the Corporation for Public Broadcasting Gold Medal.) But, she’d add, that’s not all. That morning, she ditched Hunky Ken for Interstellar James, and for 47 years and counting, they’ve lived together in an open marriage.
+			- What happened to Dorothy Fadiman that morning? How about Francis Crick and the people with cancer in the anxiety studies? Staunch materialists might argue that exogenous, psychotropic molecules had simply transformed their three pounds of gelatinous gray head muscle into funhouses for a few hours. But Ms. Fadiman, Crick, and most study volunteers say something quite different—that the psychedelics they ingested acted as a sort of antenna, allowing them to receive rather profound transmissions that they couldn’t typically access during their ordinary states of consciousness. Such a claim is not without precedent.
+			- Ever since people first altered their surroundings with celestially aligned rocks, they’ve also been altering their inner landscapes. Though Albert Hofmann’s recipe is entirely modern, tribes and other pre-industrial societies from Australia to Mesopotamia have long been mixing the medicine into brews, snuffs, and powders. In rituals, often of a collective nature, they’ve ingested these substances and then sung, drummed, and channeled to access insights, archetypal beings, and alternate realities. While these societies are as eclectic as orchids, they share at least one characteristic: Their rituals have served as an axis mundi, a psychic compass that simultaneously situates and provides direction to both individual and community. As a result, matter and consciousness are experienced as entwined, purposeful, and sacred.
+			- On stage and page, Fadiman has argued that, in marked contrast, most members of post-industrial societies perceive themselves as happenstance cogs in a clockwork universe, and consequently, exhibit a profound and increasingly dangerous alienation. The dissociation of self is so fundamental that bioregions are sub-divided into tract housing, resources into quarterly earnings, and people into one-percenters and the rest. For Fadiman at least, even traditional Western therapy, which seeks to re-align a sick individual to this worldview, must necessarily end in a cul-de-sac.
+			- Marlene Dobkin de Rios, a medical anthropologist, has argued that there is a strong correlation between centralized power and psychedelic prohibition as authoritarian leaders have perennially associated these substances with insurrectionary tendencies. Indeed, whether in 17th-century Europe or 19th-century America, even as proponents of church and state enclosed communal lands and subjugated the inhabitants therein, they especially targeted those deemed most resistant to ideological control—the shamans, witches, magi, occultists, and others who concocted, imbibed, and distributed psychedelic substances, and believed themselves to be in an ongoing discourse with land, non-human species, and spirits.
+			- The !Kung (tongue-click then “kung”) is one of the psychedelically-augmented, anarchistic societies that had survived these purges well into contemporary times. A nomadic people, they’d harmonized with the austere rhythms of the Kalahari Desert for thousands of years. Elizabeth Marshall Thomas, who lived with them during the 1950s, writes that the !Kung recognized an illness called “Star Sickness,” which could overcome members of the community with a force not unlike gravity and cause profound disorientation. Unable to situate themselves in the cosmos in a meaningful way, the afflicted displayed jealousy, hostility, and a marked incapacity for gift-giving—the very symptoms that plague many Westerners, according to Fadiman (and, certainly, quite a few others).
+			- To cure and prevent Star Sickness, the !Kung conducted all-night trance dances around a bonfire four times per month on average, often augmenting them with psychoactive plants including dagga (marijuana) and gaise noru noru (more than marijuana). As dancers sang, stomped, shook rattles, and spun, a boiling force called n/um collected in their abdomens and sometimes flowed out through their heads, causing them to soar over fantastical terrain. These grand vistas were said to provide the necessary perspective to re-align community members both to the stars and one other.
+			- Surely, the !Kung’s chosen mode of governance reflected these regularly-scheduled astral tune-ups. Until the 1970s, when apartheid-era colonizers irrevocably altered the flora, fauna, and flow of the Kalahari, the !Kung had organized through leaderless, consensus-based decision-making, coupled with a bawdy humor that infused even the most sacred moments to dispel tension and check the power-hungry. This sort of power-sharing sounds not dissimilar to what Occupy Wall Street protesters attempted last year with their General Assemblies and Spokes Councils. Perhaps both Occupiers and the !Kung have tapped something primordial: When researchers isolate heart cells on a Petri dish, the cells bounce to their own idiosyncratic rhythms. But placed beside one another, they self-organize into a collective beat.
+			- The urge to connect with the numinous remains strong throughout the world, including the West—even as medical experts pathologize it, monotheistic bureaucrats neuter it, and Madison Avenue spellcasters exploit it. Of course psychoactive plants, fungi, and synthetics aren’t the only way to sate this urge: Sufis spin, musicians riff, and physicists formulate. And sometimes psychedelics just get in the way, according to religious scholar Huston Smith.
+				- Cops don’t just hide on side streets—they sneak into heads, too. And so Mitt Romney, the Republican presidential hopeful, can declare with patrician matter-of-factness, “Corporations are people, my friend.”
+			- After surveying late-’60s counterculture, he warned that without the grounding of long-term spiritual practice, psychedelic drug use amounts to, at best, a “religion of religious experience,” a series of mystical wows decontextualized from personal and community health.
+			- Notably, though, the plant teachers—as some shamans refer to vision-inducing flora—have been perceived by what probably amounts to a majority of human societies as a legitimate and particularly effective portal into the fabric and meaning of reality. Michael Pollan popularized what ethnobotanists have been saying for some time with his 2001 book, The Botany of Desire: Plants and people have been involved in a symbiotic relationship for millennia. They entice our noses, bellies, and brains; we nurture their terrain. It’s a fairly open secret that not only does the Amazon contain the necessary ingredients for ayahuasca, one of the strongest and oldest psychedelic brews, but that the forest itself isn’t so much a wilderness as a 10,000-year-old garden under indigenous management.
+			- By comparison, Americans commonly perceive the wild violet as a noxious weed—though it’s a rich source of Vitamins A and C, as well as antimicrobial and anti-HIV agents. The wild violet is quite hardy, too, which is why Dorothy Fadiman’s prized flower was able to flourish near the Pescadaro dump, the ass-end of civilization. But for homeowners intent on turning their parcel of property into a monochromatic green sheet, that simply means repeated applications of a particularly strong herbicide along with, as one website advises, “persistence.” Such an approach to land use, which views private property as so inviolable and autonomous that it’s above even the laws of nature, surely reflects how many Americans perceive not only their surroundings but also themselves. You’ve heard the one about the rugged, entirely self-made individual?
+			- Albert Einstein, who navigated the twilight turf between consciousness and matter for much of his life, argued that “Man” suffers from an “optical delusion of consciousness” as he “experiences himself, his thoughts and feelings as something separated from the rest.” His cure? Get some n/um. “The most beautiful thing we can experience is the mysterious,” he said. “It is the source of all true art and science. He to whom this emotion is a stranger, who can no longer pause to wonder and stand rapt in awe, is as good as dead: His eyes are closed.”
+			- Though scientists are more typically seen as killers of myth, not its creators, Einstein and many of his more visionary contemporaries sound as trippy as any of yesterday’s mystics. They say that the time-space continuum warps like the surface of a trampoline. They say that we are stardust. That there is no “in the beginning.” That things are not things at all, but relations. That the observer tweaks the observed, at least on a sub-atomic level, just by observing.
+			- Who knows, their latest findings may one day affirm some ancient hypotheses. If reality isn’t shaped with the psychically aware, self-organizing units that Giordano Bruno called monads in the sixteenth century, then perhaps it’s woven with Indra’s net, the jeweled nodes of which stretch into infinity, each one a reflection of all others. To entertain such ontologies is to re-contextualize one’s self as a marvelous conduit in a timeless whole, through which molecules and meaning flow, from nebulae to neurons and back again. If certain of these molecules connect with our serotonin receptors like a key in a pin tumbler, and open a door to extraordinary vistas, why shouldn’t we peek?
+			- Fadiman had another question for the audience: “How many of you have heard about micro-dosing?” He adjusted his bifocals to a groovy sight: two-dozen uplifted hands. “Whoa!”
+			- Despite the 45-year government ban, Fadiman had never stopped longing to tinker with LSD, to catalogue what we might be capable of with this byproduct of mold. Of all the possible forays into this psychic terra incognita, he was most eager to explore micro-dosing—specifically its long-term effects. And he didn’t have another 45 years for the feds to get hip to the plan.
+			- Fadiman claims the “normal range” of an LSD dose varies, based on whether one is seeking a recreational experience (50 mcg), creative boost (100 mcg), therapeutic session (100-250 mcg) or face-to-face with “the Divine” (400 mcg). But, he cautions, a higher dose is a riskier dose.
+			- First things first: Fadiman defines a micro-dose as 10 micrograms of LSD (or one-fifth the usual dose of mushrooms). Because he cannot set up perfect lab conditions due to the likelihood of criminal prosecution, he has instead crafted a study in which volunteers self-administer and self-report. Which means that they must acquire their own supply of the Schedule 1 drug and separate a standard hit of 50 to 100 micrograms into micro-doses. (Hint: LSD is entirely water-soluble.)
+			- Beginning in 2010, an unspecified but growing number of volunteers have taken a micro-dose every third day, while conducting their typical daily routines and maintaining logbooks of their observations. Study enrollment may last for several weeks or longer: There doesn’t appear to be a brightly drawn finish line. After several weeks (or, um…), participants send their logbooks to an email address on Fadiman’s personal website, preferably accompanied by a summary of their overall impressions.
+			- “Micro-dosing turns out to be a totally different world,” Fadiman extolled. “As someone said, the rocks don’t glow, even a little bit. But what many people are reporting is, at the end of the day, they say, ‘That was a really good day.’ You know, that kind of day when things kind of work. You’re doing a task you normally couldn’t stand for two hours, but you do it for three or four. You eat properly. Maybe you do one more set of reps. Just a good day. That seems to be what we’re discovering.”
+			- Elsewhere Fadiman has been more specific about the logbooks he’s received. One physician reported that micro-dosing got him “in touch with a deep place of ease and beauty.” A vocalist said she could better hear and channel music. In general, study participants functioned normally in their work and relationships, Fadiman has said, but with increased focus, creativity, and emotional clarity. Until he releases his data archive in a comprehensive manner, it is, of course, not possible to scrutinize the validity of his claim.
+			- Perhaps the micro-dose study offers Fadiman the opportunity to lob a belated fuck-you at The Man for derailing his career all those years ago. But it also allows him to follow the recommendation of a longtime, now-deceased friend, Albert Hofmann, who, according to Fadiman, called micro-dosing “the most under-researched area of psychedelics.” Word on the street is that Hofmann had also surmised that micro-doses of LSD would be a viable market alternative to Ritalin. It’s an intriguing claim. After all, if Fadiman had administered Ritalin to the scientists in his creativity study, they might have focused on their problems just as intently as they had on LSD, but they probably wouldn’t have had as many breakthroughs. Even as Ritalin boosts attention, it has a tendency to create tunnel vision, which, more often than not, stymies imagination.
+			- “I just got a report from someone who did this for six weeks,” Fadiman said. “And his question to me was, ‘Is there any reason to stop?’” More laughter throughout the hall, another adjustment of bifocals.
+			- Is Fadiman reckless, irresponsible, a mad corrupter of youth? Most of today’s politicians, law enforcement officials, cable news hosts, and medical practitioners—whom, collectively, Fadiman might refer to as “the establishment”—would undoubtedly level these charges and more against him if only they knew of his research. But these sorts of accusations have long been aimed at those who posit opinions so dissident that, if taken seriously, they threaten not just how society operates, but, perhaps more fundamentally disturbing to both reigning authorities and the general public, how we perceive ourselves.
+			- Regardless of whether heretics are visionaries, cranks, or people to whom both labels apply, if their ideas have a certain traction, the powers that be—aka establishments throughout the ages—attempt to silence them through exile, thumbscrews, the stake, incarceration, public ridicule, etc. Such tactics are terribly effective. Which is to say that most accused heretics suffer and are forgotten. But not always. Every once in a while, posthumously or otherwise, one of them topples a paradigm.
+			- During an afternoon break, a handful of younger Horizons attendees—dressed, to greater and lesser effect, in daring colors and cuts—clumped together on the front stairs of Judson Church and worked through the logistics of micro-dosing. No scale required, they said. Paper blotter, Pez, whatever, just plop it in a water bottle, draw some ticks on the side. A little trial and error of course, but do mind the chlorine.
+			- Occupy Wall Street protestors streamed by, sleep-deprived, scruffy, grinning, keffiyehs knotted around necks; several held aloft a golden bull, “FALSE IDOL” painted on its flanks. They were rallying across the street in Washington Square Park before attempting an evening takeover of Times Square, on this, the 29th day after sleeping bags were first planted in the Financial District. Heavily armored police surrounded them and covertly amassed on adjacent streets where the media cameras weren’t focused. “We are unstoppable!” a thousand Occupiers chanted. “Another world is possible!”
+			- History has proven the fallibility of their first line. But as to their second? For starters, this other world depends on visioning at least as much as active resistance, and that’s where, historically, psychedelics come in. Long before the mathematicians and scientists in Fadiman’s creativity study utilized LSD to better envision formulas, materials, and the interstices between, traditional societies tripped to comprehend and commune with people, animals, plants, bioregions, and the spirits they felt moved through all things.
+				- Perhaps the micro-dose study offers Fadiman the opportunity to lob a belated fuck-you at The Man for derailing his career all those years ago.
+			- Which brings us to the next point: It’s not just one world that is possible, but many. The American Psychiatric Association could recognize Star Sickness as a pathology. The U.S. government could tether progress to Gross National Happiness as is done in Bhutan, or follow the lead of Evo Morales, Bolivia’s first indigenous leader, and implement the Law of Mother Earth, so that “the balance of ecosystems and local inhabitant communities” are granted the legal right “to not be affected by mega-infrastructure and development projects.” Many enlightening policies emanate from societies like the above, where non-ordinary states of consciousness are prized.
+			- If these ideas seem far out to you, that’s precisely the problem. Or so thought Einstein. Capitalism, he argued, simultaneously creates a “huge community of producers” who are “unceasingly striving to deprive each other of the fruits of their collective labor” and an “oligarchy” that “cannot be effectively checked even by a democratically organized society.” He believes this subjugation is largely accomplished “not by force” but because “the privileged class” had long ago established a “system of values by which the people were thenceforth, to a large extent unconsciously, guided in their social behavior.”
+			- In other words, cops don’t just hide on side streets—they sneak into heads, too. And so Mitt Romney, the Republican presidential hopeful, can declare with patrician matter-of-factness, “Corporations are people, my friend.” He’s absolutely correct, too, as far as U.S. law is concerned. Corporations have the rights that bioregions don’t. And they have far better legal representation than you.
+			- We’re always evolving, one way or another, as we play for keeps on what William James called the “field of consciousness.” While countless questions remain as to the parameters of this field, one thing is certain. Fadiman and his far-flung colleagues have provided the means through which contemporary Westerners can visit areas once thought to be out-of-bounds, or accessible only to a select few, through divine grace, a near-death experience, or 10,000 hours of meditation. Under the right circumstances, these psychic dérives are far less dangerous than, say, a lunar landing, and may ultimately prove as rewarding, if not more so.
+			- So then, why the hysteria?
+			- It’s a question Fadiman asks and attempts to answer. “Why did our drug research frighten the establishment so profoundly? Why does it still frighten them?” he writes. “Perhaps because we were able to step off (or were tossed off) the treadmill of daily stuff and saw the whole system of life-death-life. We had discovered that love is the fundamental energy of the universe. And we wouldn’t shut up about it.”
+			- At first glance (and maybe second and third), his answer may sound maddeningly, well, Californian. But that doesn’t mean he’s not onto something. After all, to experience self and surroundings as entwined and enchanted, which those engaged in a guided psychedelic session have a statistically significant chance of doing, is to extend the very definition of self outward, so that one is far more apt to behave like heart cells. Jesus is said to have overturned moneychangers’ tables in the name of sacred turf. Just imagine what a critical mass of formerly upright citizens might do if they suddenly saw the whole earth as a temple. “No wonder,” Fadiman writes, “enlightenment is always a crime.”
+				- #crime#drugs#health#intelligence#inventions#longreads#personalities#profiles#science
+			- Tim Doody is a New York City-based writer. Nightline once included him in a list of “particularly troublesome, even dangerous, anarchists.” He’s online at timdoody.me.More by Tim Doody
+				- Email Tim Doody
+		- Random redditor
+			- In the article here: http://www.themorningnews.org/article/the-heretic Dr. Fadiman talks about micro-dosing with LSD. This piqued my interest and I decided to give it a try. I happened to have some LSD laying around.
+			- I decided to try a 10 micro-gram dose per day for 15 days, at which point I will stop.
+			- In order to measure out 10ug, I took one 150ug blotter, placed it into a chlorine free 20oz bottle of water and shook violently. I then used a measuring tape to mark off 15 equal sections of water. This is not precise, but has worked well thus far. I let the Blotter sit in the bottle overnight, and then shook violently again the following morning before my first dose. The last time I ingested LSD before this experience was about 60 days ago.
+			- What follows are my logs over the first 48 hours and change, I will continue to log for the next 13 days.
+			- 9/25/13
+				- 638a 10ug taken
+				- 735a traffic was bad. Want to think I feel something. Maybe tricking myself
+				- 800a ok so I definitely feel some elation, and feeling quite social
+				- 946a energy levels are much higher than usual, warm feeling all over, texture and color seem more apparent. spent some time staring intently at a wall to determine if there were any minor hallucinations, but nothing
+				- 624p so things got busy at work and I forgot about my little experiment for a while, suffice it to say there have been no negative consequences thus far. The first thing I thought when I walked in the door, was that I wanted to take another sip, that if 10ug made me feel this good, what would 20ug do? Well I'm not going to do that. Going for a walk at 730 with someone, will update after.
+				- 714p I noticed some tracers from my phone's screen in a poorly lit hallway. I generally see them anyway, this was more pronounced than usual, but not intense.
+				- 930p walk was pretty normal, good walk, good talk, none of which concerned psychedelics, shower afterward seemed very awesome, a lot more awesome than a shower usually does. Time for a sandwich and bedtime.
+			- 9/26/13
+				- 641a my morning sip was a little larger than it should have been, about 15ug taken
+				- 758a made it to work, traffic was horrible and I was driving rather aggressively. Then all of a sudden had the realization that we were all flowing in the the same stream :D however I find my office's lack of milk disturbing
+				- 1001a my usual time killers (reddit, watching sc2 matches) are quite un-entertaining today I'm going to try doing something creative
+				- 126p after doing some serious problem solving at work I've noticed that different angles and approaches seem to be apparent rather than elusive
+				- 437p overall today I can only describe myself a hyper (not like caffeine, but like I'm super excited) and absolutely elated.
+				- 626p ab muscle spasms while driving home from work today, slight, but noticeable
+				- 723p sitting in a white room, when people move, can see silhouettes of where they just were that linger
+			- 9/27/13
+				- 621a Holy vivid dreams batman! I've been a student of /r/LucidDreaming for a while, only been successful a few times. Last night I was not lucid but i remember what seems like days worth of experience. Tonight I will try to become lucid.
+				- 642a 10ug taken...
+			- In summary, micro-dosing seems to greatly enhance my mood and energy levels I have also found it significantly more easy to perform tasks that I usually procrastinate. It has also seemed to make time pass more slowly. I seem to be able to accomplish a greater number of things during the same interval as previously. During this experiment I have not ingested any coffee, but have been drinking some mild black tea daily, which is on par with my normal self. I work in a highrise building for a large corporation in my city, and no one over the course of this has asked me if i was feeling OK, or as far as I know had any other indication that I was acting strange or unusual. I also have a 30-40 minute commute in heavy traffic and have not noticed any reduced reaction time or extra risk taking. I have however noticed a tendency to be more apathetic and less aggressive in my driving.
+			- I'll respond to as many questions as I can. So AMA.
+	- Marijuana
+	  collapsed:: true
+		- Marijuana
+		  collapsed:: true
+			- ](null)[ Good whilst socialising as more likely to lead to Fastlane conversation plus it's a cheap chill that focuses on talking rather than drinking etc > use with a vaporiser ](null)[](null)[[Vaporisers and hash | Drugs-Forum](http://www.drugs-forum.com/forum/showpost.php?p=70835&postcount=5)
+		- There are many negatives of hash that I'm not appreciating right now and should lower 'max spliffs monthly'. Eg dry mouth reduces saliva thus exacerbating gum recession/plaque/cavities; impairs working memory/fluid intelligence through long-term depression (opposite of potentiation) of neural connections through removing AMPA receptors in hippocampus; motivation; excessive calorie intake; low impulse control?; inhibits androgen receptors [Marihuana inhibits dihydrotestosterone binding to the androgen receptor - PubMed](http://www.ncbi.nlm.nih.gov/pubmed/6249575)
+		  collapsed:: true
+			-
+			- * * - However is good for social bonding; infrequent use is far less harmful; great for creativity; good relaxing/unwinding hedonism; heighten sexual/musical experience;
+			- * * - Like socialising, balance weed with productivity and a few spliffs a month won't hurt me. I find the main problems I have it with it is excessive calorie intake and increased introversion whilst socialising. But on positive side I am less anxious and more creative/critically thinking.
+			- * * - Maybe as it increases introversion it's better for me to do solo? Plus not with people who want to order junk food.
+			- * * - Whats my motivation to smoke? When I'm out I guess it's an activity to do, habitual though it has me being way more introverted?
+			- Hash doesn't cause introversion like weed does
+			  collapsed:: true
+				- MAY 2014 - Tried Vaponic
+			- + Delicious. Much healthier. Boys like it (even Eklad). Great high with hash. Little smell. No dry mouth.
+			- - Small capacity. Requires cleaning. Requires filled torch lighter. If police stopped me they would easily find the vape, whereas a baggy can be thrown away easily. Tendency to Learning or Leisure rather than Next Action or Analysis if high at home. Inhibits androgen receptors (http://www.ncbi.nlm.nih.gov/pubmed/6249575.
+			- It's okay intermittently with friends simply because it's a cheap night and leads to good conversation + creativity. High frequency (e.g. doing it at home) is going to impair long-term health and success however so don't set aside a budget for buying hash to keep at home
+			- Hrmm well it does stimulate somatostatin release... so it's going to inhibt GH release during your sleep, that alone will probably effect sleep quality. On an unrelated to topic note, it has also been shown in studies to lower testosterone.
+			- I only see one paper http://www.ncbi.nlm....pubmed/18313952 <- Effect of illicit recreational drugs upon sleep: cocaine, ecstasy and marijuana.
+			- Quote
+			  collapsed:: true
+				- Smoked marijuana and oral Delta-9-tetrahydrocannabinol (THC) reduce REM sleep. Moreover, acute administration of cannabis appears to facilitate falling asleep and to increase Stage 4 sleep. Difficulty sleeping and strange dreams are among the most consistently reported symptoms of acute and subacute cannabis withdrawal. Longer sleep onset latency, reduced slow wave sleep and a REM rebound can be observed. May damage REM find when using it before bed I fall asleep quickly, but my sleep quality suffers. I did not do enough trials to be sure, but it looked like it reduced my REM sleep by 10-30%. Deep sleep was not affected provided I was able to get to sleep in time to catch it. (My deep sleep is much more fixed to my circadian rhythms than my REM sleep - stay up too late and I miss out.) 3) As with many poisons, a low dose probably up-regulates your body's defenses against that poison, and getting small doses of irritants may up-regulate your lungs' cleaning processes as well. This might have beneficial side effects in clearing out other irritants or carcinogens as well as increasing autophagy, increasing the turnover of lung cells and keeping the tissue fresher and healthier. Marijuana kills cancer cells http://www.ncbi.nlm.nih.gov/pmc/articles/PMC2673842/?tool=pmcentrez It will stop cancer growth http://www.webmd.com/cancer/brain-cancer/news/20090401/marijuana-chemical-may-fight-brain-cancer Stop tumors http://www.webmd.com/lung-cancer/news/20070417/marijuana-may-fight-lung-tumors It helps ADHD http://onlinelibrary.wiley.com/doi/10.1111/j.1521-0391.2010.00076.x/abstract http://psychcentral.com/lib/2010/adhd-and-marijuana/ Warning PDF http://mcforadhd.free.fr/ARTICLE%20ADHD%20DRIVING%20GERMANY.pdf Some argue that it is an athletic performance enhancer http://www.popsci.com/scitech/article/2009-02/pot-performance-enhancer It fights inflammation http://www.sciencedaily.com/releases/2007/06/070607171120.htm http://www.sciencenews.org/view/feature/id/59872/title/Not_just_a_high It can increase brain cell growth http://www.peak.sfu.ca/the-peak/2005-3/issue9/ne-mj.html Final bonus link. 3,000 year old Caucasian mummies found in Chinese desert with bags of marijuana. (I know this doesnt make it Paleo but its an interesting story)http://www.msnbc.msn.com/id/28034925/ns/technology_and_science-science/
+	- My vaponic vaporiser notes
+	    collapsed:: true
+		- My vaponic vaporiser notes - but need to check the time spent on cleaningMoney-saving - Uses less to get you the same high. Plus you don't lose anything if you're not hitting it Reduced smell - Can smoke inside a car/houseNo hot lips or brown lipsMay 2014]
+		- Tried Vaponic
+			- + Delicious. Much healthier. Boys like it (even Eklad). Great high with hash. Little smell. No dry mouth.
+				- [- Small capacity. Requires ~40m cleaning. Requires filled torch lighter. If police stopped me they would easily find the vape, whereas a baggy can be thrown away easily. Tendency to Learning or Leisure rather than Next Action or Analysis if high at home. Inhibits androgen receptors http://www.ncbi.nlm.nih.gov/pubmed/6249575]
+				- Removes AMPA receptors in hippocampus (impairs fluid intelligence/working memory via long-term depression rather than potentiation). Reduces impulse control (e.g. more likely to carb binge).
+				- It's okay intermittently with friends simply because it's a cheap night and leads to good conversation + creativity. High frequency (e.g. doing it at home) is going to impair long-term health and success however so don't set aside a budget for buying hash to keep at home
+		- £150 Electronic vape?
+		- electronic one as the battery/charging can be temperamental and they are a lot pricier.
+			- Pinnacle Pro
+				- Cooler and more appealing to use than heating a glass pipe
+					- Evan more likely to want to use often, which is preferable as I want to increase Hash Meets (cheap, low hours + high Fastlane conversation)
+				- Time-saving + less hassle - no lighter needed
+				- Less smell?
+					- Sploofs - Can use toilet roll with dryer sheets inside using elastic bands
+			- Solo
+				- Few issues compared to PNP
+				- Reliable and sturdy
+		- Portable Compact Vaporizers for Hash
+			- Preferably stealthy too
+			- Eliminates all the downsides of smoking in papers/pipes etc + combustion eg carcinogens + no smell
+				- http://cdn.theweedblog.com/wp-content/uploads/smoking-vs-vaporizing.png
+		- - vape pens all combust
+		- You can look at your ABV (already been vaped and see if it looks dark enough when you're finished. Usually your ABV will be a dark coffee color when spent.
+		- I use my ABV to cook with so I don't get mine too dark of color. ABV can be really potent, don't let others fool you. Nothing is wasted like with combusting. Collect your ABV.
+		- http://fuckcombustion.com/forums/portable-vaporizers.39/](http://fuckcombustion.com/forums/portable-vaporizers.39/) [http://fuckcombustion.com/threads/portable-vaporizer-for-hash.6351/
+			- Vapbong Vaponic - £40 with everything. Good entry-level compact stealthy portable vaporizer for hash
+				- Can be used at home or out with Evan
+				- * Would recommend this far more than an electronic one as the battery/charging can be temperamental and they are a lot pricier.
+			- Pinnacle Pro - £150
+				- Very stealthy (looks like mini shisha + black), compact
+				- Can be used out and about, easy to clean for regular home use
+				- Get a glass mouthpiece or burnt plastic fumes. For a replacement get into contact with VaporBlunt.
+				- Need to wrap weed around hash?? Unconfirmed
+			- Vapbong vaponic
+				- Hash is the only good use for this glass vape IMO, and with it it works great. All glass and heated with a torch, you can get the temps as high as you want, but as the load is seperate from the layer of glas being heated you ca get the temps quite high as needed for hash/concentrates but with less potential for burning/scorching. It can be fully cleaned spotlessly with ISO and broken down into pieces that in no way resemble a vape. It's overpriced for what it is, like many vapes, but fully functional as a hash vape. A little fragile, so you need to take care with it, but it does come with a stealthy marker pen case (although it says vapbong vape on it, which isn't so stealthy)
+				- * need to use a butane lighter is why I can't/won't use it :/
+				- * http://www.amazon.co.uk/Refillable-Lighter-Welding-Soldering-Buyincoins/dp/B0092L0E7W/ref=sr_1_1?ie=UTF8&qid=1398457238&sr=8-1&keywords=torch+lighter £5
+				- * http://www.amazon.co.uk/Vaponic-Portable-Aromatherapy-Vaporizer/dp/5120090249/ref=pd_sim_diy_4?ie=UTF8&refRID=0Q36BQZ3FDY4R4XWCNVR £30
+			- Eclipse Essential Vaaapp
+				- your best bet for any concentrates, and its portable! all you need is a decent torch
+				- For hash I would definitely recommed the Eclipse / Vaaapp
+				- It's a good vape for hash and oils, but vials are an issue (esp. if travelling, and in Europe I can't find the US threads) and a bitch to clean. It's also easier to scorch the load if you're using a torch, as it's just a thin layer of the glass vial to your hash inside. The whole pipe can be soaked in iso and cleaned though.
+				- more expensive than the vapbong, and less stealthy for travelling IMO
+				- $60 ebay http://www.ebay.co](http://www.ebay.com/itm/Eclipse-Vape-Essential-VAAAPP-6-custom-colors-from-Herbal-Innovations-/281313796940)[m/itm/Eclipse-Vape-Essential-VAAAPP-6-custom-colors-from-Herbal-Innovations-/281313796940
+			- Arizer Solo
+				- Try the solo. There's an 800+ thread on it because it speaks for itself. Has many attachment and is durable as a brick house.
+				- http://arizer.com/store/en/home/31-arizer-solo-portable-diffuser.html $250
+			- Da Vinci Ascent
+				- It can vape almost anything, and has different areas- for oils, hash, even two different things at once. It is portable, looks and is about the size of a walky-talky. I am super clumsy and have dropped mine a few times and it still works great. I vape in public all the time, I have used it in a theater, at the mall, even tried at the grocery store. :eek: Because it looks the way it does, no one notices a thing, just think that I am using a walky-talky. They are about $250 in price, but sometimes they have specials
+				- I'm vaporizing solid hash. Using a Da Vinci at the moment
+				- 3x votes for Da Vinci
+				- The new Da Vinci Ascent model has a glass tube that allows it to vape flowers and concentrates
+				- http://www.portablevaporizerpro.com/reviews/davinci-ascent-vaporizer/ $250
+			- Thermovape Revolution
+				- They can be had quite cheaply now that the Cera is on the horizon, and work great.
+			- Pinnacle Pro £150
+				- Very stealthy, very compact sleek black
+				- The pinnacle pro uses bullets so cleaning is a breeze and smell is minimized, unless heating a loaded bullet it can smell.
+				- The battery life can be better on the pinnacle pro, it can easily give you 3 -8 minute sessions and still have 1-2 sessions left till needs recharging (low temps maybe more) It can be used while charging.
+				- So easy to clean, its ridiculous, is o swap the bullet ever so often and iso qtip swap the mouthpiece and screen.no need to fiddle with brushes ect you can just leave them in a bag with alcohol or something? Pinnacle pro has a 5 heat setting (470) for concentrates, I find the titanium FMJ tey provide for oils doesnt work that well, but oil ina piece of cotton works way better (still no nail hit).
+				- Hash broken up should work fine and with herb as well.
+				- http://www.portablevaporizerpro.com/reviews/pinnacle-pro-vaporizer/ https://www.youtube.com/watch?v=MXv4lBdt41I
+			- Some excellent portable vapes for concentrates are: the Lotus, VG Classic/handcarved/Glass, VapeOrSmoke, Eclipse vapes, maybe the Supreme, Glass vapobowl, and probably some others
+			- Eclipse Vaaap (H20 & Pipe)/Vape or Smoke/ MF with MOD SS gauze basket (shit just did that one it works awesome!)/Vapbong (yeah Spanish guys know about hash,LOL...) ... list is quite long in fact!
+			- I'm considering the Omnicron V2, Persei, Vaporbrothers' Dabbler, and the Cera.
+				- The Cera would be your highest quality option, and also highest cost. It uses separate cartridges for different materials (herbs, oils, and ejuice). The herb cartridge works fantastically with old-style hash as long as you crumble it. A Cera with both an oil cart and an herb cart costs ~$400
+				- My main concern is that I've read that the Cera gets too hot and is almost unusable. I've also read that the Cera's shape makes it rollable/breakable, the switch placement is awkward, the LL cartridge doesn't work well, and it's overpriced for what it does.
+				- http://vaporpedia.com/wiki/ThermoVape_Cera
+				- the Cera Loose Leaf cartridge is fantastic for vaping solid hash
+			- Pax doesnt work with concentrates
+		- And trust me I am not the only one who says this. Just about every single forum that you go on from FuckCombustion to GrassCity all speak on how ineffective vape pens are at actually vaporizing.
+		- - portable vapes are different from vape pens
+		- If your in the lower price range, do yourself a favor and buy a MFLB (magic flight launch box) which is the portable vape I personally use and still think it's one of the best one's if your going portable and it's only like $120 for the whole kit. If your not going portable, then you have many options as far as stand alone vapes go which I will not get into here.
+		- The only other portable vaporizer that I like but is a little pricey at $250 is my PAX PLOOM which is prob my favorite one but at double the price. If your new to the vape scene or just want something that doesn't cost alot and works awesome, you cannot go wrong with the magic flight launch box. I can promise you that.
+		- http://www.vaporpedia.com/wiki/Magic-Flight_Launch_Box](http://www.vaporpedia.com/wiki/Magic-Flight_Launch_Box) [http://www.magic-flight.com/launch-box.php
+		- - the best portable vape, though requires some learning
+		- - doesnt work with hash though, itll gunk up the sieve?
+		- AtmosRaw is shit, it combusts
+		- https://www.stickyguide.com/forums/388
+		- http://forum.grasscity.com/toking-tools-qa/1072586-atmos-raw.html
+		- If it doesn't combustion your herb (which is does like 95% of the time since your herb sits directly on top of the heating coil) you get a nasty, harsh hit that comes out as if you packed a straight up glass pipe and hit it, smell and all. So your paying for a bowl that doesn't require a lighter but makes your herb taste like crap, burns up the inside every time and there is nothing vapor related about it.
+		- RE: The Cool Shit for Men Thread
+			- The Pax Vaporizer by Ploom, my new favorite toy. Perfect for travel, discreet enough to sneak into concerts, parks and the like, and a great excuse to have a girl come to back my place at the end of the night.
+			- A little pricey at $250 (last time I checked), but worth every penny. Especially when you consider:
+			- 1) How much a vape saves you on material (because you're not burning most of it off in the smoking process). This fact alone essentially pays for the vape given enough use, regardless of which model you go with, as you'll end up using half the herb you'd normally need.
+			- 2) The health benefits of not inhaling combustibles and carcinogens. Exactly what you end up inhaling depends, on course, on what you're putting in the bowl, but generally you'll get just that active ingredient along with some water vapor. Waaaaaaay better than tar and smoke particles.
+			- 3) How much fun it is to use. This thing is like the iPhone of vaporizers. It always gets oohs and ahs, even with stoner girls who have tried vapes before. There's no buttons or knobs, you just turn it on by popping open the mouthpiece, then pushing it back down when you're finished. The one light on the front changes color depending on whether it's heating, ready to go, charged, dying, etc.
+			- It's especially handy when you're trying to be discreet. While the vapor will certainly retain a distinct odor, it won't stick to your face/hands/clothes like smoke will. And if you exhale into a sploof (an empty toilet paper roll stuffed with dryer sheets) there's absolutely no scent at all.
+		- Pax
+		- The Pax is unlike any of the other devices we tested, both in design and appearance. It has a very cool, space-age look – more like an iPod than a pen. Plus it has no tank; instead, it uses an “oven” chamber with a magnetic lid that’s super-easy to open and close, and a steel screen that can be packed just like a regular bowl. The downside to the magnetic lid is that it isn’t airtight, so concentrates can easily leak out through the seam. It also features a retractable mouthpiece that doubles as the power switch; it’s a bit tricky to master at first, but incredibly stealthy. The Pax has three heat settings, which can be adjusted with a button underneath the mouthpiece, and you can check the battery life just by shaking it. The manufacturer, Ploom (a company based in San Francisco), says the Pax has been extensively lab-tested and is consistent with FDA guidelines. As the highest-priced unit of all the ones we rated, it loses points for affordability, but overall, it’s a sleek, solid device that delivers smooth, stealthy hits. We believe it’s worth the cash (assuming you have it). Comes in black, blue, or purple.
+		- Materials: Anodized aluminum casing; laser-welded, surgical-grade, stainless-steel vapor path and components; highest-quality food-safe plastic
+		- Heating: Ceramic; three settings (low 370°F, medium 390°F, high 410°F)
+		- For use with: Flowers, concentrates
+		- Kit includes: Unit; pop-out mouthpiece; charging cord and stand
+		- Website: http://www.vapeworld.com/pax-vaporizer-by-ploom
+		- Price: $249.99
+		- Rating: 4
+	- Nutmeg
+	    collapsed:: true
+		- Nutmeg
+		- EFFECTS OF NUTMEG
+		- Physiological effects include dry mouth, nausea, tachycardia, cutaneous flushing, paresthesia, hypotension, euphoria, detachment, CNS excitation, hallucinations, and dyspnea. Nutmeg does not cause any obvious effect on pupil size.
+		- Nutmeg is perhaps best described as a deliriant. In low doses nutmeg inebriation shares characteristics of the combination of alcohol and marijuana. In higher doses the effects are more similar to those of the tropane alkaloids, causing confusion, disorientation, and hallucinations. The effects of nutmeg come on and dissipate in waves. One moment there may be a feeling of inebriation, while the next moment the feeling has passed. As the effects subside, the veil between ordinary and non-ordinary reality remains thin, allowing the user some control to switch back and forth between states of consciousness.
+		- One reason why the effects of nutmeg remain mysterious to so many is that nutmeg inebriation follows a unique time-line. This is also the cause of much animosity towards nutmeg. People approach nutmeg expecting effects to come on within an hour as they do with traditional psychedelics like psilocybin-containing mushrooms or LSD. When it does not, people--believing they have not taken enough--will increase their dose and inadvertently become much more inebriated than planned. To best describe the effects of nutmeg inebriation, and to avoid mishaps, I have broken them down into stages and summarized the effects that one might experience during each phase of inebriation.
+		- THRESHOLD STAGE (hours 1-4): The major effects of nutmeg generally do not take effect until the fourth hour after ingestion. However, nutmeg produces subtle effects within the first hour, and the effects rise in waves over the next three hours until inebriation takes hold. These effects are often written off as placebo due to their mild nature, but the changes are noticeably distinct. Generally these threshold effects are experienced as a combination of feeling energetic and yet markedly relaxed at the same time. One may perceive changes in pressure in the head, changes which are usually interpreted as either light-headedness or the beginnings of a headache. The effects experienced in this stage are otherwise similar to those caused by a pint or two of good beer, depending on dosage.
+		- INITIAL INEBRIATION (hours 4-8): The truly inebriating properties of nutmeg generally take hold within the fourth or fifth hour following consumption. By this time cotton mouth has set in and the eyes have become bloodshot. The inebriation takes on a strong alcohol/marijuana-like buzz, which continues to rise in waves, and concentration becomes difficult. The senses become enhanced and hilarity tends to set in. This is followed by the onset of closed-eye visuals, time distortion, and the beginnings of slurred speech. Reality may take on a dream-like nature during this stage.
+		- PEAK INEBRIATION (hours 8-12): The peak generally sets in around the eighth or ninth hour following ingestion and usually continues for three or four hours. At this point the user may experience auditory hallucinations, closed-eye visuals and possibly mild open-eye visuals, including walls breathing and disturbances in the peripheral vision. The user's speech may become slurred and he or she may experience loss of coordination similar to drunkenness.
+		- END OF PEAK (hours 13-18): Around the thirteenth hour it usually becomes apparent that the peak is over and the user might feel a slight letting up in the effects. The effects decrease slowly, and usually do so in waves, much like the onset.
+		- RESIDUAL INEBRIATION (hours 19-25): By hour nineteen the main inebriating effects of nutmeg have generally worn off. The user will probably still feel moderately stoned for the next seven or eight hours. Some report feeling weak and tired by this point in the trip. Those who sleep during this stage may find their dreams to be exceptionally vivid and easy to recall upon waking. Hangover effects may set in for those who forget to remain hydrated.
+		- FINAL STAGE-BASELINE (hours 26-32): By hour thirty-two most users will be more or less back to baseline. The user will likely continue to feel relaxed, perhaps slightly stoned, and may continue to experience difficulty concentrating for another day or two.
+		- DOSAGE
+		- The potency of nutmeg can vary significantly from sample to sample; one should be aware of how potent one's material is before taking a large dose. Nutmeg from the East Indies is said to be more potent than that produced in the West Indies, and freshly ground nutmeg is reputed to be more potent than pre-ground. Nutmeg is not very conducive to adjustment of dose since onset may take up to six hours, making familiarity with potency quite important.
+		- The following information on dosage is based on my own experiences and on an analysis of 176 experience reports posted on-line at Erowid.org.
+		- THRESHOLD (3-5 grams or 1-1.5 tsp) A threshold dose of nutmeg is marked by euphoria, relaxation, mood elevation, hilarity and enhancement of the senses. Baseline is around hour eighteen. Some people will not experience effects at this level.
+		- LOW--MODERATE (6-10 grams or 1.5-3 tsp) A low-moderate dose of nutmeg will produce a more distinct effect than a threshold dose, and may cause visual distortions, closed-eye visuals, and auditory hallucinations. Short-term memory may become impaired and speech may become slightly slurred during the peak of a low-moderate dose.
+		- MODERATE (11-15 grams or 1-1.5 Tbsp) A moderate dose of nutmeg can cause slurred speech, disorientation, and loss of coordination. Previously stated effects increase and the user may experience mild visual phenomenon.
+		- MODERATE-HIGH (16-20 grams or 1.5-2 Tbsp) A moderate-high dose may produce a waking dream-like state. One individual sought emergency room services after ingesting 15-20 grams of nutmeg. The user reported experiencing trouble breathing, blackouts, delusions, and panic (Marquis 2006).
+		- HIGH (20-25 grams or 2-2.5 Tbsp) A high dose may increase the perception of being in a dream world. Users may begin experiencing stomach pain.
+		- NOT RECOMMENDED (25+ grams or 2.5+ Tbsp) Doses this high usually will not increase the psychoactive effects of nutmeg, but will likely increase the length of the trip and thus will take longer to recover from. Physical discomforts such as stomach pain, abnormally rapid heartbeat, nausea, and dizziness tend to increase. Vomiting seldom occurs. User may experience trouble breathing or trouble urinating. Users may also become delusional. Out of sixty-six individuals who reported taking more than 25 grams of nutmeg, 17% reported having a difficult experience and 45% of these sought emergency room care. The average dose for those reporting negative effects was between 29 and 30 grams, though the median dose was only 25 grams. The average dose for those seeking ER care was 47.5 grams, while the median dose was 52.5 grams. With the variability in potency of nutmeg, some samples might require a high dose to produce a moderate effect, but one should be extremely familiar with the potency of his or her material before taking a high or not-recommended dose.
+		- PREPARATION
+		- The easiest way to take nutmeg is to grind whole nutmegs and add them to juice. Freshly ground nutmeg is the best, because powdered nutmeg soon loses the oils that give it its distinct flavor and unique properties. I find the flavor goes with orange juice quite well--one just has to accept that the juice will be thick, if not chunky. A good way to test the potency of nutmeg is to insert a darning needle (or similar device) one centimeter into the flesh of the nut; if a drop of oil bubbles up after pulling the needle out then the nutmeg is good.
+		- Karlos Fandango reports on Erowid.org that the active principle can be extracted by boiling nutmeg and collecting the waxy film that collects on top of the pot as the water cools (Fandango 2001). What Fandango has described is a way of extracting the fixed oil of nutmeg, otherwise known as nutmeg butter. Nutmeg butter has limited medicinal or cosmetic use, and does not contain the suspected active components of nutmeg, which are primarily myristicin, elemicin, and safrole (while myristicin alone has been shown to be psychoactive, it does not appear to completely replicate the inebriation caused by nutmeg). Nutmeg butter does contain trimyristin, which may have slight sedative effects. However, my attempts to repeat Fandango's recipe produced no sedation nor any other psychoactive effects.
+		- Another preparation floating around the Internet is a recipe for "space paste" (Me 2001). The recipe is as follows, where one "part" equals a tablespoon.
+		- 4 parts nutmeg (ground from whole nutmeg)
+		- 4 parts almonds (soak overnight and rinse)
+		- 4 parts raw pistachios
+		- 2 parts cinnamon
+		- 1 part cumin
+		- 1 part tarragon
+		- 1 part oregano
+		- 1 part basil
+		- 1 part turmeric
+		- 1/2 part cayenne pepper
+		- 1/2 part black pepper
+		- maple syrup (to taste)
+		- One Internet poster, identifying himself as "Me," compared eating two tablespoons of space paste to eating marijuana brownies and reported that this dose produced mild hallucinations (Me 2001). Two tablespoons of paste would contain less than one teaspoon of nutmeg--a threshold dose at best. However, a quick search of the Internet demonstrated that "Me" was not the only individual to have success with this recipe. The following question was submitted to a medical web site:
+			- Mother brings 14 y.o. female to emergency room. Initial exam is exceptional for elevated respiration and BP, nausea, moderate perspiration, and child complaining of colorful hallucinations. A typical LSD case, or maybe an exotic hallucinogen? Nope. Kids made a concoction out of the following ingredients: Nutmeg, almonds, raw pistachios, cinnamon, cumin, tarragon, oregano, basil, turmeric, cayenne pepper, black pepper, and Maple Syrup, mixed into a vanilla milkshake. Nice coating for pork chops, but is there anything here that would explain the patient's condition? -- Houston, TX (Houston 2006).
+		- The questioner was advised that nutmeg was the likely culprit. However, given the low levels of nutmeg, other ingredients likely play a synergistic role in the inebriating effect. The author, "Me," declares that the recipe will not work unless all ingredients are included. Black pepper also contains high levels of myristicin, and the Winter 2003 issue of The Entheogen Review commented on how the chemical piperine from black pepper inhibits the metabolism of some drugs/chemicals, leading to an increase in their effects [TER 12(4): 134]. Capsaicin, a chemical found in cayenne pepper, is also a mild inhibitor of cytochrome P450 2E1, which is a mixed-function oxidase involved in metabolism that mediates some drug interactions. It could be that one or both of these peppers is the reason why lower doses of nutmeg seem to have stronger effects when taken via this preparation.
+		- While few inebriating plant preparations are palatable for the average person, there are some low-dose nutmeg preparations useful as aphrodisiacs or mood-elevators that are quite agreeable. Add 1/4 to 1/2 tsp of nutmeg to a cup of hot chocolate and let it simmer until the surface of the drink becomes oily. This makes for a spicy drink that helps to allay anxiety and imbues confidence and a positive outlook.
+		- Christian Rätsch and Claudia Müller-Ebeling (2006) offer the following recipe for "Cookies for Preventing Sadness" in their book Pagan Christmas: The Plants, Spirits, and Rituals at the Origins of Yuletide. The recipe is slightly modified for purposes of American baking measurements.
+		- 2 Tbsp ground nutmeg
+		- 2 Tbsp ground cinnamon
+		- 1.5 tsp ground cloves
+		- 3 cups flour
+		- 3/4 cup sugar
+		- 2 sticks of butter
+		- 2 eggs
+		- pinch salt
+		- 3/4 cup chopped almonds
+		- Mix ingredients and bake cookies at 350°F for five to ten minutes. The cookies are sweet, spicy, and they lift the spirits. Perfect for the holidays.
+		- PHARMACOLOGY & TOXICITY
+		- Nutmeg consists of 45-60% cellulose and solid matter, 24-40% fixed oils and 5-15% volatile oils. The fixed oil (or "butter") of nutmeg is an orange-colored waxy substance. The butter contains 70-85% trimyristin, which has been shown to have a sedative effect on chickens, and it also contains myristic acid. The real power of nutmeg, however, is contained within the volatile (or essential) oil.
+		- The volatile oil of nutmeg is a pale-yellow, nearly colorless liquid, with a distinct smell of nutmeg. The volatile oil contains 80% monoterpenes and 5% monoterpene alcohols with the remainder made up by aromatic ethers and miscellaneous compounds (Forrest & Heacock 1972). The aromatic ether fraction contains myristicin, elemicin, and safrole, along with other alkyl-benzene derivatives, such as estragole, eugenol, iso-elemicin, iso-eugenol, methyl-eugenol, methyl-isoeugenol, and methoxy-eugenol (Kalbhen 1971; Forrest & Heacock 1972; Shulgin 1967; Shulgin et al. 1967; Duke 2008), and it is believed to be responsible for the psychoactive effects of nutmeg.
+		- It has been speculated that the psychoactivity of myristicin, elemicin, and safrole is due to their metabolizing into known psychoactive compounds. Alexander Shulgin proposed in 1967 that the compounds would metabolize in the body as follows: myristicin to MMDA; elemicin to TMA; and safrole into MDA (Shulgin 1967). However, studies that have tried to confirm this process were unable to detect amphetamine-type compounds in the urine of rats that were administered myristicin and safrole (Forrest & Heacock 1972, citing Oswald et al. 1971).
+		- The psychoactive effects of nutmeg are still not well understood, and only myristicin has been tested on human subjects.
+		- Myristicin, or methoxysafrole, is a benzodioxole with slight MAO-inhibiting properties. Myristicin is a colorless oil that generally does not crystallize, even at extremely low temperatures (i.e., -30°C). Myristicin is mostly stable upon storage, but still subject to gradual changes in composition. Myristicin is insoluble in water and only slightly soluble in ethanol. The best solvents for extracting myristicin are benzene and diethyl ether.
+		- Myristicin generally makes up 4-8% of nutmeg's volatile oil and has been found in concentrations as high as 1.3% of nutmeg by weight (C.E.F.S. 2005). The myristicin content in mace is generally double that of nutmeg, making it potentially more potent than nutmeg.
+		- Myristicin is active at the 5-HT receptors in the brain, and has been shown to have hypotensive, sedative, anti-depressant, anesthetic, hallucinogenic, and serotonergic properties (Sangalli & Chiang 2001). Large doses generally cause hyper-excitability, followed by CNS depression. Myristicin is fairly unique as a hallucinogen (if it may be classified as such), because it lacks a nitrogen atom. It is also rare for a compound lacking a nitrogen group to show activity at the brain's 5-HT receptors.
+		- Myristicin's psychoactive properties were confirmed by a study on ten human participants in 1961 (Hallstrom & Thuvander 1997, citing Truitt et al. 1961). Each of the participants was administered 400 mg of myristicin, or approximately 6-7 mg/kg by body weight. Only four of the participants experienced psychoactive effects, including euphoria, anxiety, and trouble concentrating
+		- That only four participants experienced psychoactive effects at this level suggests that 400 mg or (6-7 mg/kg) is a threshold effective dose for nearly half of the population. Time of onset was between two and three hours after ingestion. Interestingly, 400 mg of myristicin is around twice the amount of myristicin that would be present in a moderate-high psychoactive dose of nutmeg, suggesting that myristicin is not the sole psychoactive agent in nutmeg.
+		- Myristicin is found elsewhere in nature, notably in black pepper, carrots, celery, dill weed, parsley, and parsnip. Myristicin is almost completely processed in the body within 48 hours of ingestion. This long processing period may help to explain the extraordinary length of nutmeg's effect.
+		- Because of myristicin's close relationship with safrole, it has long been considered a "suspected carcinogen." However, scientific data is lacking on this point. Several studies indicate possible carcinogenicity, but the results have been statistically insignificant. Myristicin has shown mild DNA binding properties, an indicator of carcinogenicity, but has not been found to be genotoxic (Hallstrom & Thuvander 1997).
+		- In one study, twelve rats were administered 10 mg/kg of myristicin per day for twenty-six days. After this period, no differences in body weight were discernible from the control group and no abnormalities were detected in the liver or kidneys. The LD-50 (lethal dose for 50% of the population) in rats was shown to be greater than 1000 mg/kg (Hallstrom & Thuvander 1997). For comparison sake, the threshold effective dose in humans stands around 6-7 mg/kg.
+		- Myristicin has also been suspected as a potential hepatotoxin, but the studies available suggest that rather than being hepatotoxic, myristicin may in fact be hepatoprotective (Morita et al. 2003).
+		- One study consisted of injecting mice with LPS (lipopolysaccharide) and d-GaIN (d-galactosamine), both liver toxins, and measuring the changes in levels of ALT (alanine aminotransferase) and AST (aspartate aminotransferase), both enzymes that indicate liver injury. A single oral dose of myristicin at quantities of 50, 100 and 200 mg/kg was shown to inhibit serum elevations of both ALT and AST in the injected mice (Morita et al. 2003). Further, DNA fragmentation generally caused by the liver toxins LPS and d-GaIN was effectively suppressed by a single oral dose of 200 mg/kg of myristicin (Morita et al. 2003).
+		- Several studies on mice suggest that myristicin may reduce the frequency of and inhibit the growth of tumors. One study showed that myristicin significantly reduced tumor formation in the lungs and forestomachs of mice with benzo(a)pyrene-induced carcinogenicity (Hallstrom & Thuvander 1997). Myristicin has also been shown to be an inducer of GST (glutathione S-transferase), a substance that inhibits tumorigenesis. Myristicin was shown to cause a fourfold increase in GST activity in the liver and a threefold increase in the small intestine (C.S.W.G. 1997).
+		- Studies on other animals have been less promising. Cats orally administered 400 mg/kg of myristicin experienced fatty degeneration of the liver while rabbits and guinea pigs administered myristicin subcutaneously experienced both brain and liver lesions (Forrest & Heacock 1972).
+		- Studies on chronic and reproductive toxicity and carcinogenicity of myristicin are still lacking. Further studies on myristicin's hepatoprotective and tumor-inhibiting properties are also needed.
+		- Elemicin, one of the other suspected psychoactive components of nutmeg, is similar to myristicin in that it lacks a nitrogen group and is also active at the brain's 5-HT receptors. Elemicin has displayed anti-depressant, hallucinogenic, anti-histamine, hypotensive and anti-serotonergic properties (Sangalli & Chiang 2000). There is some evidence of DNA binding and genotoxicity with elemicin (C.E.F.S. 2005). Studies on hepatocarcinogenicity have been inconclusive.
+		- Safrole is also suspected of contributing to the psychoactive properties of nutmeg, but there is sparse evidence to support this theory. Safrole makes up 75-80% of oil of sassafras, which has been used medicinally for hundreds of years and has never been reported to be hallucinogenic (Forrest & Heacock 1972). The FDA considers safrole to be carcinogenic--a finding that some herbalists take issue with based on its long history of safe use by various Native American groups (Buhner 1998).
+		- The terpenes are generally not suspected of contributing to the psychoactivity of nutmeg. However, many compounds from the terpenic fraction of nutmeg are structurally similar to known CNS stimulants. Overdoses on some terpene-containing medicines have also been reported to produce similar reactions to those caused by nutmeg (Forrest & Heacock 1972). Whether psychoactive or not, the terpenes may still contribute to the effect of nutmeg by irritating the gastrointestinal tract and thus facilitating absorption of the suspected psychoactive compounds (Kalbhen 1971).
+		- While the toxicity of nutmeg is still in question, there are numerous reports of accidental poisonings and emergency room visits that help provide some extra information. In poisoning cases vitals are taken and organs are checked and monitored for abnormalities. Several case studies merit brief mention. The Journal of Internal Medicine reported on the case of a thirty-two-year-old man who sought emergency room care after ingesting seven grams of ground nutmeg (Sjoholm et al. 1998). The hospital ran tests on the man and found that his blood count, electrolyte levels, calcium and liver enzymes were all within normal ranges. The Journal of Clinical Toxicology also reported on a nutmeg poisoning case involving a thirteen-year-old who had ingested 15-25 grams of nutmeg (Sangalli & Chiang 2000). Tests conducted on the boy showed that electrolyte levels, renal and liver function, urinalysis, hematology, and a pelvic ultrasound all returned without abnormality. Almost all cases of nutmeg poisoning are resolved without note and most emergency room visits are accounted for by accidental poisonings or by panic reactions.
+		- There are two recorded deaths involving nutmeg poisoning. The first case involved an eight-year-old boy who ingested fourteen grams of nutmeg, or the equivalent of 560 mg/kg of myristicin by body weight (Stein et al. 2001). The boy fell into a coma and died twenty-four hours after ingestion. There do not appear to be any other explanations beyond nutmeg poisoning for the boy's death. The second case involved the death of a fifty-five-year-old woman (Stein et al. 2001). The woman was found with toxic, but not fatal, concentrations of flunitrazepam (Rohypnol) in her blood. Blood tests also showed the presence of myristicin, with a speculated dose of between 560 and 840 mg/kg of myristicin by body weight. While the myristicin levels in the two fatal cases are comparable, it is believed that the combination of a high dose of nutmeg and a toxic dose of flunitrazepam was the cause of death. Other instances from emergency rooms and poison control centers report that cases of nutmeg poisoning involving up to eighty grams of nutmeg (or up to 1100 mg/kg of myristicin by body weight) have occurred without the presence of life-threatening symptoms (Stein et al. 2001).
+		- CONCLUSIONS
+		- Nutmeg has been used for thousands of years for multiple purposes. It appears to have a fairly large safety margin for use, although the long-term effects of nutmeg use on the body are not well understood. The biggest known danger from experimentation is dehydration, and the biggest discomfort the resulting hangover. By keeping non-alcoholic/non-caffeinated fluids handy, and drinking often, this hangover (which can otherwise last several days) can likely be avoided.
+		- The most promising aspects of nutmeg seem to be its potential as an anti-depressant and as an aphrodisiac when used in small doses. I have felt improvements in mood and decreases in anxiety with as little as 1/4 tsp in a cup of chocolate, or with one or two cookies from the recipe above. With knowledge of nutmeg's mood-elevating properties going back a thousand years or more, further investigation into the potential of nutmeg as an anti-depressant seems merited.
+		- All in all, nutmeg is a well-rounded little nut. It may be used to brighten your day, to spice up your love life, to flavor your food, to induce vivid dreams, or to just get plain stoned. This seed has been overlooked and misunderstood by many entheophiles, but once one is privy to her secrets she can become a valuable ally.
+		- Notes #
+			- Another secondary source (Shulgin et al. 1967) also citing Truitt et al. 1961, claimed symptoms from 400 mg of myristicin "at least suggestive of psychotropic effects in 6 out of 10 subjects." The original paper by Truitt et al. states that there was a "definite reaction" in each of 4 subjects, and that 2 subjects each had a "questionable reaction."
+		- References #
+			- Buhner, S.H. 1998. Sacred and Herbal Healing Beers: The Secrets of Ancient Fermentation. Brewers Publications.
+			- C.E.F.S. (Committee of Experts on Flavouring Substances) 2005. Active Principles (Constituents of Toxicological Concern) Contained in Natural Sources of Flavourings. Council of Europe. On-line at www.coe.int.
+			- C.S.W.G. (Chemical Selection Working Group) 1997. Summary of Data for Chemical Selection: Myristicin CAS NO. 607-91-0.
+			- Duke, J. 2008. "Chemicals in: Myristica fragrans Houtt. (Myristicaceae) Mace, Muskatnussbaum (Ger.), Nutmeg, nogal moscado (Sp.), nuez moscada (Sp.)," Dr. Duke's Phytochemical and Ethnobotanical Databases. Posted at www.ars-grin.gov/duke/, accessed 2/24/08.
+			- Fandango, K. 2001. "Recreational Nutmeg Experiment," Erowid ID: 3570. Posted at www.erowid.org/experiences/subs/exp_Nutmeg.shtml, accessed 11/3/07.
+			- Forrest, J.E. and R.A. Heacock 1972. "Nutmeg and Mace, The Psychotropic Spices from Myristica fragrans," Lloydia 35(4): 440-449.
+			- Haley, A. and M. X 1965. The Autobiography of Malcolm X. Grove Press.
+			- Hallstrom, H. and A. Thuvander 1997. "Toxicological Evaluation of Myristicin," Natural Toxins 5: 186-192.
+			- Houston, TX 2006. "Question and Answer Session," Traditional and Herbal Remedies: Toxicology and Laboratory Concerns. Posted at www.aacc.org/events/expert_access/2006/toxlab/Pages/default.aspx, accessed 11/3/07.
+			- Kalbhen, D.A. 1971. "Nutmeg as a Narcotic," Angewandte Chemie International Edition 10(6): 370-374.
+			- Krieg, M.B. 1964. Green Medicine. Rand McNally & Co.
+			- Me 2001. "Exactly Like Pot," Erowid. Posted at www.erowid.org/experiences/exp.php?ID=1619, accessed 11/3/07.
+			- Morita, T. et al. 2003. "Hepatoprotective Effect of Myristicin from Nutmeg (Myristica fragrans) on Lipopolysaccharide/d-Galactosamine-Induced Liver Injury," Journal of Agricultural and Food Chemistry 51(6): 1560-1565.
+			- Oswald, E.O. et al. 1971. "Urinary Excretion of Tertiary Amino Methoxy Methylene-dioxy Propio-phenones as Metabolites of Myristicin in the Rat and Guinea Pig," Biochimica et Biophysica Acta, 244: 322-328.
+			- Rätsch, C. 2005. The Encyclopedia of Psychoactive Plants: Ethnopharmacology and Its Applications. Park Street Press.
+			- Rätsch, C. and C. Müller-Ebeling 2006. Pagan Christmas: The Plants, Spirits, and Rituals at the Origins of Yuletide. Inner Traditions.
+			- Rudgley, R. 1998. The Encyclopedia of Psychoactive Substances. Thomas Dunne Books/St. Martin's Griffin.
+			- Salmon, W. 1693. Selapsium The Compleat English Physician: Or, The Druggist's Shop Opened. Matthew Gilliflower/George Sawbridge.
+			- Sangalli, B.C. and W. Chiang 2000. "Toxicology of Nutmeg Abuse," Clinical Toxicology 38(6): 671-678.
+			- Schultes, R.E. and A. Hofmann 1992. Plants of the Gods: Their Sacred, Healing and Hallucinogenic Powers. Healing Arts Press.
+			- Shulgin, A.T. 1967. "The Separation and Identification of the Components of the Aromatic Ether Fraction of Essential Oils by Gas-Liquid Chromatography," Journal of Chromatography 30: 54-61.
+			- Shulgin, A. et al. 1967. "The Chemistry and Psychopharmacology of Nutmeg and of Several Related Phenylisoproplamines," in D.H. Efron (ed.) Ethnopharmacologic Search for Psychoactive Drugs, pp. 202-214.
+			- Sjoholm, A. et al. 1998. "Acute Nutmeg Intoxication," Journal of Internal Medicine 243: 329-331.
+			- Stein, U. et al. 2001. "Nutmeg (Myristicin) Poisoning Report on a Fatal Case and a Series of Cases Recorded by a Poison Information Centre," Forensic Science International 118(1): 87-90.
+			- Tajuddin et al. 2003. "Aphrodisiac Activity of 50% Ethanolic Extracts of Myristica fragrans (Nutmeg) and Syzygium aromaticum (Clove) in Male Mice: a comparative study," BMC Complementary Alternative Medicine 3: 6.
+			- Tajuddin et al. 2005. " An Experimental Study of Sexual Function Improving Effect of Myristica fragrans Houtt. (Nutmeg)," BMC Complementary Alternative Medicine 5: 16.
+			- Truitt, Jr., E.B. et al. 1961. "The Pharmacology of Myristicin, A Contribution to the Psychopharmacology of Nutmeg," Journal of Neuropsych. 2(4): 205-210. [Note: Hallstrom and Thuvander (1997) cite the year of this paper as 1960; while we have not seen a copy of the paper, multiple other references including one in another article by E.B. Truitt give the year as 1961.]
+			- Weil, A.T. 1967. "Nutmeg as a Psychoactive Drug," in D.H. Efron (ed.) Ethnopharmacologic Search for Psychoactive Drugs, pp. 188-201.
+			- Wilson, B. 1999 (Jan. 29). "Old Spice," New Statesman 128.
+		- Links #
+			- www.entheogenreview.com
+		- http://www.drugs-forum.com/forum/showwiki.php?title=Nutmeg
+		- Using Nutmeg
+		- [hide] - [top]Dosage and Administration
+		- FormAdministration MethodDosage RangeTime Until Noticeable EffectsDuration of Noticeable EffectsNotes
+		- Fresh Whole KernelOral – eaten1 – 4 kernels1 – 4hrs12 – 60hrsChewed or gnawed.
+		- Fresh Powdered KernelOral – eaten5 – 28g1 – 4hrs12 – 60hrsThe fresher the powder, the less the principle psychedelic essential oils will have likely degraded.
+		- Fresh Powdered KernelOral – imbibed in a tea or tincture5 – 28g15 – 30min Reputedly, drinking nutmeg powder in these forms have the most rapid onset of effects over any other method of administration
+		- Fresh Powdered KernelInsufflated 30min – 1hr It has only been known to have been insufflated mixed with tobacco 'snuff', the tobacco may have an influencing factor on pharmacological effects.
+		- Essential OilOral – swallowed in a capsule1 – 5ml Essential oils are reportedly the least toxic way of experiencing nutmeg intoxication
+		- Read more: http://www.drugs-forum.com/forum/showwiki.php?title=Nutmeg#ixzz2pzXZ4yaq
+	- Passion Flower (Passiflora incarnata) – Widely used as a sedative that has calmi
+	    collapsed:: true
+		- Passion Flower (Passiflora incarnata) – Widely used as a sedative that has calming effects on the nervous system and acts as asleep aid. One harmala alkaloid present in this herb in the form of harmine is thought to induce meditative and euphoric effects.[13]
+	- http://en.wikipedia.org/wiki/Psychedelic_experience#Levels
+	- Psychedelics
+	    collapsed:: true
+		- Psychedelics
+		- To Try:
+		- - dxm at home
+		- - Friends: ayahuasca from bbb? Dex? mushrooms?
+		- *ginger for anti-nausea or dramamine
+		- Balkan clary / salvia nemorosa.
+		- Theobromine (active constituent in ((641a4aa2-ad6d-42eb-9527-5493b6416551)) - 400mg-500mg range) - caffeine-like
+		  id:: 63ff8093-6c11-4cc3-9ba1-a1dc2a09a520
+		- DXM - Users report that the euphoric dosage for caffeine and DXM in combination is about 150mg-250mg of caffeine and 200mg-400mg of DXM. Never take within 6 weeks of hayfever tabs or together with yohimbine.
+		- mescaline 150-200mg. Dex is a dissociative, peaks after 1 or 2 hrs and lasts up to 6-10. Can do with weed, not MDMA or alcohol
+		- - check ingredients e.g. no antihistamines, Chlorpheniramine Maleate, paracetamol, acetaminophen, aspirin, guaifenesin, phenylphrine, psueoephedrine or sorbitol
+		- http://www.drugs-forum.com/forum/showthread.php?t=180961
+		- Tactile hallucinations,
+		- Method: Hold nose and down it, still holding then back with water and use toothpaste/chewing gum then let go.
+		- Nutmeg - LSD/cannabis like trip. 2/3 nutmegs or 15g grated/powdered nutmeg or 2 tablespoon to start off in a shake (no milk) with blended ice. Or bomb it. Or shoot it. or try essential oil few ml. Drink plenty of water throughout, red eyes.
+		- Heavy hash buzz, then hallucinations start within first few up to 8 hours til 24 hours, body effects up to 36 hours later (need to have a few days of unproductivity)
+		- salvia nemorosa - 10 leaves chew the juices (weed like)
+		- kratom - opiate-like
+		- LSD-LIKE http://www.botanicalspirit.com
+		- Morning Glory - 5-10g thoroughly chewed or grind and soak in water for 1/2 hour, strain and drink.
+		- Lasting about 6-8 hours.
+		- Hawaiian Baby Woodrose Seeds - Light (3-6), Medium (5-8), Strong (7-12), Heavy (12+) i.e. 5-10g too. Grind to a powder and ingest with shell OR chew them ridiculously then hold sublingually. Scrape off skin so no nausea.
+		- 2 hours to peak, lasts 6-8 hours, after effects may last up to 14 hours
+		- http://www.drugs-forum.com/forum/showthread.php?t=15207
+		- http://www.drugs-forum.com/forum/showthread.php?t=19326
+		- Anadenanthera colubrina, amanita muscaria, san pedro cactus
+		- 1 drop of Hungarian parsley seed
+		- 1 drop of blue German chamomile
+		- 2 drops of clove leaf
+		- 3 drops of cinnamon bark
+		- 3 drops of valerian root
+		- 3 drops of nutmeg
+		- 3 drops of elemi
+		- 5 drops of basil
+		- 3 drops of eucalyptus
+		- http://www.alternativemind.co.uk
+		- http://www.bouncingbearbotanicals.com
+		- CAN'T DO PSYCHEDELICS AT HOME - RISK OF NOISE/ACCIDENTS
+		- STUFF TO DO WHILST TRIPPING:
+		- Watch cartoons (fun, visual and light)
+		- Listen to trippy music/videos + watch Closed Eye Visualisations
+		- Write out thoughts, subconscious
+		- Record thoughts via mic
+		- Binaural beats and visualisations
+		- If you want a very rough model for the threshold experience, get a video camera and a television, and feed the output of the camera into the TV. Point the video camera at the TV, turn on the date display on the camera (to provide some sort of "sensory input"), and turn the brightness down on the TV. Adjust the zoom on the camera to roughly include the entire TV screen. You will notice one or two copies of the date/time digits appearing, but overall the picture still looks like a video of a TV screen inside a screen (or two).
+		- As you increase the brightness on the TV, however, something interesting begins to happen. Eventually, the feedback becomes self-sustaining, and you can get extremely complex, self-reinforcing patterns which take hold and maintain themselves. The entire picture begins to turn into abstract blobs and colors. As you adjust the zoom, you will find a stable point where you can wave your hand in front of the screen and the effects of this "sensory input" will ripple through the system, mutating constantly but never really leaving. This also makes a fascinating trip toy, by the way.
+		- If experienced:
+		- - go for a walk
+		- - hang with friends
+		- - fuck a girl
+	- The effects of multitasking on psychological stress reactivity in recreational users of cannabis and MDMA.
+	    collapsed:: true
+		- Wetherell MAI Athenon K, Grainer d, Brosnan R, Scholev
+		- Hum Psvchopharmacology 2012 doi: 1281
+		- Abstract
+		- BACKGROUND: Cannabis and 3 4-mathylanadioxymathamphatamina (MDMA) usa is associated with psychobiological and neurocognitive deficits.
+		- Assessments of the latter typically include tests of memory and everyday cognitive functioning. However, to data, little attention has been paid to
+		- effects of drug use on psychological stress reactivity. We repot three studies examining the effects of recreational use of cannabis and MDMA on
+		- mood and psychological responses to multitasking using a cognitively demanding laboratory stressor that provides an analogue for everyday
+		- situations involving responses to multiple stimuli.
+		- METHODS: The effects of the multitasking framework on mood and perceived workload ware assessed in cannabis (N=26), '.pungar (N=18) and older
+		- (N=20) MDMA users and compared with non-targat drug controls.
+		- RESULTS: Compared with respective control groups, cannabis users became lass alet and content, and both MDMA groups became less calm
+		- following acute stress. Unexpectedly, the stressor increased ratings of calm in cannabis users. Users also scored higher than their controls with
+		- respect to ratings of resources naadad to complete tha multitasking framework.
+		- CONCLUSIONS: These findings show, for tha first time, that recreational usa of cannabis and MDMA, beyond tha period of intoxication, can
+		- negatively influence psychological responses to a multitasking stressor, and this may have Implications for real-life situations which placa high
+		- demands on cognitive resources
+	- The Psychedelic Future of the Mind: How Entheogens Are Enhancing Cognition, Boosting Intelligence, and Raising Values
+	    collapsed:: true
+		- Explores scientific and medical research on the emerging uses of psychedelics to enrich mind, morals, spirituality, and creativity
+		- • Outlines a future that embraces psychedelics as tools for cognitive development, personal growth, business, and an experience-based religious reformation
+		- • Presents research on the use of psychedelics to enhance problem-solving, increase motivation, boost the immune system, and deepen ethical values
+		- • Includes chapters by Roger N. Walsh, M.D., Ph.D., and Charles Grob, M.D., on their psychedelic research on religious experience and alleviating the fear of death
+		- As psychedelic psychotherapy gains recognition through research at universities and medical establishments such as the Johns Hopkins Medical Institute and Bellevue Hospital, the other beneficial uses of psychedelics are beginning to be recognized and researched as well–from enhancing problem-solving and increasing motivation to boosting the immune system and deepening moral and ethical values.
+		- Exploring the bright future of psychedelics, Thomas B. Roberts, Ph.D., reveals how new uses for entheogens will enrich individuals as well as society as a whole. With contributions from Charles Grob, M.D., and Roger N. Walsh, M.D., Ph.D., the book explains how psychedelics can raise individual and business attitudes away from self-centeredness, improve daily life with strengthened feelings of meaningfulness and spirituality, and help us understand and redesign the human mind, leading to the possibility of a neurosingularity–a time when future brains surpass our current ones. Roberts envisions a future where you will seek psychedelic therapy not only for psychological reasons but also for personal growth, creative problem solving, improved brain function, and heightened spiritual awareness.
+		- Our psychedelic future is on the horizon–a future that harnesses the full potential of mind and spirit–and Thomas Roberts outlines a path to reach it.
+	- Why Psychedelics
+	    collapsed:: true
+		- BENEFITS (+evidence)
+		- MECHANISMS
+		- PROTOCOL
+		- http://psychedelic-information-theory.com/ http://www.psychedelic-library.org/child11.htm
+		- It's more incredible than anything in this world and has helped me permanently reevaluate life, the universe and everything. The experience is quite ineffable and there is no way words can do it any justice. At high enough doses it has the capacity to dissolve the ego so potently that you experience the infinity of the universe while no longer recognizably seeing yourself as a human or a single entity. Your consciousness melts into your surroundings and your identity is temporarily erased. It is the experience of an alien visiting planet earth.
+		- http://www.youtube.com/watch?v=aUfXhToX5b8 (And yes, Richard Feynman did a lot of illicit substances. He's a nobel prize winning quantum physicist who not only contributed a significant amount to science but also liked to put himself in sensory deprivation tanks and trip balls. Problem? :-D )
+		- Since the experience itself is not an induced result but simply the consequence of turning off the brain's filtering mechanisms, the effects can be seen as a more true version of reality. While a regular mind is in linear processing mode, the psychedelic mind is more akin to a quantum computer. It is possible to have several parallel thought streams, and one is endowed with parallel processing.
+		- Now some people claim this is achievable with meditation, but I have not heard of such a reported case in history. It always comes from people who like doing yoga and whatnot but have never done psilocybin. Psilocybin induces a defragmentation of identity, a rebooting of internalized culture and a temporary but effective destruction of the ego. The experience is more 'real' than reality itself, which is confirmed by fMRI scans. Our consciousness is mostly subtractive, in our sober minds we never get the full breadth of reality.
+		- I have experienced the following on psilocybin and piracetam:
+			- Lost identity and became a computer. I no longer knew of my old self.
+			- I experienced the infinity of the cosmos first hand. This is the only way to truly understand numbers such as three hundred billion.
+			- Experienced what it would be like to actually see 4 dimensional shapes.
+			- All trees turned completely fractal.
+			- Everything became decidedly geometric.
+			- Understood at an intuitive level what constitutes the building blocks of personality.
+			- Extreme time dilation.
+			- Breaks in causality and spontaneous mental teleportation between events.
+			- Incredible analytic ability in terms of reading body language and emotive states of others. I imagine historically this would be so convincing that people might think the shaman is 'telepathic'.
+			- A completely critical worldview that is not encumbered by personal norms, cultural norms or any preconceptions or dogmas that have been drilled into my mind over a lifetime.
+		- I really suggest you read the entire book of Psychedelic Information Theory. For more reports you could check out erowid, but those people are taking it for recreational purposes. I don't think this is useful recreationally whatsoever. It is a potent debugging tool for the computer of our minds, use it wisely.
+		- Note that it is necessary to hum or sing in order to control the experience, or your thoughts will decohere. This is all explained in scientific detail in the book I have linked.
+		- I have had quite remarkable results in terms of demolishing writer's block, inducing creativity and expanding my horizons. I feel like instead of just a depth-wise approach to intellect, this is the only true solution for a broader perspective.
+		- I've used 5-10mg psilacetin with 1-5g piracetam maximum once per week. This combined with meditative practice and the method of loci easily facilitates the creation of mental palaces and mnemonic encoding. It does away with the linearity of learning and creates a childlike associative and receptive intelligence state. I've found that learning languages on this combination is equally easy as it was when I was a child. It dissolves any pre-existing hurdles or barriers that your personality or experience are creating and allows unrestrained cognition to be directed.
+		- (If you are really serious about getting the most out of this, noise cancelling earmuffs and a blindfold can do wonders for your imagination. Richard Feynman used deprivation tanks and ketamine to accomplish roughly the same thing, but my method is not only a bit more DIY and user accessible but also safer on a pharmacological basis
+		- After significant amounts of research with several friends and longecity members, and also based on the John Hopkin's University studies the optimal doses of psilacetin (4-aco-dmt) would be something like this:
+		- Nootropic Dose: 0.08 * kg to 0.15 * kg
+		- Transcendent Dose: 0.25 * kg to 0.35 * kg
+		- Ego Death: 0.4 to 0.7 * kg
+		- The individual dosages depend on tolerance, metabolism and uptake. I recommend people start with the nootropic dose and then after becoming experienced with transcendent doses, they can try ego death. I think a single ego death experience is absolutely adequate and nootropic doses are far more useful in the long run.
+		- You can check vendor legitimacy on "safeorscam.com".
+		- As for supplementation during the trips:
+			- 1 tablespoon of cacao nibs (improves mood and focus)
+			- 1-2g of piracetam (instead of muddled visuals and thoughts, things become geometric and more readily understood)
+- Assorted
+    collapsed:: true
+	- Expensive health treatments
+	    collapsed:: true
+		- like stem cell therapies, redox signalling molecules, GCmaf, cerebrolysin
+		- TSOs are similar to HDCs they are parasites that cure autoimmune issues,
+			- it costs a lot to get enough to cure them, but slowly you will cure yourself
+		- fecal transplants
+		- https://i.4cdn.org/biz/1516379789415s.jpg
+	- ((649b1261-209d-4e56-98f1-588eb89b88ef))
+	  collapsed:: true
+		-
+	- Veganism
+	    collapsed:: true
+		- "Herbivores" animals eating meat
+			- https://youtu.be/TdTXaFtDqZE
+	- Physical activity assessment – Indirect calorimetry

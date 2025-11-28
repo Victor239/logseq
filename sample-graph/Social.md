@@ -1,0 +1,1337 @@
+- [[Game]]
+- [[Machiavellianism]]
+- ((62e910b9-b38a-410c-a023-f7c99639be8f))
+- [[My-Relationships]]
+- [[On-Friendships]]
+- Cultural Differences
+  collapsed:: true
+	- [Ask vs Guess](https://news.ycombinator.com/item?id=37176703)
+		- https://news.ycombinator.com/item?id=37176703
+- [Learning Resources]
+	- EVERNOTE INBOX - SOCIAL
+	  id:: 62d057b3-50df-45c4-9ff3-8bde73ad2c76
+	  collapsed:: true
+		- Markdown notes
+			- My game routines
+			  collapsed:: true
+				- Aliens exist - story of how I came to see three floating red lights above some random field in the way to reading
+			- Non alcoholic dates
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-61253.html
+			- Podcast of western women
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-61800.html
+			- Polygamy
+			  collapsed:: true
+				- Schopenhauer on polygamy: There can be no argument about polygamy: it is a fact to be met with everywhere and the only question is how to regulate it. For who is really a monogamist? We all live in polygamy, at least for a time and usually for good. Since every man needs many women, there could be nothing more just than that he should be free, indeed obliged, to support many women. This would also mean the restoration of woman to her rightful and natural position, the subordinate one, and the abolition from the world of the lady, with her ridiculous claims to respect and veneration; there would then be only women, and no longer unhappy women, of which Europe is at present full.
+				- "They are sexus sequior, the inferior second sex in every respect: one should be indulgent toward their weaknesses, but to pay them honour is ridiculous beyond measure and demeans us even in their eyes."
+			- 3 purposes of women
+			  collapsed:: true
+				- purpose of women is:
+				- 1) Making babies
+				- 2) Raising children
+				- 3) Homemaking
+				- [source] http://www.rooshv.com/the-3-purposes-of-women
+			- Female psychology
+			  collapsed:: true
+				- http://www.returnofkings.com/78898/9-secrets-about-female-nature-told-by-a-hot-girl-dying-of-cancer
+			- reinforcement training on women
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-62280-post-1551252.html#pid1551252
+				- [quote='Sensei Creation' pid='1551252' dateline='1492329959']
+				- So I ran into peculiar situation the other day and it's been sitting on my mind since so I thought I'd ask other forum members how they would have dealt with this as I'm sure I'm not the only one this has happened to.
+				- So I was out walking with my main the other day and I was doing my own thing and not really engaging in conversation with her.
+				- I suddenly look at her to say something and I see that she's looking straight ahead at a random guy giving him an IOI. It wasn't a major one like licking her lips or rustling her hair but I know an IOI when I see one.
+				- It was over in about a second or so and I made as if nothing happened and continued what I was about to say but I was curious as to whether that was correct ?
+				- I suppose you could make an argument for calling her out on it but I don't want to seem like I'm insecure, however this is my main and not some random side piece I'm just fucking so i do feel somewhat of a way about her doing that.
+				- How would guys approach your main girl sneaking in an IOI to another guy in public ?
+				- [/quote]
+				- [quote='RawGod' pid='1551275' dateline='1492334361']
+				- If she's not under consideration as mother of your children, shrug, take note, fuck her well, and game other girls. If she is, then put it down as a yellow flag and watch out for other signs.
+				- [/quote]
+				- [quote='godzilla' pid='1551287' dateline='1492335976']
+				- I know its hard to believe sometimes, but girls are actually human too, you can't expect them to not stare at another guy for the rest of their lives.
+				- At the time, if she is doing this often in front you, she might be trying to disrespect you but I dont know. And unless this is a girl you are going to marry or have children with, my advice is still the same, ignore it and do a hard long gaze at the next attractive women you walk by.
+				- And making a girl jealous is fine. Why do you think so players have lots of girls around them?
+				- [/quote]
+				- [quote='blck' pid='1551321' dateline='1492342079']
+				- [quote='Sensei Creation' pid='1551252' dateline='1492329959']
+				- So I ran into peculiar situation the other day and it's been sitting on my mind since so I thought I'd ask other forum members how they would have dealt with this as I'm sure I'm not the only one this has happened to.
+				- So I was out walking with my main the other day and I was doing my own thing and not really engaging in conversation with her.
+				- I suddenly look at her to say something and I see that [b]she's looking straight ahead at a random guy giving him an IOI[/b]. It wasn't a major one like licking her lips or rustling her hair but I know an IOI when I see one.
+				- It was over in about a second or so and [b]I made as if nothing happened and continued what I was about to say[/b] but I was curious as to whether that was correct ?
+				- I suppose you could make an argument for [b]calling her out on it but I don't want to seem like I'm insecure[/b], however this is my main and not some random side piece I'm just fucking so i do feel somewhat of a way about her doing that.
+				- How would guys approach your main girl sneaking in an IOI to another guy in public ?
+				- [/quote]
+				- So Let's get the "DROP HER SORRY ASS" out of the way
+				- First thing first: [b]You cannot gouge her eyes out so she might let her sight wandering and imagine what she want[/b]...
+				- That doesn't mean that she'll cheat but something might excite her in a way you don't, as excitement is transferable she could let the pressure out with you later but that's only the surface of the problem.
+				- Right now you only get the tip of the iceberg called "Women twisted Desire" where a third part is introduce (in an imaginary way!) and get you some freaky bedroom action (for more cf. My Secret Garden)
+				- [video=youtube]https://www.youtube.com/watch?v=AnboLhbWLdg[/video]
+				- The thing is now that you caught her, don't be a clueless Tom Cruise (simp) by not reacting on her behavior, calling her out doesn't necessary mean being angry and frustrated about it but it give her the clue that you "Get it, you understand how it works...".
+				- [quote][i]She want’s you to 'get it' on your own, [b]without having to be told how[/b]. [u]That initiative and the experience needed to have had developed it makes you a Man worth competing for[/u]. Women despise a man who needs to be told to be dominant. Overtly relating this to a guy entirely defeats his credibility as a genuinely dominant male. The guy she wants to fuck is dominant because that’s ‘the way he is’ instead of who she had to tell him to be.[/i] [url=https://therationalmale.com/2011/08/29/female-dating-advice/]Source[/url][/quote]
+				- She may have act this way [b]because she wanted to get caught[/b] but now that she haven't been, she might try to go a little further and accept to give her number, go on a date or get fucked since you didn't do shit about it.
+				- [video=youtube]https://www.youtube.com/watch?v=mRKwhleQtyA[/video]
+				- [quote='Sensei Creation' pid='1551266' dateline='1492333483']
+				- [quote='godzilla' pid='1551257' dateline='1492330327']
+				- Are you marrying her?
+				- Ignore it. Start looking at other girls.
+				- [/quote]
+				- I had briefly considered this but swiftly dismissed the idea for a couple of reasons:
+				- 1. [b]I'm actually still gaming on the side and don't want to inject or arouse suspsions to my extra curricular activities.[/b]
+				- 2. This just doesn't seem like the correct long term strategy. What is the end game here ? It leads to me giving girls IOIs to make my girl insecure and jealous which doesn't seem very healthy. She may not even attribute my reasoning as to why I'm suddenly IOIing other girls to something that she probably doesn't even remember right now.
+				- I suppose [b]the correct long term strategy is raising my SMV to the point where she no longer feels the need to do this[/b], however If IOIs partly operate on a subconscious level that won't necessarily stop this behaviour right ?
+				- [/quote]
+				- 1. Instill doubt and suspicions in her mind, [url=http://www.girlschase.com/content/when-girls-compete-over-you]activate the competition[/url] by courting other women [b][size=large]in front of her[/size][/b], Dread Game my friend, Dread Game is the answer...
+				- 2. So once you got your SMV higher will you still be attracted to some useless woman who is 2 leagues below you and didn't appreciate what she had when some 1 league higher throw themselves at you ? And how much time that getting your SMV higher will take ?
+				- [/quote]
+				- [quote='Giovonny' pid='1551519' dateline='1492367624']
+				- How would [b]I[/b] approach that situation...
+				- I would use it as an opportunity to spice up our sex life + take more power in the relationship.
+				- Without seeming angry or too bothered by it and in a matter of fact sort of way, I would immediately tell her that she is NOT allowed to look at other men in that way and that when we get home, she will be disciplined...
+				- I might even take her home right then and there. Take her home and as soon as we walk in the door, take her clothes off, tie her up, give her a good spanking and fuck the shit out of her while making her say out loud -- [i]"im sorry daddy, i wont do it again"[/i]
+				- Then, after cumming all over her face, fuck her again, maybe in the ass, while making her say -- [i]"i need discipline".[/i]
+				- That is what[b] I[/b] would do.
+				- --
+				- Your mindset might be different...
+				- But, you definitely should NOT ignore it. Say something, tell her that you don't like that.
+				- [/quote]
+				- [quote='Valentine' pid='1553439' dateline='1492598323']
+				- My problem with advice such as Gio's is that you're essentially conditioning her to keep doing it by giving them good, novel and dominant sex after doing things you don't like. It's positive reinforcement.
+				- One thing I'm still not sure on is the effect of prolonged teasing as punishment. Will it increase or decrease the likelihood of bad behaviour? More practical experiments will be needed..
+				- [/quote]
+				- [quote='Sensei Creation' pid='1553475' dateline='1492605842']
+				- [quote='Valentine' pid='1553439' dateline='1492598323']
+				- My problem with advice such as Gio's is that you're essentially conditioning her to keep doing it by giving them good, novel and dominant sex after doing things you don't like. It's positive reinforcement.
+				- One thing I'm still not sure on is the effect of prolonged teasing as punishment. Will it increase or decrease the likelihood of bad behaviour? More practical experiments will be needed..
+				- [/quote]
+				- I was planning when to implent Gio's play when I also came to this conclusion.
+				- What happens the next time she finds herself in that situation  ? Does she purposefully look in order because she enjoys the thrill of being put back in her place ?
+				- If so, the play failed.
+					- It was to get her to stop, not provide her with a thrill button that she can press at will.
+				- Can anyone weigh in on this aspect of the conundrum ?
+				- [/quote]
+				- [quote='Leonard D Neubache' pid='1553512' dateline='1492610291']
+				- Training a woman is like training a dog. Words are by and large meaningless. You have to use positive and negative [i]feelings[/i] to influence future behaviour.
+				- You have to associate negative actions (as perceived by the master) with negative feelings (as felt by the dog or woman).
+				- My dogs know that when I click my fingers that they had better drop what they're doing and pay attention. They have learned this because I have taught them that if they don't respond in that manner then bad things will happen.
+				- In the case of a woman, simply doing something that snaps her out of her good feeling (flirting) and shifts it into a bad feeling (knowing she fucked up and you noticed) is what you need to do to maintain the master/servant relationship.
+				- Of course, unlike a dog you can't clip her behind the ear in public, but you can still wash her rebelliousness out with other negative outcomes like a sudden start and the fear of uncertainty afterwards.
+				- Let's take the situation you were in. Out for a walk and she IOIs some guy. Put your hand up near her ears and click your finger loudly. As she becomes startled bring your hand forward and point to something of the vaguest interest that you're[i] apparently[/i] looking at. Now she's completely unsure of what the fuck is going on. Did he just catch me IOIing that guy? If so, why is he pointing at that guy riding a bike? What the fuck just happened?
+				- Tell her something that's just a little bit odd, and leave your tone a little odd too. Something that will leave her once again wondering just what the fuck happened. Something chatty yet nothing that you would normally click your fingers in her ear to draw her attention to so suddenly. "I used to have a bike similar to that one".
+				- Then pretend nothing is out of the ordinary and move on with your day. You might be well served to remain just a little aloof to retain that gnawing sense of dread she's feeling at that point.
+				- She will have no fucking clue how to react. She can't bring up your odd behaviour because it's tied to the IOI she doesn't want to admit to, and so her hamster will be doing laps for days.
+				- Did he realise?
+				- Did he correct me?
+				- How do I know?
+				- I can't exactly bring it up, can I!
+				- In doing this you will replace the giddy thrill of her IOIing other guys in your presence with a gnawing dread that conjures up this 48 hour hamster trip she embarked on last time she pulled a stunt like that.
+				- [b]Most importantly you will have done it without being dragged into her petty little game of "chase me" where your actions are openly dictated by her misbehaviour.[/b]
+				- Dogs and women. You just gotta get inside their heads and fuck with the wiring.
+				- [/quote]
+				- [quote='Leonard D Neubache' pid='1553601' dateline='1492616780']
+				- I suppose it's worth adding that you must [i]absolutely[/i] balance [b]covert[/b] punishment for unwanted behaviour with [b]covert[/b] positive reinforcement for good behaviour.
+				- Unlike a dog, a woman can simply choose to leave if all she feels are negative emotions when she's around you. At best, even if she stays she'll be a terminal emotional energy sink.
+				- Again, taking OP's example, if she got the chills from your "response" to her behaviour and then put her arms around your waist and buried her head under your arm then you could feel free to drop the aloof act, pull her close and get on with your day. Again, there will be no specific "cause and effect" for her to manipulate. Just a general sense that disloyalty = bad-feelz and loyalty = good-feelz.
+				- [/quote]
+				- [quote='Valentine' pid='1553676' dateline='1492622386']
+				- ^ Good advice.
+				- It can be difficult to spontaneously think of a situational punishment like in Leonard's first example so you can always fall back on the very simplest punishment, which comes from Mystery Method - the takeaway. Simply withdraw your attention if she does anything that displeases you.
+				- Step above that - soft next. See BlackDragon for some good info on that - basically going no contact for a week then picking up where you left off like nothing happened. Every time I've done that the girl has subsequently been a lot more eager to stay in my good books.
+				- [/quote]
+			- Relationship game
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-60898.html
+			- Sex overview
+			  collapsed:: true
+				- Circumsion
+				- Foreskin is a natural lubricant, protects the glans so it doesn't become desensitised and it's full of nerve endings for pleasure
+				- Cleaning
+				- Herpes isn't a big deal
+				- Most of the time not noticeable, either no symptoms or too mild to notice
+				- 90% of the population carries some strain of herpes
+			- social meet - 11217
+			  collapsed:: true
+				- Went to ekco vision with Charles
+				- He hooked it up nicely with lots of drinks (though I opted for non alcoholic except two shots which I took because a target told me to drink it instead and wouldn't let me refuse).
+				- He got pretty drunk though and ended up moving to my target briefly after having left the 3 set. To be fair I wasn't holding it down well, my dance game is weak when it comes to 1:1/partner dancing.
+				- Other sets I wasn't vibing with after during last 30 min hail Mary game. Spent all my energy it feels like I'm the nowhere set, because they lived nearby and it was a small enough venue to be seen moving other girls
+				- >
+			- Spotify premium for dates
+			  collapsed:: true
+				- Spotify Premium (perfect for when chicks are over, way more bang-friendly than TV).
+			- Thailand data sheet
+			  collapsed:: true
+				- [quote='eradicator' pid='1616021' dateline='1500701050']
+				- Jeez, I never saw his Thai wifehunting datasheet until the thread was closed.  I'll repost here in case Roosh nukes the thread and all his posts and his account completely.  There is some serious gold here and most of it applies to finding a wife in general, not just Thai girls.
+				- [quote]
+				- The Second Thailand
+				- This is the core of this datasheet. This will encompass all marriage-material (MM) girls, traditional girls, hi-so, and the people you will need (including men). We will first cover the basic needs to be able to experience this. After all, you are looking for a wife and to start a family. Here are the prerequisites:
+				- Speaking Thai
+				- Owning your vehicle
+				- Having a Thai bank account
+				- Owning your residence
+				- Speaking Thai
+				- The very first step, before you start anything serious in a country, is to speak the language. Thailand is no exception. No MM lady will settle down with a man who cannot speak Thai. You won't even make it to the first date if you can't speak Thai, as they will chat with you in Thai and most of them won't speak English well enough to date a foreigner. This will set you a huge steap ahead of anyone.
+				- And guess what? It's a LOT easier than you think.
+				- However, having a girl show you some Thai won't cut it. You need to attend a language school. It is pretty cheap (around 8000 baht per month), and reaching pseudo-fluency level shouldn't take more than a year if you study full time (around 3 hours a day). I personally studied from 13:00 to 16:00 at my school. It requires commitment, but like anything in life, people who aren't lazy get more than other people. I personally went to AAA Thai Language School but feel free to attend any school that is recognized by the Ministry of Education and that will help you get a ED (student) visa.
+				- Once you have been studying for a few months and the teachers consider you a good speaker, you will eventually be offered to pass the Ministry of Education Thai competency test. This is a test that is administered once a year to foreigners who want to get a certificate proving their Thai skills. This can then be used when applying for a job, or simply as a show-off. Make it visible and show it in your house, you will look more serious. The test is done in 4 parts, and each one is graded on a scale from 1 (can't do it) to 6 (do it like a native):
+				- Listening. You have to listen to the radio and answer multiple-choice questions. No text, just listening. I had to listen to 36 stories then answer the questions. My level: 4
+				- Reading. You have to read short stories and answer multiple-choice questions. You have around 10 pages to read, and the time limit is 50 minutes. My level: 4
+				- Writing. You have to handwrite a story in Thai about whatever subject they ask you about. One page, 50 minutes. Mine was about the evolution of rice planting techniques used by Thai farmers. My level: 5
+				- Speaking. You have an interview with an evaluator who will ask you questions and make you talk about various subjects. My level: 6
+				- This is done without any translation, tool, or help. You do it by memory. Once you are able to get at least level 4 or more in all areas, you can consider that you completed the first step: Speaking Thai.
+				- Owning your vehicle
+				- If you're doing to go on a date with a MM girl, coming in a taxi won't do. Even if you date near a BTS station and take the skytrain (which is acceptable), you will be asked about what kind of car you drive. While it isn't important to have a fancy car, owning your own ride will make you look more wealthy, as cars in Thailand are more expensive than the West due to tax (which are still too low IMO) in a goal to curb the traffic in Bangkok.
+				- First of all, take care of getting your Thai driver's license. Tourists are not allowed to, but since you have a student visa or above (you should do it when you are studying Thai), you can get a Thai DL. Gather the following:
+				- Passport
+				- Two passport-sized photos (some facilities offer it on the spot, but don't take this risk)
+				- Your country's International Driver's License
+				- Medical certificate of good health (can be obtained for under 100 baht at any clinic or hospital)
+				- Proof of address (there are two ways: Your work permit, or a certified letter by your embassy, usually issued on the spot)
+				- Then head to the nearest Department of Land Transport office and bring all the documents. Unless you go to Mo Chit, the employees will speak NO english, and the forms will be in Thai. However, you can bring a translator to help you. It will take a total of 2-3 hours, and you will have to go through basic tests like color blindness, distance, and reflex. Once you clear all that, you can proudly walk out of the DLT office with your brand new shining Thai driver's license in hand.
+				- As for getting a vehicle, the process is pretty straightforward, as there are no restrictions on foreign ownership of vehicles. Don't make the mistake of using your girlfriend's name. Your vehicle can be 100% under your name without any restriction. You can buy any new or used car and register it without any problem. If you buy a new car, the dealership will take care of all the registration process for you. If you buy a used car, you have to go register it yourself at the DLT. Bring the same pile of documents than above (minus the international license), and you will walk out of the office with your name in the vehicle's green book.
+				- Thai girls love supercars, as you will look like a real hi-so. I personally drive a Porsche Panamera and get access to the so-called "supercar parking" in every shopping mall (Paragon, Central, Emporium and a few ones). Getting the Line of a girl who sees me get out of the car has been a flying 100% success rate for me. Use this to your advantage. Plus, you get priority on the road, VIP parking even where there is no official supercar parking, and the feeling of being the boss.
+				- I own 3 motorcycles and 2 cars, and never ran into any single issue registering it under my name. If you have a ED visa or above, you will be all right. Once you got your shiny DL and your car parked in your home with your name in the green book, you completed the second step: Owning your vehicle.
+				- Having a Thai bank account
+				- I personally dislike banks as I am a cryptocurrency believer, however some scenarios might require you to have a Thai bank account. So let's get one. Show up at any bank with your passport and driver's license, and you should be able to get an account. Some banks might tell you "you need a work permit". If they say so, just try another branch. You will need:
+				- 1) Passport with a visa that is not a tourist visa
+				- 2) Proof of address (driver's license is accepted)
+				- 3) A clerk that is not a jerk
+				- I have experience with 4 banks here, so I will do you the favor of helping you choose.
+				- The GOOD banks
+				- Bangkok Bank: Very friendly towards foreigners, not too nosey, good service, I also banged one of their clerks (but that's another story).
+				- SCB: Hard to get the account open, but once you get it, prompt service and no issues whatsoever.
+				- The BAD banks
+				- Kasikorn Bank: They called me twice in 1 month to ask me to explain the source of funds in the account. I told them it was none of their business, withdrew all my money, and closed the account.
+				- Krungsri: I attempted to make an international transfer and they refused to process the transfer due to not having "proof of income". I again withdrew all my money and moved to SCB.
+				- For your information, you must know the various limits to avoid getting reported to the AMLO (anti money-laundering office). While laws are a lot looser for foreigners than Thais, you must still be careful. Do not break those limits, or you might get an unwanted knock on your door:
+				- Cash deposits: Maximum THB 2,000,000 per day
+				- Cash withdrawals: Maximum THB 2,000,000 per day
+				- International transfers: No incoming or outgoing transfer should excess USD 50,000.
+				- Then you can apply for a credit card. Your first card might require a security deposit; don't be a cheap charlie and just do it. You will then receive your new shiny credit card and complete the third step: Having a Thai bank account.
+				- Owning your residence
+				- As you mostly heard, "Farangs cannot own land in Thailand." Bullshit. You can own land with 100% control without having your name directly in the book. This is a process done through offshore companies and purchasing shares in the Thai landowning company, in the essence of what is known as a Protected Leasehold. While you can own a condo 100% in your name without problems, you need such a corporate structure when it comes to buying a single house or any property that comes with a plot of land. Now, I cannot stress this enough, but if you're going to purchase some land using a protected leasehold, you NEED to get a lawyer to do the process for you, no exceptions!. While it may seem simple, there are a few scenarios that can unfold if you choose to do it yourself:
+				- 1) The land is part of a national park, and the government decides to reclaim it. You lose everything.
+				- 2) The land used a "flying SK1", a paper-tripping process where the title deed is falsified. You lose everything.
+				- 3) Something wasn't done correctly, and the title gets revoked.
+				- I won't do in much detail for this point, as you need a lawyer to handle the process for you. Start by buying a small house to familiarize with the process, then you can go bigger. Once you have either a condo or a house, you completed the fourth step: Owning your residence.
+				- Note: This is the least important of the 4 criteria. If you have all other 3, you can skip this one, but make sure to rent a decent place, not a studio apartment.
+				- Now let's get some girls
+				- As I stated earlier, most MM girls will not date a guy if they have the slightest suspicion that he is a love tourist or just here for a short term stay. You need to be able to convince your girl that you're here for long. That's why we follow a long process, but in the long term, it will help you, not just with girls. First of all, you will meet MM girls pretty much everywhere. Here are some common places:
+				- High-end shops (daygame pickup)
+				- (If you are lucky) Plentyoffish.com. For some reason the quality is higher, despite having way fewer girls than other sites
+				- School, if you take any class that is not a Thai language class
+				- Workplace (be careful with this one, don't shit where you eat)
+				- University campus
+				- Social connections (better results, but harder)
+				- Here are some places where you will NOT meet this kind of girl:
+				- A bar / pub (do I really need to explain?)
+				- 7/11 stores (by experience, most of they come from broken backgrounds)
+				- Bus stop (people who take the bus are normally poor)
+				- Since your goal is to bag a good girl for the long term, do not offer a first date at your place, or where you will get drunk. Normally, I go for high-class restaurants. Rooftop venues work really well for that, such as Roof 409, Octave Sky Bar, etc. This will allow both of you to do the talking and get to know each other. You will be able to know if the girl is interested if you get asked the following questions:
+				- Do you own or rent?
+				- What kind of car do you drive?
+				- What is your parents' carreer?
+				- Are your parents living together?
+				- Some might seem invasive, but answer them anyway. She isn't a gold digger. She is trying to figure out what is your social class, so she doesn't indulge in "dating down" behavior that would get frowned upon. Feel free to return the question, but answer truthfully. If you lie, she'll find out anyway.
+				- Do you make a lot of money?
+				- You shouldn't push for the bang before at least date 4. I have prepared an evaluation scale for Thai girls, to help you assess whether she is a good girl or not. Most of the stuff comes from TravelerKai's scale for Chinese girls, however I made some changes to make it cater more to Thai ladies. Most points are similar, but the scores got slightly changed.
+				- Positives:
+				- 1. Never had more than 2 boyfriends (+1 point)
+				- 2. Takes her studies seriously and has good grades (+3 points)
+				- 3. Graduated from a 4-year college (+3 points)
+				- 4. Gives up seat for elderly / disabled people (+5 points)
+				- 5. Saves / invests money intelligently (+5 points)
+				- 6. Sometimes offers to pay for dates and travel (+5 points)
+				- 7. Tries to feed her man with chopsticks or fork (+5 points)
+				- 8. Cooks for her man without asking (+5 points)
+				- 9. Massages her man without asking (+10 points)
+				- 10. Would refuse to shave her pussy hair, even if you requested. (+5 points)
+				- 11. Always returns to her hometown for Songkran (+5 points)
+				- 12. Very loyal to her parents (+10 points)
+				- 13. Takes care of relatives that are rude or mean without complaints (+15 points)
+				- 14. Still lives with her parents (+15 points)
+				- 15. Comes from a complete family with both parents still married (+20 points)
+				- 16. Virgin (+30 points)
+				- Negatives:
+				- 17. Hair shorter than the upper neck (-1 point)
+				- 18. Ever ran away from home because of a fight with parents (-2 points)
+				- 19. Watches or shows interest in Western porn (-3 points)
+				- 20. Lost virginity in high school (-3 point)
+				- 21. Always photoshops / applies a filter to her pictures (-3 points)
+				- 22. Hairy armpits (-3 points)
+				- 23. Has had more than 3 sexual partners before 25 years of age (-5 points)
+				- 24. Dropped out of high school (-5 points)
+				- 25. Has lived with more than 1 man (-5 points)
+				- 26. Uses a lot of profanity (-5 points)
+				- 27. Laughs at other people's misfortune (-5 points)
+				- 28. Never wears a dress or a skirt (-5 points)
+				- 29. Never pays on dates with men including you (-5 points)
+				- 30. Ever had a mood jump without any noticeable trigger (-5 points)
+				- 31. Ever experienced a same-sex intercourse (-7 points)
+				- 32. Would agree to arrange a marriage solely for immigration (-10 points)
+				- 33. Makes a phone call or send a text message without apologizing during a date (-10 points)
+				- 34. Talks behind her friends' back (-10 points)
+				- 35. Ever worked in a massage parlor, bath spa, or bar (-10 points)
+				- 36. Agrees with modern feminism (-10 points)
+				- 37. Ever had a one-night stand (-10 points)
+				- 38. Has a piercing other than the ear (-15 points)
+				- 39. Has lived in a Western country for more than 3 months (-15 points)
+				- 40. Has a tattoo (-15 points)
+				- 41. Her friends hate her (-15 points)
+				- 42. Never returned home after a fight with relatives (-15 points)
+				- 43. Smokes, uses drugs, or drinks more than 2 days per week (-15 points)
+				- 44. Lost virginity in middle school (-15 points)
+				- 45. Has had more than 5 sexual partners before 25 years of age (-15 points)
+				- 46. Ever had an abortion (-15 points)
+				- 48. Thinks it is okay to look into her man's phone (-15 points)
+				- 49. Slaps and fights men, including you (-20 points)
+				- 50. Hair is as short as a man haircut or nearly bald (-20 points)
+				- 51. Has half-siblings with only 1 common parent (-20 points)
+				- 52. Cries loudly/fights in public when she does not get what she wants (-25 points)
+				- 53. Atheist (-25 points)
+				- 54. Has a kid from a previous marriage (-35 points)
+				- 55. Has ever been the mistress of a married Thai man (-40 points)
+				- 56. Claims to have been raped in the past, true or not (-40 points)
+				- 57. Has a diagnosis of mental disease such as schizophrenia or bipolarity (-50 points)
+				- 58. Has a kid who was born outside marriage (-70 points)
+				- 59. Ever worked as a sex worker or prostitute (-70 points)
+				- The calculation process is straightforward: Add all positives, subtract all the negatives.
+				- -50 and below: End the relationship immediately
+				- -49 to -25: You should run away, very little chance of working
+				- -24 to 0: Proceed with caution, possibly bad girl
+				- 1 to 25: Average girl, you can give it a try
+				- 26 to 49: Good traditional girl, possible MM
+				- 50 and above: Very special girl, take care of her
+				- While having kids is a big negative on the scale, I suggess you skip those girls altogether. Single mothers can rarely bring you something good, and no man is overjoyed at spending his sweat on some other random babydaddy's genetic offspring that your girlfriend carried inside her.
+				- Other considerations
+				- Here are some other points you must consider when dealing with this type of lady. Those will be useful to you later and can be a deal-braker for her if they are not properly followed.
+				- If she offers you to introduce you to her family, then you can safely assume that she is serious with you. If you think she might be the right one for you, then cheerfully accept her invitation. This is where you will realize how important it is to speak Thai. When you marry a Thai lady, you marry her whole family. You will never gain a Thai girl if her family does not approve you. If you cannot speak Thai, her parents' comment will be "he's just a tourist", and you'll be out. Speak Thai, it's not that hard.
+				- Never talk about marriage with a girl if you just want the notch. Unless the girl is a train wreck that overestimates her value (-25 and below on the above scale), you need to be clear in your intentions. However if the girl is a single mom or another kind of damaged goods and you believe that she will never be able to find a husband due to her fucking her life over, then feel free to use any trick to get the notch then vanish. Otherwise, if you're dealing with a MM girl and you lie to get in her pants, you just burnt another good traditional lady that could have gotten a decent man. There should be immigration consequences for assholes who do that.
+				- Learn how to make a merit at the temple, even if you are not Buddhist. They will all appreciate that you can take the time and attention to respect their religion and do it with them. This will get you a LOT of points. You do not need to know all the lyrics by heart, but at least, know the basic works of that.
+				- Show respect to anyone introduced to you by her. You probably wouldn't love a girl who treats your buddies like shit. This goes both ways, and besides, her friends will do you a lot of favors later on. When you marry a Thai lady, you marry all her family as well.
+				- Don't refuse if she wants to put food in your mouth. For some reason, Thai ladies really dislike when someone declines to taste something she wants them to eat. Many times, she will put something in a spoon and make you taste it; just do it. That can be a deal breaker for them, as they are proud of their food and really enjoy sharing their passion.
+				- Beware of girls who hang out with farangs. If a girl claims to love to hang out at farang places, even if she isn't a bar girl, chances are that you won't get anything positive out of the relationship. A girl who loves to hang out at farang pubs should be avoided, as she is a low-class girl.
+				- Etiquette rules
+				- With a proper lady, follow the below etiquette rules to ensure that you will stay out of trouble at all times.
+				- 1) Do not publicly make negative comments about the monarchy. Thai people are very fond of their king and it is illegal to say negative things about the royal family. Keep those comments for yourself.
+				- 2) Do not use your feet to point at something. Anything. Feet are considered the most impure part of the body and this will get frowned upon.
+				- 3) Do not touch an older person's head. The head is considered the sacred part of the body and you will be seen as very rude if you do.
+				- 4) Don't get in a fight with Thai men. Swiftly try to walk out of trouble. Thai men have the bad habit to fight in groups. And no matter how good your Thai is, you will be seen as the intruder and are pretty sure to get beaten up. Talk your way out, don't fight.
+				- 5) This is more funny than important, but do not make Thai people "lose face" unless it is absolutely required. They get very uncomfortable they someone makes them lose face. Do not publicly point out someone's mistake if it can be resolved in private. Understand the "mai pen rai" (nevermind) mindset.
+				- 6) Understand that Songkran is important for Thais just like Christmas is for you. Think about both ways.
+				- 7) Don't push your girl away if she tried to feed you something. It's rude.
+				- 8) If you feel the need to cheat, be EXTRA secret about it. If the girl is a MM girl, she won't turn a blind eye to the "mia noi" (mistress) and will leave you for that. See my other datasheets on cheating without getting caught.
+				- 9) Use common sense for the rest.[/quote]
+				- [/quote]
+			- Tinder pros/cons
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-59720.html
+			- women purposefully getting pregnant
+			  collapsed:: true
+				- The threshold for sucess doesn't have to be high at all for women to do any and everything to father your child without your consent if they are determined
+				- In the hood black women have been doing thot shit like this for years, even for relatively broke dudes. "Girrllll! He got guud hurr, I'm gonna have a baby girl by him. *proceeds to empty used condom in her nether region* or "he got light hazel or green eyes, our baby is gonna be so cute". If you are a lighter skinned black dude a lot of darker skinned ghetto black women want your sperm just to have cuter kids. Crazy but true. Let's not forget high school athletes that show strong potential, they fall victim to this often, even if they never go pro in the end.
+				- Ghetto Latina women do the same thing and try to trap a 2nd dude with a relatively stable job as a car salesman or retail store manager after her first baby daddy got locked up.
+				- My point is not only the uber successful need to be cautious. I think the comment the doctor made about never seeing a relatively poor dude coming in for a vasectomy was inserted to downplay how common it is for women to trap guys with a baby.
+				- Putting money aside, women that are "in love" with a dude that has moved on are also likely to attempt this cum-stealing strategy. The courts could give a fuck less what a woman did to get your sperm. Once she is pregnant you are on the hook for the next 18-21 years. This can be inconvenient and uncomfortable for a guy worth millions. But for an average joe it can literally be life ruining.
+				- ---
+				- Long thread
+				- https://www.rooshvforum.com/thread-62988.html
+		- SOCIAL
+			- Relationship game
+			  collapsed:: true
+				- Relationship expected behaviours
+				  collapsed:: true
+					- Stuff I've done with Annie and was comfortable with
+						- Cuddling
+						- Public Displays of Affection - hand holding in public, kissing
+						- >1 hour phone calls
+					- Stuff that Annie said she would expect in a relationship
+						- Exclusivity
+						- Someone she can rely on for non-sexual favours e.g. help moving stuff
+						- Meet her friends and family
+						- Pushes her to grow to be a better person
+						- Official relationship status - i.e. we're not discrete, people know we're together
+				- In what ways do you train your girl(s)
+				  collapsed:: true
+					- https://www.rooshvforum.com/thread-64988.html
+				- On finding women to love
+				  collapsed:: true
+					- http://www.rooshv.com/a-face-that-i-could-love
+				- Engagement rings
+				  collapsed:: true
+					- Why engagement (diamond) rings are a scam - Adam Ruins
+					  https://youtu.be/N5kWu1ifBGU
+					- Moissanite engagement rings (cheap and difficult to tell apart from diamond)
+						- Beautiful colorless gems that are almost as hard as diamonds (9.2 vs 10), conflict free, almost impossible to tell apart from diamonds, and 1/10 the cost. There is becoming almost no reason to buy a diamond.
+				- LTR/marriage master thread
+				  collapsed:: true
+					- https://www.rooshvforum.com/thread-65682.html
+				- Books
+				  collapsed:: true
+					- national male preventive medicine?
+					- ((62ffc2ed-3097-465c-9dc2-5fcb7f09e322))and Dalrock
+					- 3% man by Corey Wayne
+				- ((6436ad40-7b34-4bc0-8e09-b91372012fcc)) test for fuckbuddy
+				  collapsed:: true
+					- If you got pregnant right now, what would you do
+					- If she didn't immediately say get rid of it, then she's likely to keep it
+				- Get girls to call you daddy after a few bangs
+				  collapsed:: true
+					- https://www.rooshvforum.com/thread-36717.html
+				- Mate guarding
+				  collapsed:: true
+					- 1
+						- I'm not into strong mate guarding tbh
+						- If a girl wants to leave you she'll find
+						- a way eventually with or without you
+						- finding out
+						- Gianni Tribe
+						- We can experiment together if you
+						- like. I chat to a girl who likes me. You
+						- move in, carry her ogf_
+						- That's how RSD discovered it. They
+						- tried to steal from each other and
+						- tested every countermeasure
+						- use that myself on one night stands
+						- oldnni Tribe
+						- Its true what you say about girls
+						- sneaking off
+						- But on girlfriends I think its
+						- unnecessary
+					- Someone in the forum suggested
+					- marking your fuckbuddies on their
+					- ass or other places only someone
+					- intimate with them would do
+				- Have girlfriends wear clothes like chemise tops around me at home
+				  collapsed:: true
+					- Maya used to sleep in these without a bra or panties and it was lovely easy access
+					- How to fuck a woman's brains out book or something like that also recommend girls walk around in a "slip" which sounds similar
+				- Announce in advance when you plan to masturbate
+				  collapsed:: true
+					- This is why women don't want you
+					- to masturbate in a relationship, they
+					- know it diminishes their value just a
+					- little bit every time they cant satisfy
+					- you. I picked up on this after a few
+					- relationships and instituted an open
+					- book policy, I announce when I am
+					- going to masturbate in advance
+					- and suddenly the clock is ticking in
+					- her brain as to how much time she
+					- has to make the decision whether
+					- or not to participate in my quest for
+					- an orgasm. I've received either sex,
+					- a blowy, or handy every single day
+					- for two years. It's weird how much
+					- healthier a relationship is when
+					- some form of sex happens daily.
+			- Female psychology
+			  collapsed:: true
+				- Modern women are reckless with their attention whoring
+				  collapsed:: true
+					- [quote='debeguiled' pid='1623346' dateline='1501699584']
+					- Women bikers.
+					- https://www.rooshvforum.com/thread-64116.html
+					- Women who swim with sharks.
+					- [url=http://www.dailymail.co.uk/news/article-2279607/Ocean-Ramsey-The-chilling-moment-fearless-diver-swims-directly-path-great-white-shark.html]Shark Whisperer[/url]
+					- [img]http://i.dailymail.co.uk/i/pix/2013/02/16/article-0-179E73EB000005DC-787_964x534.jpg[/img]
+					- Women who take selfies at tops of skyscrapers.
+					- Jim Goad calls them "Snuffies."
+					- [url]https://thoughtcatalog.com/jim-goad/2016/02/snuffies-18-of-the-most-horrifying-selfie-related-tragedies/ [/url]
+					- [img]https://thoughtcatalog.files.wordpress.com/2016/02/xenia.jpg [/img]
+					- Women who hand feed sharks.
+					- [video=youtube]https://www.youtube.com/watch?v=jafhwO9xAtw[/video]
+					- Women who work with large cats and forget they aren't Doctor Doolittle.
+					- [url=http://nypost.com/2016/04/15/tiger-whisperer-mauled-to-death-by-tiger/]'Tiger Whisperer" mauled to death by tiger[/url]
+					- [img]https://thenypost.files.wordpress.com/2016/04/zoo_tiger_attack.jpg?quality=90&strip=all&w=664&h=441&crop=1[/img]
+					- Celebrities who have pet lions (A young Melanie Griffith).
+					- [img]http://ww1.hdnux.com/photos/45/62/62/9907356/7/1024x1024.jpg[/img]
+					- Women who cuddle with wild animals to get the perfect shot.
+					- [url=http://www.dailymail.co.uk/travel/travel_news/article-3480156/Beauty-beasts-Meet-woman-charged-elephants-mauled-cheetah-perfect-picture.html]All to get the perfect picture[/url]
+					- [img]http://i.dailymail.co.uk/i/pix/2016/03/07/17/31F3210E00000578-3480156-Shannon_has_admitted_that_she_has_been_chased_by_an_elephant_dur-a-50_1457371547741.jpg[/img]
+					- Women who hitchhike across Turkey for world peace and get murdered.
+					- [url=http://news.bbc.co.uk/1/hi/world/europe/7344381.stm]'World peace' hitchhiker is murdered[/url]
+					- [img]http://newsimg.bbc.co.uk/media/images/44562000/jpg/_44562765_-5.jpg[/img]
+					- Women who let wild wolves lick their faces.
+					- [url]http://www.dailymail.co.uk/news/article-3442650/She-s-not-afraid-big-bad-wolf-heartwarming-moment-Kekoa-giant-timber-wolf-plays-wildlife-worker-licks-face.html[/url]
+					- [img]http://i.dailymail.co.uk/i/pix/2016/02/11/17/3119533700000578-3442650-image-a-13_1455210012461.jpg[/img]
+					- Women who swim with stingrays ('Sting Ray Queen').
+					- [url]http://www.dailymail.co.uk/news/article-3824605/Stingray-Queen-Rava-Ray-dives-naked-marine-creatures-Tahiti-Hawaii.html[/url]
+					- [img]http://i.dailymail.co.uk/i/pix/2016/10/13/21/3957462300000578-3824605-Rava_Ray_pictured_dives_naked_with_dangerous_marine_creatures_to-a-4_1476389772720.jpg[/img]
+					- Women who get arrested for breaking into a zoo to 'pet' a tiger.
+					- [url=http://heavy.com/news/2015/11/jacqui-jacqueline-eide-omaha-nebraska-zoo-drunk-high-woman-breaks-in-bitten-by-tiger-cage-photos-facebook-halloween-drugs-arrested-record-trespass/]Five Fast Facts You Need to Know About This Dummy[/url]
+					- [img]https://heavyeditorial.files.wordpress.com/2015/11/jacquelineeide2.jpg?quality=65&strip=all&strip=all[/img]
+					- Oh look, snakes like her, why not?
+					- Men have always engaged in this kind of high risk behavior, and though they are getting dumber and more reckless than ever about it, the combination of grrl power, hamsters, and internet attention has created what amounts to a kind of unconscious death cult among women.
+					- I have been filing away these articles for a few years.
+					- These girls almost all have titles they have created for themselves, which are reproduced in the news articles on their deaths in single quotes.
+					- They are the death whisperers.
+					- And they don't even know it. In their naive little hearts, they don't really believe anything bad can happen.
+					- Not to them.
+					- I think it is sad to see the rise in this kind of behavior among women. They don't even have the excuse of teen testosterone for their recklessness.
+					- All they have is their egos, their fantasies, and their need for attention.
+					- I think there will be a huge rise in self inflicted deaths by women who engage in reckless behavior, and it almost seems like they think living a full, happy life is beyond them, so they are going for as much attention as they can get, and plan on going out with a bang.
+					- Women really shouldn't be in charge of anything, even their own lives.
+					- [/quote]
+				- Differences between men and women
+				  collapsed:: true
+					- Motivations of men vs women
+						- Men are not only motivated by ass and tits. Sure - many men are and this is a strong motivator for many, but men have also something else in their mentality that women don't have.
+						- I would call it a combination of this single-mindedness - a mix of passion, infatuation with a subject and the desire for the unknown. Sometimes that means the creative mind of conjuring ever new paintings despite already having made tens of millions, sometimes it means the scientist who researches some arcane subject that hardly anyone is interested in the world and sometimes it is the researcher and explorer who risks his life just to find out what lies beyond the next river bend.
+						- All those characteristics are lacking in women. And they are lacking in them for a good reason. Humanity might have died out if both sexes had those things. Women are not meant to risk life and limb on expeditions, or to become enamored by a scientific subject or career so that they neglect their children and home. Let men do it.
+						- Men - evolved to build, create and innovate.
+						- Women - evolved to procreate, take care of the children and nag the man to build, create and innovate more.
+					- Women refuse to acknowledge mental differences but accept physical
+						- Any woman who has ever been to the gym should know that there are fundamental differences between the sexes. On a typical day at my gym the MOST fit woman, if she even dares to use the free weights, cannot replicate the set of the LEAST fit man.
+						- Most women will actually admit to this, but then REFUSE to take it a step further and admit that gender differences manifest themselves in non-physical ways as well.
+				- Divorce stories website
+				  collapsed:: true
+					- http://www.realworlddivorce.com/
+				- Women are attracted more to danger and masculinity than status or intelligence
+				  collapsed:: true
+					- < Actually women don't take into account intelligence or status to be attracted to men.
+					- [source] https://www.rooshvforum.com/thread-50253-post-1682358.html#pid1682358
+						- They had experiences during WWII in the UK with the few German POW camps where they had to put up extra security, because local British women were sticking their asses to the fences in order to be fucked by blonde German prisoners. There were so many children born to German prisoners that it was a real nuisance to the local British GIs. They fight the Krauts in Germany while back at home the young wife or fiance fucks the captured Kraut.
+						- Though of course you are right - genetically it is infinitely superior material due to higher IQ range, not 1400 years of inbreeding etc.
+						- But women would bang cavemen if they fit the criteria of iron frame, masculinity, danger. The women of an intergalactic species would go bang 70 IQ cave dwellers, if the cave-dwellers ticked the right boxes and were bad enough. The female hard-drive is designed for caveman times and has not evolved much.
+				- On the Suffering of the World BY Arthur Schopenhauer
+				  collapsed:: true
+					- Excerpt 1
+						- One necd5 only to see thc way she
+						- woman is not intended for mental
+						- physical labour She expiates the of
+						- acevity but through sutienng. through the
+						- caring for the elvild and vo
+						- whom she should be patient and
+						- Great suffering, joy, exertion, not
+						- should flow by more quietly. getuly the
+						- man's without being essentially happtcr uuhapvuev
+					- 2
+						- Women arc suited to being the nurses and tca€hcrs oi
+						- our earliest childhood precisely because they themselves
+						- are Childish, silly and shott-sxghted. in word big
+						- dren. their whole lives long: a of stage
+						- between the child and the who
+						- bang. •man' , One has only watch a girl playing with
+						- a chiliL dancing and singing with it che whole day.
+						- then ask oneself what. with the best Will in tbc wosb,i,
+						- man could do in her place,
+						- In the girl nature has had in view could iO
+						- tenns be called a stage<'iiecc: it has provided her With
+						- superabundant beauty and few years the
+						- expense ofthe whole remainder other life, so 'hut dujing
+						- she may so capture the imagination of a
+						- these
+				- The idea of honour disgusts women
+				  collapsed:: true
+					- Women have never failed to disappoint
+					- me with their unreliability. If you think
+					- lying, flaking, and broken promises are
+					- limited to dating, you are horribly mis-
+					- taken. You have to understand that honor
+					- is a foreign concept to women (I've actu-
+					- ally had two women on two different oc-
+					- casions express disgust when I used that
+					- word).
+				- Women project that men are sex obsessed and treat women as objects because they themselves think that way
+				  collapsed:: true
+					- Women's entire existences are that of walking sex objects, constantly thinking of nothing but SMV and being railed by cock.
+					- @Krauserpua Through their solipsism women reveal their natures by what they say of men: shallow, lustful, exploiting, uncaring, animal.
+					- Chicken and egg - which comes first? Look at child developmental psych
+				- Feminists have massive doublethink
+				  collapsed:: true
+					- It can only be resolved when looking at it
+					- through the lens of whether it's an
+					- attractive man doing it to them or not
+					- They hate betas who even dare to raise a
+					- contradictory opinion but an Alpha can
+					- treat a girl in whatever manner they wish
+					- It's kind of like how homophobes show
+					- more arousal to homosexual porn than
+					- the average person
+					- They can't accept their true desires so
+					- project out the opposite opinions loudly
+				- Chess master says suck then backs it by beating 20 women
+				  collapsed:: true
+					- http://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=11572837
+					- https://www.rooshvforum.com/thread-53008.html
+					- "Controversial chess grandmaster Nigel Short is set to take on 20 women in a challenge to test his theory that women are not "hardwired" to play at the top level of the game.
+			- Societal Enabling
+			  collapsed:: true
+				- France trying to make pickup illegal
+				  collapsed:: true
+					- https://www.thesun.co.uk/news/4506566/france-wolf-whistling-chatting-up-telephone-number-sexism/
+				- Google internal red pill memo on gender gap in tech - causes mass outrage amongst other Google employees
+				  collapsed:: true
+					- [quote='weambulance' pid='1625596' dateline='1502013478']
+					- The offending piece in full:
+					- [quote]Reply to public response and misrepresentation
+					- I value diversity and inclusion, am not denying that sexism exists, and don’t endorse using stereotypes. When addressing the gap in representation in the population, we need to look at population level differences in distributions. If we can’t have an honest discussion about this, then we can never truly solve the problem. Psychological safety is built on mutual respect and acceptance, but unfortunately our culture of shaming and misrepresentation is disrespectful and unaccepting of anyone outside its echo chamber. Despite what the public response seems to have been, I’ve gotten many personal messages from fellow Googlers expressing their gratitude for bringing up these very important issues which they agree with but would never have the courage to say or defend because of our shaming culture and the possibility of being fired. This needs to change.
+					- TL;DR
+					- Google’s political bias has equated the freedom from offense with psychological safety, but shaming into silence is the antithesis of psychological safety.
+					- This silencing has created an ideological echo chamber where some ideas are too sacred to be honestly discussed.
+					- The lack of discussion fosters the most extreme and authoritarian elements of this ideology.
+					- Extreme: all disparities in representation are due to oppression
+					- Authoritarian: we should discriminate to correct for this oppression
+					- Differences in distributions of traits between men and women may in part explain why we don’t have 50% representation of women in tech and leadership. Discrimination to reach equal representation is unfair, divisive, and bad for business.
+					- Background [1]
+					- People generally have good intentions, but we all have biases which are invisible to us. Thankfully, open and honest discussion with those who disagree can highlight our blind spots and help us grow, which is why I wrote this document.[2] Google has several biases and honest discussion about these biases is being silenced by the dominant ideology. What follows is by no means the complete story, but it’s a perspective that desperately needs to be told at Google.
+					- Google’s biases
+					- At Google, we talk so much about unconscious bias as it applies to race and gender, but we rarely discuss our moral biases. Political orientation is actually a result of deep moral preferences and thus biases. Considering that the overwhelming majority of the social sciences, media, and Google lean left, we should critically examine these prejudices.
+					- Left Biases
+					- Compassion for the weak
+					- Disparities are due to injustices
+					- Humans are inherently cooperative
+					- Change is good (unstable)
+					- Open
+					- Idealist
+					- Right Biases
+					- Respect for the strong/authority
+					- Disparities are natural and just
+					- Humans are inherently competitive
+					- Change is dangerous (stable)
+					- Closed
+					- Pragmatic
+					- Neither side is 100% correct and both viewpoints are necessary for a functioning society or, in this case, company. A company too far to the right may be slow to react, overly hierarchical, and untrusting of others. In contrast, a company too far to the left will constantly be changing (deprecating much loved services), over diversify its interests (ignoring or being ashamed of its core business), and overly trust its employees and competitors.
+					- Only facts and reason can shed light on these biases, but when it comes to diversity and inclusion, Google’s left bias has created a politically correct monoculture that maintains its hold by shaming dissenters into silence. This silence removes any checks against encroaching extremist and authoritarian policies. For the rest of this document, I’ll concentrate on the extreme stance that all differences in outcome are due to differential treatment and the authoritarian element that’s required to actually discriminate to create equal representation.
+					- Possible non-bias causes of the gender gap in tech [3]
+					- At Google, we’re regularly told that implicit (unconscious) and explicit biases are holding women back in tech and leadership. Of course, men and women experience bias, tech, and the workplace differently and we should be cognizant of this, but it’s far from the whole story.
+					- On average, men and women biologically differ in many ways. These differences aren’t just socially constructed because:
+					- They’re universal across human cultures
+					- They often have clear biological causes and links to prenatal testosterone
+					- Biological males that were castrated at birth and raised as females often still identify and act like males
+					- The underlying traits are highly heritable
+					- They’re exactly what we would predict from an evolutionary psychology perspective
+					- Note, I’m not saying that all men differ from women in the following ways or that these differences are “just.” I’m simply stating that the distribution of preferences and abilities of men and women differ in part due to biological causes and that these differences may explain why we don’t see equal representation of women in tech and leadership. Many of these differences are small and there’s significant overlap between men and women, so you can’t say anything about an individual given these population level distributions.
+					- Personality differences
+					- Women, on average, have more:
+					- Openness directed towards feelings and aesthetics rather than ideas. Women generally also have a stronger interest in people rather than things, relative to men (also interpreted as empathizing vs. systemizing).
+					- These two differences in part explain why women relatively prefer jobs in social or artistic areas. More men may like coding because it requires systemizing and even within SWEs, comparatively more women work on front end, which deals with both people and aesthetics.
+					- Extraversion expressed as gregariousness rather than assertiveness. Also, higher agreeableness.
+					- This leads to women generally having a harder time negotiating salary, asking for raises, speaking up, and leading. Note that these are just average differences and there’s overlap between men and women, but this is seen solely as a women’s issue. This leads to exclusory programs like Stretch and swaths of men without support.
+					- Neuroticism (higher anxiety, lower stress tolerance).This may contribute to the higher levels of anxiety women report on Googlegeist and to the lower number of women in high stress jobs.
+					- Note that contrary to what a social constructionist would argue, research suggests that “greater nation-level gender equality leads to psychological dissimilarity in men’s and women’s personality traits.” Because as “society becomes more prosperous and more egalitarian, innate dispositional differences between men and women have more space to develop and the gap that exists between men and women in their personality becomes wider.” We need to stop assuming that gender gaps imply sexism.
+					- Men’s higher drive for status
+					- We always ask why we don’t see women in top leadership positions, but we never ask why we see so many men in these jobs. These positions often require long, stressful hours that may not be worth it if you want a balanced and fulfilling life.
+					- Status is the primary metric that men are judged on[4], pushing many men into these higher paying, less satisfying jobs for the status that they entail. Note, the same forces that lead men into high pay/high stress jobs in tech and leadership cause men to take undesirable and dangerous jobs like coal mining, garbage collection, and firefighting, and suffer 93% of work-related deaths.
+					- Non-discriminatory ways to reduce the gender gap
+					- Below I’ll go over some of the differences in distribution of traits between men and women that I outlined in the previous section and suggest ways to address them to increase women’s representation in tech and without resorting to discrimination. Google is already making strides in many of these areas, but I think it’s still instructive to list them:
+					- Women on average show a higher interest in people and men in things
+					- We can make software engineering more people-oriented with pair programming and more collaboration. Unfortunately, there may be limits to how people-oriented certain roles and Google can be and we shouldn’t deceive ourselves or students into thinking otherwise (some of our programs to get female students into coding might be doing this).
+					- Women on average are more cooperative
+					- Allow those exhibiting cooperative behavior to thrive. Recent updates to Perf may be doing this to an extent, but maybe there’s more we can do. This doesn’t mean that we should remove all competitiveness from Google. Competitiveness and self reliance can be valuable traits and we shouldn’t necessarily disadvantage those that have them, like what’s been done in education. Women on average are more prone to anxiety. Make tech and leadership less stressful. Google already partly does this with its many stress reduction courses and benefits.
+					- Women on average look for more work-life balance while men have a higher drive for status on average
+					- Unfortunately, as long as tech and leadership remain high status, lucrative careers, men may disproportionately want to be in them. Allowing and truly endorsing (as part of our culture) part time work though can keep more women in tech.
+					- The male gender role is currently inflexible
+					- Feminism has made great progress in freeing women from the female gender role, but men are still very much tied to the male gender role. If we, as a society, allow men to be more “feminine,” then the gender gap will shrink, although probably because men will leave tech and leadership for traditionally feminine roles.
+					- Philosophically, I don’t think we should do arbitrary social engineering of tech just to make it appealing to equal portions of both men and women. For each of these changes, we need principles reasons for why it helps Google; that is, we should be optimizing for Google—with Google’s diversity being a component of that. For example currently those trying to work extra hours or take extra stress will inevitably get ahead and if we try to change that too much, it may have disastrous consequences. Also, when considering the costs and benefits, we should keep in mind that Google’s funding is finite so its allocation is more zero-sum than is generally acknowledged.
+					- The Harm of Google’s biases
+					- I strongly believe in gender and racial diversity, and I think we should strive for more. However, to achieve a more equal gender and race representation, Google has created several discriminatory practices:
+					- Programs, mentoring, and classes only for people with a certain gender or race [5]
+					- A high priority queue and special treatment for “diversity” candidates
+					- Hiring practices which can effectively lower the bar for “diversity” candidates by decreasing the false negative rate
+					- Reconsidering any set of people if it’s not “diverse” enough, but not showing that same scrutiny in the reverse direction (clear confirmation bias)
+					- Setting org level OKRs for increased representation which can incentivize illegal discrimination [6]
+					- These practices are based on false assumptions generated by our biases and can actually increase race and gender tensions. We’re told by senior leadership that what we’re doing is both the morally and economically correct thing to do, but without evidence this is just veiled left ideology[7] that can irreparably harm Google.
+					- Why we’re blind
+					- We all have biases and use motivated reasoning to dismiss ideas that run counter to our internal values. Just as some on the Right deny science that runs counter to the “God > humans > environment” hierarchy (e.g., evolution and climate change) the Left tends to deny science concerning biological differences between people (e.g., IQ[8] and sex differences). Thankfully, climate scientists and evolutionary biologists generally aren’t on the right. Unfortunately, the overwhelming majority of humanities and social scientists learn left (about 95%), which creates enormous confirmation bias, changes what’s being studied, and maintains myths like social constructionism and the gender wage gap[9]. Google’s left leaning makes us blind to this bias and uncritical of its results, which we’re using to justify highly politicized programs.
+					- In addition to the Left’s affinity for those it sees as weak, humans are generally biased towards protecting females. As mentioned before, this likely evolved because males are biologically disposable and because women are generally more cooperative and areeable than men. We have extensive government and Google programs, fields of study, and legal and social norms to protect women, but when a man complains about a gender issue issue [sic] affecting men, he’s labelled as a misogynist and whiner[10]. Nearly every difference between men and women is interpreted as a form of women’s oppression. As with many things in life, gender differences are often a case of “grass being greener on the other side”; unfortunately, taxpayer and Google money is spent to water only one side of the lawn.
+					- The same compassion for those seen as weak creates political correctness[11], which constrains discourse and is complacent to the extremely sensitive PC-authoritarians that use violence and shaming to advance their cause. While Google hasn’t harbored the violent leftists protests that we’re seeing at universities, the frequent shaming in TGIF and in our culture has created the same silence, psychologically unsafe environment.
+					- Suggestions
+					- I hope it’s clear that I’m not saying that diversity is bad, that Google or society is 100% fair, that we shouldn’t try to correct for existing biases, or that minorities have the same experience of those in the majority. My larger point is that we have an intolerance for ideas and evidence that don’t fit a certain ideology. I’m also not saying that we should restrict people to certain gender roles; I’m advocating for quite the opposite: treat people as individuals, not as just another member of their group (tribalism).
+					- My concrete suggestions are to:
+					- De-moralize diversity.
+					- As soon as we start to moralize an issue, we stop thinking about it in terms of costs and benefits, dismiss anyone that disagrees as immoral, and harshly punish those we see as villains to protect the “victims.”
+					- Stop alienating conservatives.
+					- Viewpoint diversity is arguably the most important type of diversity and political orientation is one of the most fundamental and significant ways in which people view things differently.
+					- In highly progressive environments, conservatives are a minority that feel like they need to stay in the closet to avoid open hostility. We should empower those with different ideologies to be able to express themselves.
+					- Alienating conservatives is both non-inclusive and generally bad business because conservatives tend to be higher in conscientiousness, which is require for much of the drudgery and maintenance work characteristic of a mature company.
+					- Confront Google’s biases.
+					- I’ve mostly concentrated on how our biases cloud our thinking about diversity and inclusion, but our moral biases are farther reaching than that.
+					- I would start by breaking down Googlegeist scores by political orientation and personality to give a fuller picture into how our biases are affecting our culture.
+					- Stop restricting programs and classes to certain genders or races.
+					- These discriminatory practices are both unfair and divisive. Instead focus on some of the non-discriminatory practices I outlined.
+					- Have an open and honest discussion about the costs and benefits of our diversity programs.
+					- Discriminating just to increase the representation of women in tech is as misguided and biased as mandating increases for women’s representation in the homeless, work-related and violent deaths, prisons, and school dropouts.
+					- There’s currently very little transparency into the extend of our diversity programs which keeps it immune to criticism from those outside its ideological echo chamber.
+					- These programs are highly politicized which further alienates non-progressives.
+					- I realize that some of our programs may be precautions against government accusations of discrimination, but that can easily backfire since they incentivize illegal discrimination.
+					- Focus on psychological safety, not just race/gender diversity.
+					- We should focus on psychological safety, which has shown positive effects and should (hopefully) not lead to unfair discrimination.
+					- We need psychological safety and shared values to gain the benefits of diversity
+					- Having representative viewpoints is important for those designing and testing our products, but the benefits are less clear for those more removed from UX.
+					- De-emphasize empathy.
+					- I’ve heard several calls for increased empathy on diversity issues. While I strongly support trying to understand how and why people think the way they do, relying on affective empathy—feeling another’s pain—causes us to focus on anecdotes, favor individuals similar to us, and harbor other irrational and dangerous biases. Being emotionally unengaged helps us better reason about the facts.
+					- Prioritize intention.
+					- Our focus on microaggressions and other unintentional transgressions increases our sensitivity, which is not universally positive: sensitivity increases both our tendency to take offense and our self censorship, leading to authoritarian policies. Speaking up without the fear of being harshly judged is central to psychological safety, but these practices can remove that safety by judging unintentional transgressions.
+					- Microaggression training incorrectly and dangerously equates speech with violence and isn’t backed by evidence.
+					- Be open about the science of human nature.
+					- Once we acknowledge that not all differences are socially constructed or due to discrimination, we open our eyes to a more accurate view of the human condition which is necessary if we actually want to solve problems.
+					- Reconsider making Unconscious Bias training mandatory for promo committees.
+					- We haven’t been able to measure any effect of our Unconscious Bias training and it has the potential for overcorrecting or backlash, especially if made mandatory.
+					- Some of the suggested methods of the current training (v2.3) are likely useful, but the political bias of the presentation is clear from the factual inaccuracies and the examples shown.
+					- Spend more time on the many other types of biases besides stereotypes. Stereotypes are much more accurate and responsive to new information than the training suggests (I’m not advocating for using stereotypes, I [sic] just pointing out the factual inaccuracy of what’s said in the training).
+					- [1] This document is mostly written from the perspective of Google’s Mountain View campus, I can’t speak about other offices or countries.
+					- [2] Of course, I may be biased and only see evidence that supports my viewpoint. In terms of political biases, I consider myself a classical liberal and strongly value individualism and reason. I’d be very happy to discuss any of the document further and provide more citations.
+					- [3] Throughout the document, by “tech”, I mostly mean software engineering.
+					- [4] For heterosexual romantic relationships, men are more strongly judged by status and women by beauty. Again, this has biological origins and is culturally universal.
+					- [5] Stretch, BOLD, CSSI, Engineering Practicum (to an extent), and several other Google funded internal and external programs are for people with a certain gender or race.
+					- [6] Instead set Googlegeist OKRs, potentially for certain demographics. We can increase representation at an org level by either making it a better environment for certain groups (which would be seen in survey scores) or discriminating based on a protected status (which is illegal and I’ve seen it done). Increased representation OKRs can incentivize the latter and create zero-sum struggles between orgs.
+					- [7] Communism promised to be both morally and economically superior to capitalism, but every attempt became morally corrupt and an economic failure. As it became clear that the working class of the liberal democracies wasn’t going to overthrow their “capitalist oppressors,” the Marxist intellectuals transitioned from class warfare to gender and race politics. The core oppressor-oppressed dynamics remained, but now the oppressor is the “white, straight, cis-gendered patriarchy.”
+					- [8] Ironically, IQ tests were initially championed by the Left when meritocracy meant helping the victims of the aristocracy.
+					- [9] Yes, in a national aggregate, women have lower salaries than men for a variety of reasons. For the same work though, women get paid just as much as men. Considering women spend more money than men and that salary represents how much the employees sacrifices (e.g. more hours, stress, and danger), we really need to rethink our stereotypes around power.
+					- [10] “The traditionalist system of gender does not deal well with the idea of men needing support. Men are expected to be strong, to not complain, and to deal with problems on their own. Men’s problems are more often seen as personal failings rather than victimhood,, due to our gendered idea of agency. This discourages men from bringing attention to their issues (whether individual or group-wide issues), for fear of being seen as whiners, complainers, or weak.”
+					- [11] Political correctness is defined as “the avoidance of forms of expression or action that are perceived to exclude, marginalize, or insult groups of people who are socially disadvantaged or discriminated against,” which makes it clear why it’s a phenomenon of the Left and a tool of authoritarians.[/quote]
+					- [/quote]
+				- Prenuptial agreements no longer matter in Australia
+				  collapsed:: true
+					- https://www.rooshvforum.com/thread-65709.html
+					- J09/11, 15:02] T_Charles (R):[http://www.news.com.au/finance/money/wealth/landmark-high-court-ruling-spells-death-knell-of-prenuptial-agreements-in-australia-experts-say/news-story/0a1ff008a26ddfe50a3421f90053db49more great news
+					- [09/11, 15:02] T_Charles (R): "The decision in Thorne v Kennedy, in which a young Eastern European woman successfully fought to overturn a prenup she signed on the eve of her marriage to a millionaire property developer twice her age, has sent shockwaves through the family law fraternity and could trigger a wave of lawsuits seeking to overturn existing financial agreements.
+					- From a paltry $50,000 she would have been entitled to under the previous agreement, the woman is now set to become a millionaire in her own right."
+					- [09/11, 15:03] T_Charles (R): "The landmark case, which has been closely watched by family and commercial lawyers, started way back in 2006 when the then 67-year-old property developer met the 36-year-old woman on a website for potential brides."
+				- A judge has ordered 90 per cent of a couple's assets to the housewife
+				  collapsed:: true
+					- https://www.independent.co.uk/voices/a-judge-has-order-90-per-cent-of-a-couples-assets-to-the-wife-for-raising-their-children-in-a-a6942656.html
+					- As the court sees it, the husband can and will build his finances back up again
+				- Germany gets women-only rail carriages
+				  collapsed:: true
+					- A GERMAN train operator is to intro-
+					- duce a women-only carriage following
+					- the sexual assaults blamed on mi-
+					- grants from the Mid& East and North
+					- Mitteldeutsche will re-
+					- serve a carriage for passengers
+					- on the Leipzig to Chemnitz line, posi-
+					- tioned beside the train conductor for
+					- um safety. Boys aged 10 and un-
+					- ier will also be admitted.
+					- Germany accepted more than one
+					- •on migrants last year and their ar-
+				- Jordan B Peterson - great interview on gender pay gap, differences between men and women, leftist authoritarianism
+				- https://youtu.be/aMcjxSThD54
+			- Online game
+			  collapsed:: true
+				- Tinder game data sheet
+				  collapsed:: true
+					- https://www.rooshvforum.com/thread-65275.html
+				- Dating bio line
+				  collapsed:: true
+					- I added an this to my profile on a few websites, written Gmanifesto Style (my intro was telling girls I take the lead in relationships, unlike most guys):
+						- "Men nowadays eat a lot of soy with craft brews, and prefer to swoop dudes name Stu instead of eating fresh fish stew, steak, and game meats like I do.
+						- I have zero interest in following you on Soystagram or Soychat. Men who like "Brunch" or say "Sunday Funday" probably have more estrogen in their body than testosterone and need to be slapped around."
+					- Let's see how it goes.
+					- Dunno about stew but had some ceviche, liver, steak, and rabbit meat this week.
+				- Tinder - may need to do more to reset ELO score
+				  collapsed:: true
+					- New Facebook?
+					- They have seemingly made it impossible to reset your account unless you have a new FB + email + phone number + device + IP. Basically anything they can use to tie you to your old account.
+			- Date game
+			  collapsed:: true
+				- On bringing Tinder first dates out with friends
+				  collapsed:: true
+					- Pros
+						- Low investment from her side as she can bring a friend
+						- Hooks a friend up and it makes a fun shared experience
+						- She'll likely already be tipsy from drinking with friends
+						- Time-saving if you haven't got much time for dates - because if there's no chemistry you can pickup girls in the same venue or go with friends to another one
+					- Cons
+						- Stuck with her mostly rather than chilling with boys
+						- Distracting and competitive environment rather than controlled and isolated
+						- Seems more appropriate for Maybe girls rather than Yes girls who just need to be isolated
+						- If they're out with friends she may not want to appear slutty and go home with you
+						- Logistics may worse because she "needs to go home with her friends
+				- Good reason for home dates is because "we can't keep our hands off each other"
+				  collapsed:: true
+					- [16/10, 03:46] London Sophie King 7: You always just came over and we had sex
+					- [16/10, 03:46] London Sophie King 7: It would be nice to have a little catch up
+					- [16/10, 03:46] Aaron: I think that's because we can hardly keep our hands off each other
+					- [16/10, 03:47] Aaron: I come over for a whole day and we still fuck pretty much all of it
+					- [16/10, 03:47] London Sophie King 7: Yeah that's true
+					- [16/10, 03:47] Aaron: But yeah I'd like to catch up with you before devouring you
+					- [16/10, 03:48] Aaron: It's like an appetiser
+					- [16/10, 03:48] London Sophie King 7: Hahahaha builds the tension
+					- [16/10, 03:48] Aaron: I think I'll have to make some clothing requests then
+			- Never get gassed if a hot girl replies because often it's just out of boredom
+			- Girls Who Smoke Cigarettes
+			  collapsed:: true
+				- Deal breaker in LTR's.
+				- Don't care when banging them, however I tease the fuck out of them for being an ash tray.
+				- They get the hint and chew gym or use mouthwash.
+				- When they initially say, "Hey do you mind if I smoke?"
+				- I reply with, "sure as long as you don't taste like an ash tray after" -subtly hinting to have fresh breath
+				- They comply.
+			- LINUX story about how he became confident and happy
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-67543-post-1748996.html#pid1748996
+					- I'm much older than you but let me tell you a story.
+					- After fighting in a few wars, this was about 12-15 years ago, I came home thinking to myself I was going to finally live and be free and enjoy life.
+					- But I didn't feel free. I still felt constrained by society and what they thought and said I should do. I felt lucky to be alive and I promised myself I would live an amazing life, but I didn't really know where to begin or what to do.
+					- So I went to the beach in the middle of spring break, I guess I was your age at the time, and I said "you know what, I'm going to walk this bitch in a speedo." So I did. And it was embarrassing to me. I felt everyone was starring, even though they probably didn't even notice I existed. But I did it, and I felt free.
+					- A few years after that, I started exploring concerts and removing my shirt while dancing, usually when everyone else was fully clothed.
+					- A few years after that I went to the nude beach and said to myself, "I'm going to get naked and sit in the corner and hope no one walks by."
+					- A few years after that, I went to other nude beaches and decided to take a walk around naked and talk to women who were also naked.
+					- And then came the kink parties and swinger clubs, where clothing is optional but most of the time, I would walk in wearing a trench coat, nothing underneath, check my coat at the door, look around and say " Guess I'm the only one naked in the bitch tonight, oh well, let's party anyway."
+					- Now, I go to clubs almost every weekend because truthfully, I enjoy dancing because I feel free, and I usually do bring someone home from the club. And the first thing I do when I walk in the door of my apartment is say "Do you mind if I get comfortable and make some coffee?" and of course they say , "No, not at all" So I take my clothes off in front of them, butt naked, and walk over to the percolator and start making a pot of coffee. They laugh. They love it. They say ," Fuck, I'm going get naked too."
+					- The purpose of my story is not to persuade you to become a nudist, exhibitionist, or removing your clothes as some sort of game tactic. I'm just tell you that my life -- the life that makes me happy, all started one day, 13 or so years ago, when I said, I'm going to walk this beach in a speedo. And it took a decade + after that to really build a rock solid confidence and also to realize that this life is short and if you really want to enjoy it, you just got to stop giving a fuck about things and that includes what other people think about you.
+					- So maybe your "walking the beach in a speedo" is just saying hello to a girl in a coffee shop and building it from there. Doesn't matter, go do it. Don't compare yourself to others on an internet forum, we might not be virgins, but I assure you we have our own set of different problems that can be just as shameful to us as being a virgin is to you.
+			- "reverse Midas touch, everything turns to shit
+			- 9s and 10s don't exist without makeip
+			- Why millennials are having less sex than previous generations
+			  collapsed:: true
+				- Here's a quick summary of what's going on, in no particular order:
+				- 1. Women are so fat these days, that many men just can't be bothered. Fat kills desire.
+				- 2. Rape hysteria and the associated laws act as a disincentive.
+				- 3. Men are being taught to be wimps, single mothers can't teach men how to be desirable.
+				- 4. Free, easily available online porn and video games offer men huge outlets for their energy that require no risk, all reward, no matter how fleeting.
+				- 5. Technology addiction via cell phone and "social" media are killing real-life social skills, increasing awkwardness around the opposite sex.
+				- 6. The economy is still crap, and dating/mating/having kids is expensive.
+				- 7. The globalist propaganda says global warming and overpopulation is rampant, discouraging people from having children.
+				- 8. Slutty women and their STD's, pregnancy scares and personal drama make a man think twice about chasing tail.
+				- The bottom line? Each man needs to work even harder on self-improvement instead of wallowing in the status quo.
+			- Fertility awareness-based methods of contraception
+			  collapsed:: true
+				- best is the Ovulation method, next TwoDay, then Standard Days method
+			- Making more sense these days to have 2 facebooks
+			  collapsed:: true
+				- have 1 private FB for family and
+				- friends and another for girls and
+				- whoever else
+			- Special shout out to these ladies that always push me to give one more fuck less. as you turn me Into a better player I hold each of you in a special place in my toilet
+			- DO NOT make friends with ANY guys in the club
+			  collapsed:: true
+				- They will fuck you over, no exceptions. You can only ever roll with a fellow guy who's experienced the same 'abundance mentality' with girls as you (Enter RVF members!). Every other guy will feel like the night is an anomaly. They will do everything to leech off your approach and steal the girl.
+				- Even if that isn't the case, 99% of the time you're just better off approaching on your own rather than babysitting and having a dude fuck up your approaches.
+				- Note: Every time I'm not 'in the zone' I'll talk to some guy to try and help me back up. Whilst they usually help give me an energy boost, every time I regret it! I'll usually start approaching more in response to this and will then want the guy to fuck off. One year on I've still not learnt my bloody lesson!
+			- Surrogate mother
+			  collapsed:: true
+				- 1
+					- alternative : if you have the cash, find a
+					- surrogate from a 3rd world country,
+					- pay her a pile.... knock her up, when
+					- she's done squeezing it out.... take the
+					- kid back home with you and hire a
+					- nanny... preferably one you can bang
+					- sometimes....
+					- nanny gets grumpy, sack her and find
+					- another one...
+					- trust me - this is the only way to be
+					- guaranteed you will find a professional
+					- and non emotional mother for your
+					- kids, who won't suddenly hit some
+					- hormonal spike and cause you a total
+					- nightmare....
+					- kids don't need a mother as much as
+				- Cristiano Ronaldo has sons this way
+			- Hoop>push-pull
+			  collapsed:: true
+				- @Gabe: I usually reply •Meh, I
+				- guess you're alright" and shrug
+				- my shoulders whilst looking away
+				- (at other girls). Simple push to
+				- increase the effectiveness of a
+				- follow-up pull, which IS always touch
+				- escalation as a reward for seeking
+				- my favour and some comment
+				- about What exactly I like about her or
+				- something she should do more of.
+				- Push>pull>qualifier/hoop and repeat
+				- Putting it into words like that just
+				- made me realise that its quite
+				- different from a traditional model
+				- which is hoop>pull eg tell me what
+				- makes you unique>immediate touch
+				- reward. Anybody else run these
+				- pattems and found one they prefer?
+				- Hoop>push-pull would be the former
+				- actually
+			- Online dating/craigslist ad copy
+			  collapsed:: true
+				- Lets speak plainly, monogamy doesn't work in
+				- the 21st century and your're dissatisfied with
+				- the general lack of masculinity, and ennui that
+				- plagues the world.
+				- It is tacit that you're reading this, hoping to
+				- make up for your shortcomings. Women
+				- choose, men show up; many of the other
+				- posters are horny guys who can't get laid even
+				- if their life depended on it. I am not one of
+				- these guys; I am someone Who has no
+				- tolerance for time wasters and drama queens.
+				- All I ask is that you are attractive and don't
+				- cause me drama. We must use condoms and I
+				- expect you to be clean and well groomed.
+				- This is a no-strings attached symbiotic affair,
+				- fuck-buddies, friends with benefits, however
+				- you choose to label this, my size, technique
+				- and stamina will leave you drowning in a pool
+				- of your own fluids.
+				- I am an athletic young man who lives in a
+				- spacious, discreetly located apartment behind
+				- the cathedral in the city centre. My looks are
+			- ((649b1321-35ab-4a1f-ab53-70faa3ce568a)) cons
+			  collapsed:: true
+				- 1
+					- enerxv left, kids are the worst
+					- cockblockers in the world... you'd be
+					- better off living with 3 of your wife's
+					- angry fat feminist friends in the
+					- house... so sex goes out of the
+					- window.... now you are just two
+					- lonely hard up flat mates running a
+					- semi professional orphanage.... they
+					- may be genetically yours but when
+					- they shit their pants and vomit up
+					- the walls at 4am, they might as well
+					- be from Somalia...
+					- add to that costs, if you can't afford
+					- to factor in a nanny or home help,
+					- then she's going to be scrubbing and
+					- cooking like a third world maid for
+					- you, lonely tired and miserable after
+					- a while.... and without some of her
+			- Gym picking up
+			  collapsed:: true
+				- When I was at FF I saw the same
+				- people all the time and would do the
+				- talking before I worked out. Usually at
+				- the stretching area
+				- Go to line • I see you around here all
+				- the time, I'm gabe" or "l havent seen
+				- you here before are you new •
+				- 16:37
+			- Be less fuckboy, more good guy?
+			  collapsed:: true
+				- Girls have reacted better after showing good guy traits
+					- Sophie King
+						- Pinged her and had a convo. She was quite cold and called me a fuckboy, which I rejected
+							- [05/10, 17:01] London Sophie King 7: Yeah it was great sex but as I've said I'm with someone I actually give a shit about now so I'm not going to fuck anyone else, I don't need to.
+							- [05/10, 17:02] London Sophie King 7: And you're the definition of fuckboi not worth fucking things up with my guy
+							- [05/10, 17:07] Aaron: I got more than just sex out of it but maybe that's just me. Anyways I've said my piece, hope your happy and life is going well for you
+							- [05/10, 17:08] London Sophie King 7: Well that's not the impression you have off at all
+							- [05/10, 17:08] London Sophie King 7: You made it clear it was sex
+							- [05/10, 17:10] Aaron: Was more like friends with benefits to me. I liked our banter and just chilling with you. I wouldn't bother staying round a whole 24 hours otherwise multiple times I'd just bust once twice and leave
+							- [05/10, 17:11] London Sophie King 7: Fair enough
+							- [05/10, 17:11] Aaron: And I believe we did stay together like 48 hours or something ridic the first night together
+						- Few days later she pings me, we reminisce and talk about great sex and she says I'm a good guy pretending to be a fuckboy
+							- [16/10, 03:25] London Sophie King 7: I was a bit harsh on you the other day though. I'm really sorry about that
+							- [16/10, 03:26] London Sophie King 7: You were right you were never a dick to me or like fucked me over in anyway
+							- [16/10, 03:28] London Sophie King 7: We did get get on well and have fun together it was more than just fucking
+							- ....
+							- [16/10, 05:10] London Sophie King 7: Hahahaha
+							- [16/10, 05:10] London Sophie King 7: I'm going to go to sleep
+							- [16/10, 05:10] London Sophie King 7: Look at the fucking time
+							- [16/10, 05:11] London Sophie King 7: Got carried away
+							- [16/10, 05:12] London Sophie King 7: Night night hunny 😘😘
+							- [16/10, 05:13] London Sophie King 7: Also you pretend to be a fuckboi when actually you are a nice guy. Got your number
+					- Monisha (French Vietnamese tinder virgin girl)
+						- She kept asking how many girls have I slept with etc your a ladies man etc
+						- I gave it lots of deflection and dropped lots of cute boyfriend type bars to butter her up
+			- Stop fingering girls assholes
+			  collapsed:: true
+				- 26/8/17 was doing it to Annie and 2 hours later when she went to the toilet her asshole was bleeding a lot, period levels
+			- On discretion
+			  collapsed:: true
+				- Inform boys if it's a chick that they'll see at some point - otherwise it'll create unnecessary competition and waste each others time
+					- Annie engineered a situation at Berty's wedding in August 2017 where she wanted me to keep us a secret but then also flirted loads with Adam and Evan right in front of me
+					- I was banging her throughout the wedding weekend but they unnecessarily wasted their time and it gave me stress seeing how much game playing she was doing to try and make me jealous (which I did become after hours of her flirting with the boys openly)
+				- Only reasonable excuses to keep your relations with a chick on the down low
+					- With Annie:
+						- If boys didn't know her well, maybe "she has a boyfriend" ie would fuck with more dates
+						- Now 27th August idea - "she's looking for a relationship" ie would fuck with more dates
+					- These excuses allow me to hide that we're fucking without being bait because they know I wouldn't bother seeing a girl more than 2-3 times without fucking
+			- AirBNB or hotel room for bangs
+			  collapsed:: true
+				- True.
+				- You "magically had an AirBnB room
+				- by chance"
+				- Fuck! Some chicks are so stupid
+				- Smart ones play along
+				- craig Tribe
+				- They want to give the pussy away...
+				- It's just a matter of convincing them
+				- to give it away to you and not
+				- someone else
+				- 17:07
+				- I also dont lead on it's an airbnb until
+				- their head switches back on later... do
+				- not want these chicks knowing where
+				- I live
+			- Running A Train Game
+			  collapsed:: true
+				- When several man are trying to move the same girl (not group convo) don't bait out what the others have told you she's said to them
+				- Why - because otherwise you can't all continue to play her, her thinking that each of you don't know shit about the others
+			- Use male contraception because one misstep means child support and alimony until you retire
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-51130.html
+				- [quote='Excelsior' pid='1132660' dateline='1445212676']
+				- Babies are no longer a blessing to be celebrated in nations like Switzerland. The men see them as nuclear missiles pointed at their freedom and financial security, while the young women (prior to their aging and developing baby-rabies) see pregnancies as patriarchal demolitions of their independence and status as modern, progressive, women in the feminist mold. Children are also increasingly being turned into weapons in a gendered tug-of-war for resources.
+				- When a culture has developed in such a way as to turn the very act of procreation into a battle and its products into weapons welcomed by nobody, one cannot expect individuals to have many children. Nations in which such a state of affairs has settled can expect low fertility to be their permanent norm until said culture changes.
+				- [/quote]
+			- Social circle game
+			  collapsed:: true
+				- https://m.facebook.com/10Lifestyle/
+				- Distant Light
+				- https://www.rooshvforum.com/reputation.php?uid=3433
+			- On hunting for women in villages
+			  collapsed:: true
+				- http://www.rooshv.com/the-hunt-for-a-moral-woman
+			- Best way to undermine feminist arguments
+			  collapsed:: true
+				- [quote='Leonard D Neubache' pid='1626330' dateline='1502113528']
+				- I haven't worked in female dominated fields for a while now but I used to have a lot of fun with it when I did.
+				- I have a sort of a knack for shitlording right on the edge of provability when I'm in person, so when women would talk about female equality I would strike up my best Willy Wonka style meme face and do the whole "tell me more" routine.
+				- Believe me when I say, these morons thrive on locking horns knowing full well that the entire apparatus of the state will white-knight for them and crush anyone who's stupid enough call them out on their bullshit, but one of the few ways to really [i]really[/i] get under their skin and make them question their little religion is to just sit there smugly and force them outline the whole stupid concept in detail while providing that niggling but uncertain sense that you think they're a fucking idiot.
+				- For them, their usual spiel either gets total submission (ego rush) or almost immediately someone disagrees and these totalitarian harpies get to go full-retard on them with impunity (ego rush).
+				- But if you subtly undermine their sense of righteousness without providing them with a solid excuse to go apeshit at you then they're forced to actually make their case at length, which in short order begins to sound as ridiculous to them as it does to us.
+				- Eventually they'll be confused that their little sermon has left them feeling oddly hollow and drained. At that point you can get up, flash them a huckster's smile and say "y'know, I just can't [i]wait[/i] to see how it all works out."
+				- [/quote]
+			- Take a parent frame with everyone and see what approval they're looking for
+			  collapsed:: true
+				- Rthe truth is, everybody is approval seeking, all the time.  take all the machismo for instance, all the ‘alpha’, all the three hours a day in the gym, the tattoos.  just boys spending their whole life chasing their dead father’s imagined and forever unattainable approval.  how come you can’t even manage to live up to my most basic expectations, johnny?  you’re such a fucking disappointment.
+				- bitchy chicks.  oh the daddy issues, dahhhling.
+				- imagine yourself as the parent of whoever you’re talking to.  think of them as being a little kid.  get some cold reading skills, learn to spot how the approval got taken away in the first place.  everybody is handicapped by their childhood trauma, kittehs.  stuck in a loop at 5 years old.
+				- go listen to some guys hanging out drinking beer, analyze the conversation from an approval frame of reference.
+				- haha and then i said to her, i said, i don’t even care.  and you know i had like 14 beers and i wasn’t even drunk.  like highschool when we scored 46 touchdowns and it was like easy, bro.
+				- you think i’m cool now?
+				- how about now?
+				- and now?
+				- your shirt is approval seeking.  your shoes.  the next thing you say.
+				- unpack all that for a minute.  look at the strings lifting you this way and that.  see the dynamic, your role, how all the surface complexity just boils itself down to a few root patterns.
+				- and then there’s the hypnosis bit.
+			- Add Kenton Kneppers “Completely Cold ” to your arsenal. (Cold reading)
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-36583.html
+				- Over the past few months I’ve been using what has to be the most fundamentally sound and battle tested form of Cold Reading I’ve seen, used, or heard of. Its a short booklet that I digested over the course of a few days and then set to work. No props and nothing to memorise. “Kenton Knepper , Completely Cold”.
+				- This thing is LEGIT -> http://infothread.org/Entertainment/Magic%20and%20Card%20Tricks/Kenton%20Knepper/Completely%20Cold.pdf
+				- I don’t mind sharing it all because it doesn’t matter if everyone and his brother goes out to use it next weekend, if you don’t customise it, it just won’t work. There is also an audiobook called "Completely Cold Expanded by Kenton Knepper” you can find and download.
+				- Reviews:
+				- http://www.themagiccafe.com/forums/viewtopic.php?topic=299784&forum=111
+				- http://www.themagiccafe.com/forums/viewtopic.php?topic=299784&forum=111
+				- http://www.penguinmagic.com/p/2980
+				- Breakdown
+					- The breakdown of how I do it:
+					- * I mimic the phrasing the same way he does in the guide, until it no longer fits the scene and then I wing it. It’s HARD to fuck up. Just read the info a few times and imitate correctly before you try to innovate.
+					- * I start by telling them a light story about how my dad was an empath, this usually breaks into a 5-15 minute conversation about what an empathy is and how I’m glad I didn’t get “all of it” the way he did. “He couldn’t shut it out. I have to “reach” for it when I need it, like now…”
+					- * Then I hold my hands out, palms-up. Like I am being serious. 100% of the time the women I have done this to have instinctively just put their hands in mine. Then I smile and break the tension. I explain that we are going on this trip together, and that I need her “with” me emotionally.
+					- * When she tells me about any relationship involving a man/boyfriend, I let her finish, look at her real hard, then let her hands go in disgust. I tell her that we both know that’s not all of it. “Please don’t make me dig into this part of who I am if you are just going to lie…” THEN they spill A LOT more of the truth. You are able to pull out actionable intelligence. Once you get this down cold, you can start fishing for what triggers tears. If you can “accidentally” make her cry, DO IT! The hold her and say “we need to stop for tonight”. You then immediately bond with her and fuck her.
+					- * I don’t ask questions, I always make declarative statements.
+					- * I don’t use the words “Feeling” or “Sensing”. I say “Why do I feel like…?”
+					- * I always do it when we are alone, my place or hers.
+					- * I never go for longer than 20 min.
+				- Pitfalls
+					- Q
+						- It's very easy to engage with anyone on their favorite subject, themselves.
+						- They're experts, and they're more than willing to tell you everything.
+						- What you watch out for is the porcupine question. When a prickly idea is tossed back into your hands
+						- "What would make you say that? or "Why do you think that?"
+						- That's when you know you're messing with someone that's aware.
+				- The best cold reading book I've come across is the tradecraft one - The Art and Science of Cold Reading (see Calibre)
+				- Also if you youtube Derren Brown on Cold reading you get a great interview with lots of great insight. Derren Brown is the master of this. He charms the panties off every girl even if he's gay.
+			- BDSM thread
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-27278.html
+			- Women optimally have a kid young and when their kid is in kindergarten and they're 25 or so they can do the career thing if desired
+			  collapsed:: true
+				- ----Women Have Been Tricked Into Living Like Men // Lifestylehttp://www.rooshv.com/women-have-been-tricked-into-living-like-men
+				- The biggest travesty that has happened to women in the past 70 years is not misogyny or sexism, but being put on the same education and work timeline as men in spite of having a completely different biology. Millions of women suffer every day because they’re living lives that were designed and optimized for men.
+				- Most women lose the ability to have children without medical intervention at the age of 40. After that, it gets extremely hard for a woman to naturally conceive, and even if she manages to do so, she is 17 times more likely to transmit birth defects to her child than having conceived at age 20. Even at 35, a woman already sees a huge drop in her fertility.
+				- The culture infects young girls with an obsession on career so that they attend an expensive university and rush to work immediately after graduation, all with the grand design of enslaving them into the rat race during the most fertile period of their lives, sharply reducing the number of children they can have. If a girl is lucky, she may have twenty fertile years starting at age 18, but during that time she’s expected to get a degree, move out of her parent’s home into a “vibrant” big city, establish a career where her skills remain in high demand, fall in love with a man who makes more money than she does, marry him, feel financially secure enough to have a family, and then have her first child. Does this at all sound reasonable to you when her male counterpart has double the time she has? My father had his last child in his 50’s. Can a woman do that?
+				- Let’s assume for a minute that I won’t advocate for traditionalism or make the argument that a woman shouldn’t be able to make life decisions on her own, as I have before. What kind of solution remains that would allow women to pretend to be businessmen while still being able to have children before it gets too late? It is to get married and have children before attending university. If a woman does that, she merely has to wait until her last child enters kindergarten to enroll in whichever brainwashing factory she wants, graduate within four years through mostly day-time study, and then begin working while her children are being brainwashed themselves in public schools.
+				- If we assume that a woman who got married early had her last child at a still pert 26, that means she’d be ready for university at 31 and enter corporate hell at 35. Based on current life expectancy figures, that gives her six more decades to decorate her cubicle and LARP as a businessman.
+				- Right now a woman may be thinking, “But men get a head start in your plan, that’s not fair!” Yeah, well, you’ll live longer than me, which is not fair either. My solution allows women to take advantage of their biology and have children when their body is most ready for it. All that’s required is obtaining the love and commitment of a man who is asked to impregnate a young woman who is family oriented and not a whore. That will not be difficult. In fact, if you fit this profile, you can contact me with a full body photo and I may wife you up, but please don’t wait until you’ve sampled numerous penises because then your brain chemistry will have degraded to such an extent that you will sabotage any future relationship that has genuine love from a man who wants to provide for you.
+				- I’m sure you can find a dozen other logistical problems to my plan, especially concerning the economics of having one wage-earner support a family for at least five years, but I assume that the wife will know how to cook, grow basic foods in a garden, sew, and not want to display expensive possessions to internet nobodies on Instagram. The major hurdle is not finding a man willing to wife up a supple young bride, but finding a girl with half her brain still intact after her parents threw her into the mud pit of blue-haired feminist pigs.
+				- If you are a young woman in high school, I advise you to skip out on university, live with your parents, work a basic part-time job to earn money for tasteful makeup and clothing, learn important homemaking skills, and then use the remainder of your free time to securing the love of a man who wants a family. Assuming your standards in men are realistic (hah!), it won’t take you more than a year to find a worthy contender, because what man wouldn’t want to lay down roots with such a family-oriented woman?
+				- As a man who has spent only six years working in a corporate career, one that was actually somewhat interesting, I can guarantee that any job a woman takes will cause more damage to her happiness than not. Women should look at all the men who are quitting the rat race to become location independent and ask themselves why they are being convinced to participate in a rigged game that increasing numbers of intelligent men want nothing to do with. Ladies: you’re not missing out on delaying your career for a few years. It’s better to focus first on creating a family first, while you still can.
+			- What do friends of the fat cockblocker think of her?
+			  collapsed:: true
+				- [source] https://www.rooshvforum.com/thread-64776.html
+				- Virtue signalling - it would be seen as a good cause for an attractive girl to be friends with a fat girl
+				- And also many women have self confidence issues, and lack of self esteem, so they like to hang out with one who they feel superior to.
+				- Attractive friends like to have a fat/ugly girl around because it makes them feel better about themselves in comparison. Plus, the fat/ugly girl will often do all kinds of things for them like hold their purse, coat, etc. The fat/ugly girl does this so she can experience some of the reflective glow of being attractive. But basically, she is a secretary of sorts for the attractive girl. And the fat/ugly girl cockblocks because she fears being replaced by the man and losing her purpose. Since she can't get laid, nobody should get laid. It is certainly not about caring for her friend who she will ironically complain the whole night about doing things for her friend yet won't say a word to her until she fears you taking the friend away from her.
+				- Fat girls like dim light make girls look better.
+				- So they put up with her cockblocking, but she does drive them, buy them drinks hold their hair when they vomit, and look after them...
+				- But if a chick wants to bang you, she won't let the fat chick stop her. They just use the fat chick as the "bad cop" to say no to you.
+			- Black girls weave
+			  collapsed:: true
+				- Synthetic or real hair
+				- Normal hair braided into cornrows, then weave is sewn into it
+				- Lasts 1-6 months
+			- Routine - People are either show offs or discreet about different aspects of their lives. It says a lot what they choose
+			  collapsed:: true
+				- Eg showing off body and travel
+				- Discreet about intelligence, relationships, non Photoshop images
+			- Treat them mean keep them keen
+			  collapsed:: true
+				- [quote='Roosh' pid='1654575' dateline='1506468868']
+				- Kourtney's baby daddy laments that she only likes him when he's a bad boy.
+				- [quote]Scott, however, seems to have figured out why they don’t work well together.
+				- “Here’s the thing, every time I become too good of a person, she stops loving me because she fell in love with a guy who was a little bit f–ked up,” says Scott, whose issues with substance abuse have been chronicled on the series.
+				- “No, that’s not true,” Kourtney responds.
+				- “I treat you like royalty, you don’t say hello to me,” Scott notes. “I spit in your face, you’re like, ‘Hey babe.'”[/quote]
+				- http://pagesix.com/2017/09/22/scott-disick-kourtney-only-loves-me-when-im-a-little-bit-f-ked-up/
+				- [img]https://nyppagesix.files.wordpress.com/2016/03/gettyimages-470897870.jpg?quality=80&strip=all&w=600&h=400&crop=1[/img]
+				- I think it's more common for a man to look back at a failed relationship and think "I was too nice" instead of "I was too mean." That can be a tough red pill to swallow.
+				- [/quote]
+			- Text game lines
+			  collapsed:: true
+				- I'm saving myself for my second marriage 😇
+			- Women are the reason birth rates are low
+			  collapsed:: true
+				- [quote='Samseau' pid='1673712' dateline='1509332059']
+				- [quote='Leonard D Neubache' pid='1673660' dateline='1509327829']
+				- Plenty of guys find decent women, have kids and stay married. Millions and millions and millions in fact.
+				- Guys looking for excuses to maintain Peter Pan syndrome will find them wherever they need to.
+				- [/quote]
+				- Peter Pans have nothing to do with anything. If women wanted to have children and families they would have them. Men's actions barely matter.
+				- [quote='Samseau' pid='1673680' dateline='1509329615']
+				- If women want to have families and babies, then they will get them. It's that simple. Between WW1 and WW2 somewhere around 10-35% of men of all European countries were murdered, and yet birthrates remained high and population continued to increase. Didn't matter that there was a massive man shortage. Women still had families and babies.
+				- On top of that, the highest birthrates in the world today occur in shit poor countries where people crawl around in dirt. Women are popping out 4-8 kids a whack in these places despite living like it's the bronze-age.
+				- Meanwhile, in our "advanced" first-world nations, where money and men are plentiful, somewhere close to 50% of women aren't having children and around 40% of those who do have kids are welfare moms. White birthrates are negative, despite the women having more than virtually any other women on earth or history, and people want to blame the men? :laugh:
+				- If women want to have children and families, they will have them and few things can stop them from doing so. Therefore the only possible explanation today is that women do not want to have children and families.
+				- [/quote]
+				- If you want to have a civilization worth a damn, you need more than 50% of the women having children. You actually need to feel pain at all the lonely broken hearts out there, both male and female. You must love your Neighbor.
+				- [/quote]
+			- Alcohol and socialising
+			  collapsed:: true
+				- Whenever I go out at night with my friends, they’re all drinking. I can directly see how the alcohol helps them enter a more relaxed and fun state where they enjoy the loud venue while I remain stiff as a board. I was also reminded how deeply alcohol is integrated into modern dating, since girls insist on drinking copious amounts of booze at night and on dates. It wasn’t a big deal that I wasn’t drinking at the bar while hunting, since my soda water with lemon could easily be confused for a drink, but not drinking on dates ensured the girls wouldn’t drink either, greatly reducing the speed to sexual fulfillment.
+				- I’ve had some experience with “sober game” in Ukraine, where I met girls who didn’t drink, but having to do it on every single date posed a big challenge. The result of sober dates is that you actually have to like each other beyond physical attraction, because your logical mind remains quite strong, ready to dismiss the girl for practical reasons that you wouldn’t have come up while inebriated.
+				- Going completely sober ultimately means that it will take longer to sleep with any girl. The benefit is that you’re unable to bang subpar girls just for the notch and are able to spot genuine connections that don’t require a drug to blossom. In terms of health, the benefits are no hangovers and improved sleep, especially on nights I would have consumed more than two drinks. I can stay out late on the weekend and wake up the next day without feeling any negative effects.
+			- ((63a9ad65-6a19-4f8a-8eac-571fe99cd1b6)) women advice
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-48360-post-1493326.html#pid1493326
+				- http://www.playboy.com/articles/donald-trump-interview
+			- Shit test - checking out other guys
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-51491.html
+				- https://www.rooshvforum.com/thread-62280.html
+			- Join a church if getting married
+			  collapsed:: true
+				- Belonging to a church can be a great move - if it means you're surrounded by people who firmly respect the institution of marriage and disdain divorce. Feign belief, keep your mouth shut about the silliness of Noah's Ark, and reap the benefits. Or would you rather your wife hang out with the Sex and the City crew?
+				- [source] https://www.rooshvforum.com/thread-30406-post-587184.html#pid587184
+			- Conversation skills
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-62910.html
+			- dealing with clingy girls or girls who fall for you
+			  collapsed:: true
+				- [quote='redbeard' pid='1582656' dateline='1496305664']
+				- I had a plate who was getting too clingy so I had to cool her down.
+				- She was a nice girl but probably had high notch count. I didn't want to burn bridges or piss her off because karma plus I wanted to leave the [s]legs[/s] door open for future bangs.
+				- She kept texting me to hang out so I sent her a text like this:
+				- "Hey I don't think I can hang out, I'm kind of getting into a serious relationship and think it'd be best if we didn't mess around."
+				- This way:
+				- -She isn't hurt
+				- -Says I still like her enough to respect her
+				- -Shows that I was banging other chicks
+				- -Increased jealousy ^^
+				- -I'm being "a good guy" :angel:
+				- I had been reading a lot of YaReally so this sort of open relationship stuff was on my mind. It worked out well.
+				- She was totally cool about it and we kept texting on and off. A few weeks later I was bored and horny so I texted her to hang out. AFTER banging she asked what happened with the other girl, I said "oh it wasn't working out." That was the end of the discussion.
+				- [/quote]
+			- Dealing with GF misbehaviour
+			  collapsed:: true
+				- https://www.rooshvforum.com/thread-60505.html
+			- ((64c548a8-1059-4040-a28f-304f2010dba3))
+			  id:: 644c0b73-f862-4b71-87ad-d19b0f03d317
+			- Gamma
+			  collapsed:: true
+				- [quote='AnonymousBosch' pid='1519918' dateline='1488417819']
+				- [quote='Moma' pid='1518817' dateline='1488288508']
+				- bosch, can you elaborate on the Gamma nature? What are the traits?
+				- [/quote]
+				- Way off topic, so feel free to skip.
+				- Heh. I'm still under a Warning for discussing the subject, so I'll be tactful here.
+				- ((62ffc2ed-3097-465c-9dc2-5fcb7f09e322)) originated the concept on his blog - most commonly using it to explain the behaviour of sci-fi SJW John Scalzi - an amazing trenchant observation that rung true with many guys I've known over the years. I've expanded further upon his ideas at length with my own observations - I'm theorising it's comes from boys raised by Narcissistic Mother and Weak or Absent Fathers, who become [i]female[/i] in thought, and it would sit on the female to male spectrum somewhere at the midpoint between both poles in the blurry areas where people thinking more like the opposite sex than their own (gays, lesbians, transexuals and Gammas). I think it's as far as a straight man can get into embracing the feminine without physically sucking dick.
+				- Here's me considering the concept discussing Davis Aurini's battle with Gamma Jordan Owen, and noting how widespread a personality type it has become amongst Millennial Men, (including how I believe it would benefit the left to destroy the nuclear family if it reliably-produces this type of personality). You should get the gist of what Vox accurately-described that I could easily recognise it:
+				- [url]https://www.rooshvforum.com/thread-41162-post-1328222.html#pid1328222[/url]
+				- Clear cut examples of Gamma Behaviour here:
+				- [url]https://www.rooshvforum.com/thread-41162-post-1328473.html#pid1328473[/url]
+				- There's another discussion somewhere where I mention how their sneaky, ingratiating behaviour gets under their would be romantic target's skin, day after day after day, until the building disgust for the man eventually triggers women into violent emotional breakdown or physical violence. There was a thread on here yesterday about SJW Women complaining about what emotionally-abusive scum Male Feminists are. No shit, toots. I could have mansplained that to her years ago.
+				- Which reminds me: I wonder if I every wrote the Sanitary Napkin story on here?
+				- I do remember also discussing somewhere how my stepfather would join a club in town, then try to make power plays to take over to put himself in the position of running the club, not understanding he's overbearing and not a natural leader, usually leading to the splintering of the club where the majority form another club without him - the classic 'No Homers' club from the Simpsons.
+				- Now, I said at the time I was interested in the club he'd just joined to get away from his previous club, describing the 'drama' and 'arsesholes' involved in it and how he liked this new one because everyone was friendly and easy-going. Then I mentioned a few weeks later how he was complaining about someone was taking too long to do shoot their targets - and by now I'm thinking "Fuck, can't you ever just go with the flow for once? - and how he reported them to the organisers. This lead to him designing a spreadsheet on his computer to show them how to do the scoring 'properly' and how he would then volunteer to keep score of everything for them.
+				- I said this was great for me, because I should be able to eventually buy all this gear off him 'cheaply' if I was patient. Aurini joked something like "about a year then?"
+				- So, Aurini, if you read this: [i]guess who ended up buying all his (good quality) Archery gear late last year, now that he's joined the Rifle Club?[/i]
+				- :lol2:
+				- This is also good for me, because, given my analytical mind - I've always been naturally drawn to the concept of Sniper Shooting. About a year from now, I should have some damn decent equipment, (though my travelling mate has been teaching me to shoot a rifle well over the last two months).
+				- Also: late last year I found a box of letters from my teenage years stored under my parents house. I've no idea how they weren't thrown out during regular Spring Cleaning, but I noted a few from a Gamma Friend I've mentioned in the past, who later became a Big Wheel in the Comic Industry, still doing it to this day in his late 40's - he was two years older than me. See the continued obsession with teenage crap you should grow out of?
+				- [img]https://i.imgtc.com/aWLij58.jpg[/img]
+				- This is remarkable to me because, in the space of one paragraph, he nails most of the major Gamma tells.
+				- 1) Note that this is a Nineteen Year Old Man writing but he is circling each 'I' like he is a teenage girl. Gammas seem to adopt the likes and mannerisms of the female to try and sneak that little bit closer to them. This prick was still buying Duran Duran albums in 1990 long after all the girls he knew had lost interest, just in case. Go read some John Scalzi tweets - it's pure Gawker girl - sort of what you'd get if you glued a beard made out of pubes on Lindy West.
+				- 2) He totally 'bombed out' with Fliss. Note the Gamma's complete denial of objective reality and not having a realistic understanding of his socio-sexual ranking, thinking he was cooler and more attractive than he actually was. She was a 9, he was a pizza-faced 5 into D&D and X-Men Comics.
+				- 3) Also note the Gamma's favourite tactic of passive-aggression: "I was nuked by three certain people I won't name because YOU know who you are." They're scared of direct confrontation so they always avoid saying what they mean, and leave plausible-deniable ways out. Claiming to be joking is a common one.
+				- 4) Note the White Knighting instinct and how personally he takes the slight on M'Lady's honour: "Don't call her Felicbitchity - [b]I hate it[/b]." (Funnily enough, the nickname, given by her two sisters, was actually Felicibitch", so he wasn't paying that close attention to his would-be Queen).
+				- 5) "And I'm not going to forget her either..."
+				- Gammas fixate: they never forget, never move on. They're too socially-autistic to get 'hints', and have too unrealistic a self-image to even accept an outright rejection. They drive normal women [i]fucking nuts[/i], and this is why - if they do partner up - it's always with a strong, dominant Feminist woman type who keeps their shit - to some degree - in line.
+				- 6) The whole thrust is the Gamma Tell of never being able to admit ever being wrong. Most of us do this now and then, no-one likes to lose face, but, with the Gamma it's taken to an obsessive level where - even in the face of direct evidence that contradicts their statement - they will still claim to be right.
+				- In this case, the Gamma couldn't admit he'd made a play for a girl far out of his league, and failed. She toyed with him for an afternoon to extract some money out of him, then moved on. She'd try this sort of shit with me, but I'd just said something along the lines of. "Look, I'm an easy going bloke. If you need a lift somewhere when I'm leaving, just ask. You don't need the whole performance of [i]luring me into it[/i]."
+				- When there's teenage sisters at total war within one household, you learn to keep things as bullshit-free as possible, especially when you're dealing with two Veronica Lodges and a Daria. Thinking about it, it was kind of like my latter jobs working Security: it was all about de-escalation.
+				- For greater context: in-between when I wrote him a letter and received his response, I'd been at the sister's place the next day, and heard the whole discussion about what transpired, so, whilst Gamma Boy thinks this is the start of some Grand Romance, because he's so impossibly-cool and smarter than everyone else, and the only reason why people dislike him is because they're jealous of him, the real discussion went more like this.
+				- The Players:
+				- I was dating the older sister, I've mentioned her before as Butterface Jennifer Connelly. [i]Legendary[/i] tits.
+				- Felicibitch was the middle Sister and the Queen Bee Bitch in the household.
+				- The younger sister was a dead ringer for Winona Ryder, and the classic deadpan Gen X'er, but her being four years my junior at the time ruled her out in terms of High School Dating Dynamics, but I could tell she'd grow up to be a very beautiful woman, (which she is now, even in her 40's).
+				- I'd gotten a phone call that morning asking me to come over, because they needed something buried, and 'Dead Things is Boyfriend Territory'. Turns out it was a Dead Kitten.
+				- Digging a grave for it and laying it to rest, I then hear the whole story of what happened the day before, laid out:
+				- Gamma was being annoying as fuck, so another mate, my girlfriend and I had snuck off one by one down the backyard to get away from him for a bit as he played on the computer.
+				- After a while, we returned to find Gamma sucking up to The Bitch, and the wheels in her head turning.
+				- Butterface tells the Bitch to not talk to her 'friends', even though Gamma was just someone we all patiently-tolerated, rather than liked.
+				- This of course made Bitch talk to him just to spite her sister, because she knew it would send her nuclear, and, as ugly as Gamma was, putting up with him for a bit was worth it to annoy her.
+				- A few minutes later, she realised he had money, then she said they should go up to her bedroom for some privacy.
+				- Butterface was losing her shit over this, understanding, unlike Gamma, that this was just to piss her off.
+				- Winona, who had been watching the whole thing over her book, said "Why are you angry? We got [i]rid[/i] of both of them."
+				- I said she had a point, and that we might as well head into town without him, because he always would try and control what we did and where we'd go in town, and when we'd all overrule him, would passive-aggressively sulk for hours.
+				- We came back hours later to discover her in her kitchen, with bags of clothes. Gamma had taken a Taxi into town with her, and let her spend big.
+				- She's was recalling this as I laid the Kitten down, and was laughing about how 'inexperienced' he was with women. "Like, normally, they'd expect a kiss at the least. I didn't have to do [i]anything[/i]."
+				- "Would you have?" Winona asked.
+				- "Oh, god no." She said. "But I didn't let him touch me [i]at all[/i] yesterday."
+				- I was looking down at the grave before shoveling dirt in, and asked "How does the kitten fit into all of this?"
+				- Butterface, who had calmed down somewhat overnight, said "After you went home yesterday, [Gamma] came back with the Kitten."
+				- Winona rolled her eyes. "You should have heard it Bosch. It was sooo pukey."
+				- Bitch sighed. "All this fluff about him worrying about me having to sleep alone and that I needed something that was as cute and precious as I was."
+				- I groaned. Winona was right. I could image that was the sort of thing Gamma would say to a woman.
+				- "There was more babytalk to it than that," Butterface said.
+				- I pointed to the kitten. "And?"
+				- Butterface again: "Well, this was all at the doorstep. He didn't come in."
+				- "... didn't want impose..." Winona strung out the last word to mock the floweriness of it.
+				- "... so when we put the Kitten down," Butterface continued, "it looked really scared, shrunk away from us all and ran and cowered in the corner."
+				- To her credit, Bitch did look genuinely sad here. "We tried everything to calm it down. It was [i]terrified[/i]."
+				- Winona snorted her contempt. "Think about it. The first human it saw was [Gamma]. Can you really blame it for being traumatised by people?"
+				- Bitch went to say something, stopped, then nodded.
+				- Butterface sighed heavily. "We put down a basket and some warm milk and gave it space, but when we woke up lying in the basket like that. I guess it died in its sleep."
+				- "Durr!" Winona waved her hands around wildly. "[Gamma] touched it! I'd die too!"
+				- "Cover it up," Bitch said, as she walked away. "And tell him I have a boyfriend."
+				- As I covered it up, I said "I can't help but feel that the cat was the Innocent in all this."
+				- Butterface shot an annoyed look at her departing sister. "If anyone had to die, why couldn't it be [i]her[/i]?"
+				- See why I never had any white knight delusions about women's behaviour?
+				- ----
+				- So this was all the information I had when I wrote to Gamma mentioned how he'd 'bombed out' with Felicity. Now re-read his reply above. See the level of social-autism involved? The complete inability to read people and events realistically?
+				- [i]That's Gamma.[/i]
+				- [/quote]
+			- give girls from poor countries some spending money
+			  collapsed:: true
+				- http://cedonulli.com/paying-bits-for-bits/
+				- Also can pickup girls saying you're looking to pay for a tour guide
+			- AWALT
+			  collapsed:: true
+				- [quote='blck' pid='1575728' dateline='1495434376']
+				- Anonymous Bosch On the advantage of getting muscles
+				- [quote='AnonymousBosch' pid='649405' dateline='1391943101']
+				- [quote='dreambig' pid='646824' dateline='1391657396']
+				- I used to be the skinny guy who got laid anyway and argued that muscle doesn't matter.
+				- Let's just say that I was totally wrong.
+				- At 6'2 and 200 lbs I'm by no means "big", but the difference in attention is huge.
+				- IMO the only guys with the right to comment are the ones who have made the full transition.
+				- Personally, my biggest friends all get laid like crazy. And this is in Asia where muscles aren't supposed to matter.
+				- [/quote]
+				- [b]We can't trust what women say they like in a man, especially as there's a lot research that shows that a womea's concept of what she likes is fluid, and largely-dependant on the man she's currently with[/b]. And I'd agree men need to experience both being 'fit' and being 'big' for themselves and go with whatever gets the notches for them.
+				- I added about 10kgs (22lbs) of muscle in the back half of last year, which took me up to 220lbs. Girls kept calling me a 'beast'. The ugly 5-and-unders, and the overinflated, bitchy 6-7 range seemed to get resentful and pre-filtered themselves out from any real world conversations with me [I]when they're with their friends[/I], which was all right with me, but damn, do they look as they sip their frapps, and if you have to social interact with them isolated from their circle, then they're all big eyes.
+				- Day game improved greatly. The prettier women were very friendly and polite. An 8.5 opened me in the Health Food Store, asking for 'nutritional advice', and swung that into a training session by the lake here and a few weeks of post-workout banging. Tiny-waisted women would talk to me in the supermarket, opening me by asking if I could reach something on a high shelf for them. Girl game recognised. A lot more pokes and jokey 'plausible-deniability' flirting from girls in my circle and on Facebook too.
+				- There were also instances of random sexual come-ons where women would simply decide they wanted me to fuck them. This'll sound like crap, but I'm sure the bigger guys will recognise the random shit that happens.
+				- - A chick rubbing up against my cock in an elevator. Didn't bang - ugly.
+				- - At a concert, a tidy blonde walked past, looked at me, came back, threw her arms around me and said "I'm coming home with you." Saw no reason to argue. Banged.
+				- - A girl stopped me in the street and said they needed a male stripper for a friend's bachelorette party, and would I be interested, but she'd need a 'private show' first to see if I was any good. Banged.
+				- - The early 20's temp at work corned me in the copy room at my previous job and started talking how she was studying 'Reiki massage' and needed someone to practice on, if I'd like to come around one night, coupled with stroking my arms and arse, with me praying one of the lesbo haired HR bitches didn't wander past. It was literally the first time she'd spoken to me in 3 weeks of her working there, and that's what she opened with. Banged, but after she stopped working for us. I don't shit where I eat.
+				- - A note tucked into the seat on my bike with a number promising 'the best blowjob of your life', which I never rang. Suspected it was a dude.
+				- - A mate's neighbour takes in his washing during a dust storm, rewashes it for him, then hangs it on his line a few minutes after we both return. She bends to the basket and hangs, over and over, short summer dress with no-underwear. Her husband was at work. Didn't bang, but he did. Smokin' hot, but batshit crazy. She told him during sex she'd take on both of us if I wanted and she was into being beaten and autoerotic asphyxiation.
+				- I suspect extreme size makes thirsty girls who hunger for dominance act out irrationally.
+				- Slimmed back down over December for health reasons. Down to about 200 now with lower body fat. Life seems [I]less like a porno[/I].
+				- [/quote]
+				- AnonymousBosch On the 4 rules predicting female behaviour, had to browse through his post and it help get his next gems as he refers to it a lot
+				- [quote='AnonymousBosch' pid='1336174' dateline='1467163465']
+				- [quote='LINUX' pid='1336098' dateline='1467154334']
+				- I stopped throwing hissy-fits and saying "all women are the same" in third grade.
+				- [/quote]
+				- I have 30 years of banging women under my belt - enough that I'd never publicly voice the count on here because I'd just called a liar - and 45 years of being friends with women and observing their social interactions.
+				- [b]AWALT.[/b]
+				- Noticing the predictability of their "I wouldn't normally do this" patterns, this is how I formed my four predictive rules of female behaviour:
+				- [quote]Rule #1: Everything I want, [i]I believe I deserve[/i].
+				- Rule #2: What's the [i]least amount of effort[/i] I can expend to get what I [i]believe I deserve[/i] as [i]quickly as possible[/i]?
+				- Rule #3: If the [i]quickest and laziest[/i] route to achieving what I [i]believe I deserve[/i] would require serious moral or social transgressions, then [i]those rules don't apply to me[/i], because of how [i]righteously-deserving[/i] I am.
+				- Rule #4: If I am stigmatised for any moral or social transgressions in the [i]righteous pursuit[/i] of what I [i]believe I deserve[/i], then what is the [i]least amount of effort[/i] I can expend to defuse criticism, deflect blame or escape punishment?[/quote]
+				- This is why I'm not remotely-surprised that the potential first Female President of the United States should already be in Prison for crimes she thinks 'don't apply to her'.
+				- [img]https://upload.wikimedia.org/wikipedia/commons/thumb/2/27/Hillary_Clinton_official_Secretary_of_State_portrait_crop.jpg/120px-Hillary_Clinton_official_Secretary_of_State_portrait_crop.jpg[/img]
+				- I found a picture the other day of the Slootiest Sloot I ever knew - astronomical notch count - [i]around her 29th birthday[/i] - bragging about getting engaged to her new boyfriend.
+				- [i]I guarantee experienced Players know what is coming.[/i]
+				- Looking at the pic of the pair of them, I remember at the time thinking how wrong he was for her. The guy was a overweight Beta Schlub - a far cry from all the muscled-up Grunt Dick she was used to riding.
+				- However, he was a Lawyer. She was the first case of [i]Alpha Fucks, Beta Bucks[/i] I experienced through direct observation, but not the last, as I've seen many other reformed Sloots marry up Doctors, Lawyers and High Ranking Public Service Men since. In retrospect, it also explained a lot about the second marriages of the women of my mother's generation.
+				- Interestingly, the wedding pictures - him leaning in to kiss her, her leaning away - [i]were the first and last time I ever saw any pictures of him[/i]. Her online world for the last 16 years has completely-revolved around pictures of her and the daughter he gave her. I mean, she's still wearing the expensive wedding ring but, [i]it's like the guy doesn't exist in her world at all[/i].
+				- I remember laughing about how at least he'll enjoy her blowjob skills and she said "Oh, I don't do that with him. [i]I love him too much.[/i]. He thinks I've only been with my ex-husband."
+				- Bluntly: this is a girl who once bragged to me she could deep throat a guy's cock and lick his balls at the the same time. I mocked her and said "You just need a bigger challenge." Now, I'm very-happy with what God gave me, but damned is she didn't take me into the toilets and show me that she wasn't lying. I didn't think that was anatomically-possible, and I'd already been around by then.
+				- A girl only learns to be that much of a skilled whore by years of committed, regularly dick-sucking, where if you laid them out end to end you'd have a couple of miles of dickroad that she's gobbled up like Pacman.
+				- Incidentally, she was back in Australia around Easter, and apparently had contacted my sister, multiple friends, my old workplace and even turned up on my stepfather's doorstep trying to track me down, because she 'just wanted to catch up.'
+				- [i]I wonder what she wanted?[/i]
+				- The thing about Reformed Sloots and their Beta Money and Baby Dispensers... the wedding ring on their fingers has never once given them pause for trying to get fucked again by me. Worse still, the physical presence of their boyfriends hasn't stopped them openly-flirting with me or trying to flamboyantly catch my attention whilst they stand there, clueless, extinguishing any slight flame of suspicion with the Gilded Snuffer of 'She's Not Like That'.
+				- Sometimes I want to grab them, shake them and say "Be a fucking man!" but, like the guy in this original stories, they're just too far gone.
+				- I once saw a girl start making out with another girl in front of her boyfriend, trying to prove that marriage hadn't made her 'sexually-boring' when I accused her of 'slowing down'. The other guys in the group were all whooping and hollering, and you could see her husband getting that glimmer of hope that maybe his sex life was about to get a [i]lot[/i] more interesting, the naive fool.
+				- She stopped, and looked directly at me, rather than her husband, waiting for comment, thinking all men are led by their dicks and that her little show was going to turn me into a horny, slavering dog.
+				- I remained unimpressed. "If you keep up that kind of behaviour, you'll be wearing dungarees and sporting a mullet by 40."
+				- I wasn't born cynical to female bullshit. I became that way through years of experience with them. Note that I don't hate them for their bullshit - It's just what I expect girls to do.
+				- Why? AWALT.
+				- [/quote]
+				- [/quote]
+			- journal 10-6-17
+			  collapsed:: true
+				- Night out with tribe, ended up in Camden after dinner and went to KOKO
+				- Got 2 girls numbers and was gonna go home with another 2 girls with Mike. Made out with my own and we had a teasing disagreement about levels of tongue to use
+					- > Had a similar problem with both Britt and her friend whilst in Prague. They both said I use too much too fast. That's what really turns me on but maybe I just need to slow it down in general
+				- Could have potentially lost a girl due to my weak AMOG skills, fortunately the girl claimed me
+					- > Brush up on AMOG skills, how to disarm players
+			- The death of night game
+			  collapsed:: true
+				- http://www.rooshv.com/the-death-of-night-game
+			- 5 Love Languages
+			  collapsed:: true
+				- Acts of Service
+				  collapsed:: true
+					- Can helping with homework really be an expression of love?
+					- Absolutely! Anything you do to ease the burden of responsibili-
+					- ties weighing on an "Acts of Service" person will speak vol-
+					- umes. The words he or she most wants to hear: "Let me do that
+					- for you." Laziness, broken commitments, and making more
+					- work for them tell speakers of this language their feelings don't
+					- matter. When others serve you out of love (and not obligation),
+					- you feel truly valued and loved.
+				- Physical Touch
+				  collapsed:: true
+					- A person whose pnmary language Is Physlcal Touch Is, not surprlslngly, very touchy. Hugs, pats on
+					- the back, and thoughtful touches on the arm—they can all be ways to show excitement, concern,
+					- care, and love. Physlcal presence and accesslblllty are cruclal, whlle neglect or abuse can be unfor-
+					- gMabIe and destructive. Appropnate and timey touches communlcate warmth, safety, and love to
+				- Ouallty Time
+					- In Quality Tlme, nothlng says "l love you" Ilke full, undMded attentlon. 8elng there for thls type of
+					- person Is crltlcal, but realty belng there—wlth the TV off, fork and knlfe down, and all chores and
+					- tasks on standby—makes you feel truly speclal and loved. Dlstractlons, postponed actMtles, or the
+					- fallure to Isten can be especlally hurtful. Whether It's spending unlnterrupted tlme talklng Mth
+					- someone else or dolng actMtles together, you deepen your connection with others through sharing
+				- Recelvlng Gifts
+					- Dont mlstake thls love language for materlallsm; the receMer of gifts thnves on the love, thoughtful-
+					- ness, and effort behlnd the gift If you speak ths language, the perfect gift or gesture shows that
+					- you are known, you are cared for, and you are prlzed above whatever was sacrificed to bnng the
+					- glft to you. A mSsed blrthday or a hasW, thoughtless gift would be dsastrous—so would the aty
+					- sence of everyday gestures. Glfts are heartfelt symbols to you of someone elseS love and affectlon
+					- for you.
+				- Words of Affirmation
+					- Actlons don't always speak louder than words. If this Is your love language, unsollclted compllments
+					- mean the world to you. Hearing the words, "l love you," are Important— heanng the reasons behind
+					- that love sends your splrlts skyward. Insults can leave you shattered and are not easlty forgotten.
+					- You thrive on heanng klnd and encouraglng words that bulld you up.
+			- Men v Women
+			  collapsed:: true
+				- https://www.youtube.com/watch?time_continue=185&v=OOZ-qG4pMw4
+				- Women are not loyal
+				- https://www.rooshvforum.com/thread-11203.html
+			- Game theory videos
+			  collapsed:: true
+				- https://youtu.be/H3OhvYNdvRw
+				- RSD Julien
+					- https://youtu.be/MBH5MSUkROE
+					- https://youtu.be/7dd4CjPXhkg
+					- How to create massive amounts of drama and get away with it
+					- https://youtu.be/qBkXWTWAyJc
+				- Johnny Soporno
+					- https://youtu.be/1R-hxqhJls8
+				- https://youtu.be/MI1Y3EPOONI
+				- It's not about the nail

@@ -1,0 +1,30 @@
+- [{Life Stages Archive}](((62cec6ba-350f-4d85-a1b0-1e804a423a4b)))
+- [[Reminders]]
+- ## Daily
+	- [10:30 - 11:00 Wake Routine AKA Morning routine](((62d03497-69e2-4dd5-80c5-9f2d573a74ca)))
+	- [[Gratitude Journal]]
+- ## Work
+	- [[Current-job]]
+- ((635d818c-e7b6-4619-ac37-e00d4cf479d4)) : ((6367bbd2-aa95-4311-998e-dfe603f78101))
+- [[World]] : ((62d03627-b944-460a-a034-001509fb5f2f))
+- [Key Systems](((62d05f36-5b1b-4969-99e8-540017192620)))
+- ## ((644c0a68-4e5c-4fcb-90d7-beb68a4694f3))
+	- [One-Time Expenses](((62d05f28-db96-4e83-89c3-349f60a31aba)))
+	- ((6436add2-fb25-4304-8966-196044bc1019))
+- [Overcoming Obstacles](((62d0cbab-3aca-4af3-836d-b51792264a02)))
+- [[A-Z Worldwide Locations]]
+- [[PC]] : ((6318fc57-db8a-441f-af0e-c8392241a76b))
+- ## Priority
+	- [Priority - 5-10 mins free time](((62d05f2c-845f-4013-9b75-78b4aceb8d06)))
+	- [Priority - Curiousity-Driven Learning](((62d05f30-e4dd-450d-86f5-482934d7b2b3)))
+	- [Priority - Leisure](((62d0352e-70d8-40a3-8d59-b63a7929d9fc)))
+	- ((62d05f2c-320a-44e6-b98f-16c26ac6a6cd))
+- ## Social
+	- [[My-Relationships]]
+	- ((62d057af-ebcd-4e34-8306-5abd17aa7220))
+	- [10 second elevator intro challenge](((63515210-5652-4544-b481-417a1962643a)))
+	- [Storytelling (My Stories)](((62d057ad-6477-46c7-949a-6155a8995940)))
+- Holidays
+	- *Upcoming*
+	- *Complete*
+		- ((644e86d1-d502-44a6-a568-dfaa655a67ac))

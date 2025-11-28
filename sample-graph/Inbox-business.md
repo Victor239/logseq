@@ -1,0 +1,3376 @@
+
+
+- Dynalist
+    collapsed:: true
+	- Business ideas
+	    collapsed:: true
+		- New business trends due to changing political climate/culture
+			- Logistics: Armored cars with defensive capabilities, plus weaponry to get out of a tight jam (marketed towards the wealthy, or build for your "tribe" if things go really south)
+			- Logistics: Transportation of fleeing Westerners to alternative Western nations, both inside and outside of Europe. Smuggling people out will probably become a thing, especially in cucked countries like Sweeden. If things get really awful, they'll only wake up when it is too late, but some of the slightly smarter ones will start fleeing. The other Western countries may not give them refugee status, so illegal migration may become a white people thing.
+			- Art: Edgy artwork that promotes nationalist themes can help set the tone, plus be commercially profitable. Look at Ben Garrison. That guy is leading the way. He doesn't have to do it alone. Sometimes a comic strip can paint a picture in a way that 1000 words can't.
+			- Weaponry: Legal, illegal and somewhere in-between will become a hot item, especially in countries that have massive amounts of Muslims, or border countries where Muslims are found in large numbers. Guns, ammo, parts, and accessories will all be hot items. Less than lethal weapons will also sell well.
+			- Private security: Think bodyguards. Think groups of friends forming an alliance and not leaving the house without backup. As migrants continue to drive up the cost of housing for native Europeans, expect more whites to live with family and friends. This will be due to cost of living, but also additional safety in numbers.
+			- Digital realm: Facebook and Twitter will eventually see a drop-off of woke whites (especially in Europe) as it will be used by hostile governments to track down dissenters. Expect more people to either hide their accounts or delete them outright. Sales of digital encryption tools, alternative OS's like Linux and other means of defensive I.T. security should be a boon. Expect VPN's to flourish as the E.U. and its nations within the bloc attempt more crack downs on internet privacy.
+			- Spying: Old-fashion spycraft items and techniques will see a comeback. Books on spycraft and intel gathering, plus counter-intell will sell well, as the Deep State becomes more and more exposed. Loyal nationalists within the National Security agencies will leak info to patriot groups, which will need to be disseminated through offline means. Dead drops, safe houses, secured compounds and hidden outposts in the woods/mountains/etc that aren't easy to find will be used like there were in WWII.
+		- Restaurant lounge
+			- i never liked the place. no air con. dusty. mosquitos. no wifi. beer, cigarettes. wasn’t for me to think about but accounting for all things i’d rather get my money out of that thing. they overspent on worthless furniture. too much staff. still has debt. and you know. it’s not like i’d proudly invite you to hang out there if you came to visit.
+			- so when pushed and get to thinking about it, yea sure. it’s not going to serve the purpose of keeping M happy. dump it.
+			- now there’s a new outline of a possibly better plan.
+			- one could wait for the money to be transferred and just open a restaurant across the street of course. it’s not like they’ve got the resources for a full on fight. already found the guy to bribe for a beer license. plot would be to sell beer at cost, add some tasty food people like with beer (chicken wings?!). run it at break even or a loss even till nutso and co are completely flat broke across the street.
+			- worth it? maybe. or maybe that’s distracting.
+			- perhaps more interesting idea: found a whole rooftop penthouse, really super cool place by any standard. the tallest building in the neighborhood. 360 views, the river, city, sunrise, sunset. big terrace, big open room with all the trimmings. elaborate woodwork. all hardwood floors and real fiber high speed internet. you can see it at night, all lit up, from crazy friend’s shitty restaurant. that could be amusing.
+			- and yea it’s residential. talked to the owner, came up with an agreement. everybody needs money.
+			- thinking now, vaguely, making it a semi secret rooftop lounge. there’s a nice elevator (in itself an occasion around here). a high up, really nice air conditioned place to eat, hang out, take in the views. also breezy and cool at night, unlike street level shit shacks.
+			- most curious part is that i can open and run that at a third of the cost of the dusty shack.
+			- literally could charge completely reasonable local prices and still make money. how’s that even possible, you wonder. fucking weird, the local mindset.
+			- imagine it in all it’s roofey glory. best part? it’s the roof of my building. walk out of my place, hop in the elevator, go up two floors, be in my own semi-private lounge. been planning to get it all along, even before the restaurant fallout. and with this new idea figured out a plot to minimize a lot of the problems obvious with the previous place. namely the whole morning going to market trips, food prep, and a ton of real estate being the kitchen. also having to have two chefs and all that equipment. eats up half your day and a lot of table real estate.
+			- the jake plot is to hire some ladies to work from home. cook from home. some old ladies who make brilliant food. pick interesting dishes that work for this sort of thing. have them cook and just drop stuff off. no kitchen, no chefs, no prep, no intricate accounting. have a few of them do different dishes in quantity, never have to worry about a chef being sick.
+			- buy a nice coffee machine. a juicer. a whole bunch of couches and outdoor seating and good tunes. giant tvs. fuck the dusty local scene, make it a full on pirate roof retreat. food you’d like, drinks you’d enjoy, all the comforts of the west. and it’s not like anybody could compete, there’s not another roof like this anywhere near.
+			- don’t care if it makes money, even. literally just make it a place where you’d invite people you like only. no advertising. no random dirty locals looking to drink dollar beer all night. fuck all that.
+			- and yea a million things are gone blow up and reality could be something totally different. whatever. this is the revised plan, take everything you learned from your failings and experiences, and tweak all the things you actually want. no dust no mosquitos no chefs no attitudes. a place to make friends, meet potentially interesting people. pick and choose who you tell about the place. the young crowd with a little money, at the gym. the iron faced high up secret police guy who lives two floors below. other bits and pieces, use a social place to weave a social web.
+			- and M agrees that we need at least two super cute girls as staff. because that’s how you do a pirate roof retreat. make it so it’s the place you want to hang out, and have a proper home base worth coming back to after all the girl chasing travel bits.
+			- see how all that goes ….
+		- businesses targetting conservative men
+			- [03/03, 10:55] T_Kave: Question. Imagine you want to build a business targeting conservative straight men. What would be that business?
+			- [03/03, 10:55] T_Craig (R): Guns
+			- [03/03, 11:03] T_Kave: Good. But I'm not an American citizen and can't be licensed
+			- [03/03, 11:06] T_Declan: Men's only gym?
+			- Not sure if that's an option though
+			- [03/03, 11:08] T_Kave: Men only spaces l think could get problematic. It used to be gentlemen clubs in London. Are they still operating?
+			- [03/03, 11:09] T_Craig (R): There was an article I read about a barbershop in London that was men only
+			- [03/03, 11:09] T_Craig (R): Women aren't even allowed to sit and wait
+			- [03/03, 11:09] T_Declan: I think I heard about that
+			- They were repeatedly vandalized if memory serves
+			- [03/03, 11:10] T_Kave: I guess you can't refuse a customer based on race, gender blah blah blah
+			- [03/03, 11:10] T_Craig (R): [http://www.news.com.au/finance/small-business/close-shave-with-human-rights-commission-for-menonly-barber-store/news-story/96b3dfab677fee8c5c4a3bbca4eebabb](http://www.news.com.au/finance/small-business/close-shave-with-human-rights-commission-for-menonly-barber-store/news-story/96b3dfab677fee8c5c4a3bbca4eebabb)
+			- [03/03, 11:18] T_Gianni: Problem is that Conservative Men don't buy anything. Worst demographic to market to.
+			- [03/03, 11:19] T_Gianni: Or sell kratom 🙂
+			- [03/03, 11:20] T_Gianni: Conservative men are minimalist by nature. They buy second hand, refurbished stuff or just go without.
+			- [03/03, 11:24] T_Craig (R): Me and two other guys are rewriting the rational male books to fit a Muslim audience
+			- [03/03, 13:46] Aaron: See the Black Rifle Company. Enter a market with SJW competitors (Starbucks) and take the slice of the market which can't stand to spend money on them
+			- [03/03, 13:46] Aaron: Black Rifle Coffee Company*
+			- [03/03, 13:47] Aaron: See their marketing videos for some ideas on how they brand
+			- [03/03, 13:48] T_Craig (R): Plus hiring veterans... was all win
+		- Easy to choose a particular niche with a t-shirt business
+			- The good thing about t shirts is that you
+			- can be creative as you want.
+			- As I mentioned earlier, I wanted to make
+			- a "Tees for Bees" store and target animal
+			- rights activists.
+			- Nothing like that shirt on the market
+			- 101. Tell them I'm donating 10% to bee
+			- conservation and you're rich!
+			- Leo H
+			- The setup with custom design and print
+			- on demand makes it possible to almost
+			- •skip" competition, at least thats my
+			- feeling
+			- Before that, you probably had to make a
+			- decent investment for 1 t-shirt and had no
+			- way of reaching such small niches as we
+			- can now
+			- My point is, even though there are
+			- no barriers to enter, you can still find
+			- markets/niches that havent had any T-
+			- shirts advertised to them.
+			- All this is guesses from me and
+			- rationalizations for getting to work
+		- Not good
+			- restaurants dont make huge margins
+				- So, she selling smack out the back, or hawking handies in the kitchen?
+				- Upon hearing >$1k profit days
+			- Yoga niche
+				- Weekend: I would have thought with all the fitness bunnies it's a ripe market
+				- Weekend Picky consumers. I have good products, a competitive price point and a
+				- good guarantee yet not many bites.
+				- Valentine
+				- Yeah I guess brand is pretty important to those attention whores
+				- They want something very well known and established
+				- Despite the only difference in the products being a logo
+		- Ryan's 5-6 Figure/Month Online Money Making Datasheet/Journey
+			- [archived] https://www.rooshvforum.com/thread-65952.html
+			- Intro
+				- Over the past few weeks, I've been fairly quiet here, but I've been looking at ways to contribute more - as this forum was what set a fire in my to work for myself, to quit my job, and to travel more.
+				- The purpose of this datasheet is to show you the business models that I've used, and that I'm currently using to generate upwards of 5/6 figures a month completely online, from my laptop.
+				- It will be a datasheet, as well as me documenting my continual journey on the three business models that I will list below. Making money online isn't really that hard - but where most people go wrong, is that they fail to specialize, and more importantly, they sell their time for money (a big no-no).
+				- Frank Kern, an online marketing legend, says that you need to focus on three skills - then try these skills on one client, create a process & then outsource. You can hit $200,000 a year no problem with one skill - but without outsourcing, you'll never get above it.
+				- The advice I give, and the business models I use are easy to learn, easy to implement, and easy to outsource, but you have to dedicate yourself, and really focus on the skills required to implement these business models - Online advertising (FB, Insta, and to a lesser degree Youtube), Creating a marketing funnel (Clickfunnels, leadpages etc) and Copywriting (a basic level is required).
+			- Below are the business models I'm currently utilizing.
+				- I. Print-on-demand (POD)
+				- II. SMM (Social Media Marketing + Service Selling) Outsourced
+				- III. SaaS (Software as a service) - more capital intensive, and step 3 of my plan
+			- This will be a short initial post, but I will expand on each in subsequent posts. The point of this post is to get you thinking about the business models listed - and to do your own research, with me answering any questions you may have.
+			- I. POD
+				- If you've read my older articles relating to money, you'll notice that I was heavy into dropshipping. While it still is a viable model, POD is far superior, and generating me massive returns.
+				- What's POD?
+				- POD is print-on-demand. Have a design idea? Are you familiar with a niche? Then this is perfect for you. POD is when you get something printer on anything from a t-shirt, to a coffee mug. You can create a website that is for one specific niche, or create a website that is more general, and features numerous niches.
+				- What is required?
+				- POD requires a few things.
+				- You need to have an idea, or you can find an idea by researching other t-shirt stores, finding funny quotes, or using whichever niche you already know and have ideas in.
+				- In general, you need:
+				- 1. An idea
+				- 2. A platform to sell your products (Shopify)
+				- 3. A print provider (customcat)
+				- POD is superior to dropshipping for a variety of reasons. Most print providers are in the United States - so shipping time is low, and quality is high. Additionally, it's your own brand - you're not importing crappy products from China (although again, this is still a viable business model).
+				- This business model is easy to set up. Once you have an idea, you can contact a designer on upwork, or another freelancing site, have them whip up some designs, plaster them on a t-shirt and start selling.
+				- You can outsource very easily, as well.
+			- II. SMM
+				- Social media marketing (or service-selling) is my bread and butter right now, and consistently brings in over 5-figures in revenue alone (revenue, not profit). This business model is where you manage the lead generation for a business, preferably a service-selling business. A real estate agents needs leads - using Facebook ads, you generate him/her leads. In return, they pay you either by commission (or my preferred method, a monthly retainer).
+				- It's also a super easy business model to get into. You simply need to understand Facebook ads, and how to build a basic marketing funnel (ad -> landing page).
+				- It's important that for this business model, you specialize though. For example, real estate agents. You would position yourself as an expert within that niche, and market your services to real estate agents.
+				- What is required?
+				- 1. An understanding of Facebook ads + funnels
+				- 2. A Facebook page (for your brand)
+				- 3. A system to attract leads (your niche)
+				- You can get your clients from good old fashioned cold-calling, or launching a Facebook ad targeting your desired niche.
+				- You'll need a calendar booking application as well, in order to schedule meetings with your prospects.
+				- Once you have a client, you can replicate the same process that you used to find your client, to find them clients as well - as you can see, it's a super easy process that can be outsourced eventually.
+				- My process:
+					- 1. Create a FB Page (Attracting Wealthy Clients For Realtors, as an example)
+					- 2. Set up a leadpage which describes what you can do for your clients, how they can benefit + set up a calendar app
+					- 3. Launch a Facebook ad with targeting to your niche 'realtors'
+					- 4. Have prospects book calls
+					- 5. Close them
+					- 6. Repeat process, but for people looking to buy/sell homes, and with a different landing page (listings etc..)
+			- III. SaaS
+				- This business model is more capital intensive, and I'll expand on it later, but the premise is to have a software created, and licence the use of that software on a subscription basis.
+				- This should be your end goal - and for me, my software is within one of the niches above, so that I know it's useful, and know there's a market for it. This is the big-money business model - we're talking $10,000/days if you market it right.
+				- Depending on what software you want, you'll be looking at $20,000 - $30,000 as an initial investment. My team for my own SaaS is based in Ukraine, and I would recommend using Ukrainian developers.
+			- If anyone is serious about SaaS, send me a PM, but I will answer most questions here
+	- Example niche site businesses
+	    collapsed:: true
+		- Here is an example what you can do with 50k
+			- http://authoritywebsiteincome.com/sell-fba-business/
+			- And trust me im friends with that guy and he let me in under the hood and the business is nothing special. They have dozens of competitors selling the same stuff
+		- He purchased an affiliate site
+			- Then just switched out the products for his own
+			- Pretty much 1 product was driving 80% of the revenue
+			- Even though he was selling 6
+			- 5-10k enough risk capital
+		- Better to risk money than time
+			- I think the coaching angle would work better if you were motivating them
+			- Providing accountability
+			- I blew like 25-30k whilst i was trying to figure out how to make money
+			- But i knew i didnt want to g the blog info product etc root
+			- For me too much time investment
+			- And not enough upside
+			- Unless you are actually passionate about the topic
+			- It would be better to just invest 20k-30k in a business
+			- You could start generating 5k monthly income within 3 months
+			- This ebook/info product route is only the best way if you are broke
+			- Just capitalize it with 20k or so
+			- You cant make money without spending money
+			- Have to change your mindset
+			- Capital has a much higher ROI than labor
+			- I must have spent 100s of hours trawling amazon, alibaba, hktdc, blogs (with analytical software) etc. looking for products
+			- Here is an example what you can do with 50k
+			- http://authoritywebsiteincome.com/sell-fba-business/
+			- And trust me im friends with that guy and he let me in under the hood and the business is nothing special. They have dozens of competitors selling the same stuff
+			- Better to risk money than time. You are already a hustler so even if you went broke you could easily earn a liveable income through service jobs
+			- All the make money online blogs you read and is largely targetted to broke people (that is the market). If you have capital you should be playing a different game
+			- He purchased an affiliate site
+			- Then just switched out the products for his own
+			- Pretty much 1 product was driving 80% of the revenue
+			- Even though he was selling 6
+			- 5-10k enough risk capital
+			- Electronics are possible
+			- Our best seller is electronic
+			- Its painful to manage though
+			- Returns / defects etc.
+			- Yea thats what i figured. Non electronics probably easier and lower inventory cost
+			- But also less competition
+			- But you need an angle like josh says
+	- Use letter of agreements rather than contracts to increase conversions with freelance copywriting etc
+	- Easier if you target local rather than global
+	    collapsed:: true
+		- If you offer something that can only be
+		- offered locally, you dont face global
+		- competltion.
+		- For example. if you open a grocery Store,
+		- you don't have to compete with any stores
+		- not Within a 45 minute radius.
+		- But if you do online web design___.
+	- Market validation
+	    collapsed:: true
+		- Problcm/ldea Validation
+			- What to measure
+				- Do people need this product?
+			- How to measure it
+				- Ask your current customers how disappointed they would be if you closed down the service.
+			- What represents success
+				- If say they wr.uld be disap- pointed or very disappointed, you are probably onto solnething.
+		- MVP Launch
+			- What to measure
+				- How many
+				- people have
+				- Signed up for it
+			- How to measure it
+				- Total signups in the first week or month
+			- What represents success
+				- It's up to you.
+				- wqnred to sec lensr
+				- ten monthly recue
+				- ring customers within
+				- the first month.
+		- Business Model Validation
+			- What to measure
+				- Profit margin
+			- How to measure it
+				- The percentage
+				- profit will
+				- make with rhe
+				- Foutlders working
+				- in the business.
+				- The
+				- profit you will
+				- make if you had ro
+				- hire replacements
+				- for rhe founders.
+			- What represents success
+				- Ideally there is
+				- enough profit map
+				- gin for rhe businese;
+				- to hypothetically
+				- and grow without
+				- the founders.
+				- Percentages will vary
+				- significanrlv based
+				- on a OF factors.
+				- In my recurring ser-
+				- vices husiness, [ aim
+				- for around 50%,
+		- Growth
+			- What to measure
+				- CPA and LTV
+			- How to measure it
+				- the CPA
+				- Calculator
+				- at wpcurve. com/7daystartup
+				- ro swrk our how
+				- much customers
+				- cost to acquire.
+				- I-TV: A simple
+				- Churn measure
+				- is the Intlml'er Of
+				- subscribers
+				- during the period
+				- divided by rhe toral
+				- subscribers ar rhe
+				- srart Of period.
+			- What represents success
+				- Ideally LTV should
+				- be a lot higher than
+				- CPA_ It can take
+				- while to get to that
+				- poinr.
+	- Email marketing
+	    collapsed:: true
+		- Two simple ways to make the emails themselves more attractive. One, turn it into a "course". Each email is a lesson and highlighted as such in the subject line (don't make it fluffy bs material). If info is intriguing enough they will engage with each email. Again, Andre chaperone. At the end of the "course" mention you signed them up for your ongoing newsletter with tips, tricks, updates, etc. Pitch it as a bonus/surprise and mention all they have to do is opt out if they don't want it. Option Two, make your blog content extremely high value and just sell your emails as updates of new blog posts so they don't miss anything new. I actually prefer this approach because all you have to do is write a short blurb introducing the new post and link them to it, thus maximizing all the content you write by keeping it exposed to the search engines, while at the same time having a valid reason to keep previous readers coming back to your site again and increase concessions. Jon Morrow is a big proponent of this second approach
+		- You have to pitch the emails
+		- correctly but personally prefer
+		- selling the emails themselves
+		- as the value to be opted in for.
+		- Otherwise you're just another
+		- marketer to ignore or unsubscribe
+		- from after they're get the hands on
+		- the report _ If you sell the value Of
+		- your emails right (a vague promise
+		- of a newsletter won't cut it) they'll
+		- actually look forward to getting
+		- them and you'll see a big jump in
+		- open rates (and engagement if
+		- the emails do their job correctly)
+		- Andre chaperone is the real expert
+		- on this approach if you want some
+		- guidance
+		- Business owners will sign up for
+		- advice in this niche too. I've never
+		- stuck with the effort but definitely
+		- saw subscribes coming in
+		- ..
+		- If people forget who you are using
+		- one Of these approaches you're
+		- doing it wrong and wont sell then
+		- with a future email anyhow.
+		- Seems like approach #2 is better fit
+		- for Bill's biz
+		- Approach #1 is great for software
+		- or apps...l use a sales app called
+		- pipedrive that had a very good email
+		- course
+		- Used a landing page app too that
+		- had a good one
+		- Choice 2 is better for search SEO
+		- etX too
+		- ..
+		- Both can work in this niche but
+		- agree two IS better (esp for SEO).
+		- And gives you more opportunity to
+		- show off writing/content marketing
+		- chops where anyone can see it
+		- Without opt-in
+		- Yeah.._do guys that pitch free copy
+		- review or consultong get many bites
+		- on that?
+		- Yeah does work too. I think that
+		- does turn off some would be
+		- subscribers though because they
+		- dont want to engage quite that
+		- much right off the bat. But had one
+		- copywriter client who did that and
+		- passed ecopy review' work on to me.
+		- So it was obviously profitable for
+		- him
+		- Cool, I'd sign up for that if I went to
+		- a site and it screamed copy writing
+		- expert
+		- Seems like it would qualify and filter
+		- Personally think you might be
+		- better Off in that particular case
+		- to sell the review at a low fee to
+		- increase the perceived value but
+		- that's a bit of a hunch. Could test
+		- both ways and see
+	- Instagram marketing
+	    collapsed:: true
+		- "TO avoid spam, Instagram removed clickable
+		- hyperlinks in comments and on Instagram
+		- photo updates in 2012. You are allmved to add
+		- one clickable link to your bio page along With
+		- 1 50 character description but you cannot add
+		- clickable links into Instagram posts. Most
+		- people put a link to their website in this
+		- section.
+		- FollowLiker app
+		- Rebrand a page after accumulating followers
+			- Vinny
+			- No these followers are real
+			- I start a girls channel first
+			- Post pics Of asses and tits
+			- Grow the following
+			- Then rename rebrand voila
+			- NO money payed
+			- man that is genius
+			- Vinny for you the girls in Ukraine are hotter
+			- that girls in Serbia ?
+			- Vinny
+			- And my pics even get some likes
+			- 20 likes but still real likes :)
+			- I need to find a way to sexualise
+			- content
+			- Ukrainian chicks are hotter in my opinion
+			- but I only spent a week In Serbia out of
+			- Which 2 days and belarade
+		- When posting pics tag big accounts
+	- Facebook marketing
+	    collapsed:: true
+		- The Audience Network is the equivalent of Google AdWord's display network
+			- didnt know what it was •The Audience Network is a collection of third-party
+			- apps and mobile websites approved
+			- by Facebook to show Facebook Ads
+			- —making it easy to extend your ad
+			- campaigns into apps and mobile
+			- websites that your customers use every
+		- just use audience insights, after I find a product that I like and is selling well on Amazon/AE . Minimum audience size you want on Facebook is 500K
+	- Infographic creation tools
+	    collapsed:: true
+		- Piktochart.com
+		- Visual.ly, Easel.ly & Infogr.am
+		- ChartsBin
+		- Creately
+		- Google Fusion Tables – I wish I could tell you I had the time to experiment with this one, but I can’t. I’ve only seen some of the astonishing visualizations that have come out of it. Here’s a helpful tutorial to get you started.
+		- Hohli – This is an ultra simple tool for creating all types of charts.
+		- Diagram.ly – A free, easy to use object editing tool.
+		- Tableau – A more advanced data visualization tool that works on your desktop.
+		- Stat Silk – Create interactive graphs, maps, and charts with this toolset.
+		- Inkscape – Free vector graphic software. Here’s a list of tutorials.
+		- JSCharts & amCharts – Javascript based charts.
+	- Suits' TEFL job in China
+	    collapsed:: true
+		- How are you marketing yourself to reach
+		- SOusd per hour?
+		- Suits
+		- Offer very specialized classes. LEGO
+		- English classes, cooking classes, etc.
+		- Ah thats awesome
+		- Suits
+		- And I'm excellent at teaching children, not
+		- because I'm a natural, but because I Ve
+		- worked really hard to be good at it.
+		- So, while many clients just want a white
+		- face at the lowest cost, With routine
+		- marketina bv Dostlna a few free ads on an
+		- so, while many clients just want a white
+		- face at the lowest cost, with routine
+		- marketing by posting a few free ads on an
+		- expat website, I'm able to track down the
+		- clients who want someone with my level
+		- Of skills.
+		- Weekend
+		- You lived in the USA pre-China? How were
+		- the first few months after the transition.
+		- Just curious because I'll be doing it soon.
+		- Suits (@Suits:matrix.org)
+		- Also, the going rate for part-time teaching
+		- in China is already $35 USD per hour.
+		- Im teaching online atm, amazingly crappy
+		- pay
+		- Suits (@Suits:matrix.org)
+		- I'm actually Canadian.
+		- But in terms of income versus living
+		- expenses, China is very competitive, if you
+		- aren't in an expensive first tier city,
+		- Weekend
+		- Do they really treat you like garbage? (In
+		- certain causes)
+		- Suits
+		- Or if you like a peasant in a first ter
+		- They will always treat you like garbage,
+		- because courtesy isdt valued in China and
+		- the only thing that matters is power.
+		- They provide either all of your income
+		- or most Of it (if you work secretly on the
+		- side), They might prow,'ide your housing.
+		- And you cant switch your visa to a
+		- different employer without either their
+		- help Or leaving the country altogether
+		- Suits
+		- So, they hold most of the cards.
+		- They'll slowly chip away at all of the
+		- contract details that benefit you, while
+		- strictly enforcing the parts that benefit
+		- therm And as a foreigner, you have no
+		- recourse, except 10 quit.
+		- so, I work illegally on a tourist visa to
+		- avoid that trouble.
+		- It's not ideal, but it's better than the
+		- alternative.
+		- Weekend
+		- How long can you stay on a tourist visa ?
+		- Suits
+		- Depends on the visa.
+		- I have a 7 year visa with 60 days per entry,
+		- so gotta do border runs routinely,
+	- if you're not rich then your advice isn't certain
+	  collapsed:: true
+		- ^^^^
+		- ...but whatever the reason for his failure at life, it's never his fault. Also standard for the basement genius.[/quote]
+		- OP is just another of those geniuses sitting in basements who's smart enough to have the entire world figured out but somehow never was smart enough to make it work to his advantage.[/quote]
+		- That's a good point. Why are all the various logical machines I meet on the Internet not filthy rich?[/quote]
+	- live with team or employees
+	  collapsed:: true
+		- Like the ruko setup in Indonesia?
+		- Quote from Worm
+			- missed staying at the loft, when things were easy and I was free. I was happy with how things were going with my new recruits, but I was realizing that living with them would mandate changes to my lifestyle. There were appearances to maintain, and I couldn’t be seen slacking off or being a slob. I couldn’t sleep in or put off my shower until later in the day. I couldn’t let myself collapse in a sweaty heap after a hard morning run. I’d woken up at six in the morning to be sure that I could run, shower, dress and look like I was on top of things by the time they were up. After a late night, it left me feeling a little worn around the edges. I harbored some concerns about my ability to help Dinah if this kept up.
+	- don't seek comfort via money
+	  collapsed:: true
+		- fuck. my favorite saying on money is this. money doesn’t change people. it reveals them.
+		- you might not care fuck-all about being comfortable, coddled, making life easy.
+		- annoying to realize you’er talking to people who’d immediately go to the easy way just imagining that they could. you don’t get to where you could be comfortable, if you want to be comfortable.
+		- the best looking-fward part of not being broke is being able to own being all broke-like on occasion. yea, wear the same worn out t-shirt most of the time. it’s the best feeling when you don’t have to, but you do it anyway. same with sleeping on the floor. or ratty hotels.
+	- Advice I will tell myself after 6 years of selling products online.
+	  collapsed:: true
+		- [https://www.rooshvforum.com/thread-20832.html](https://www.rooshvforum.com/thread-20832.html)
+		- Not anywhere in wf atm
+	- buying into progressive ideology is the best and easiest PR move
+	  collapsed:: true
+		- Google has to buy into whatever progressive dogma catches on. It gives them cover for their business. If they were a wrong-thinking company with a powerful surveillance apparatus (their business model is surveillance), professional grievance mongers could scare companies into buying fewer ads.
+		- But hey, don't mind the overwhelming hoovering of private data about individuals because Google totally supports rights for trannies and other victim classes.
+		- Yes, is a way to make the public the other way, buying into progressive ideology is the best and easiest PR move, just like those Tshirt about feminism being wore by politicians in UK, but the women working in the factories were working and living in sweatshops getting pay like 2 dollars a day.
+	- Omni channel attribution
+	  collapsed:: true
+		- http://www.doctormetrics.com/2017/03/29/omnichannel-attribution-modelling/
+		- https://www.adtriba.com/multi-channel-cross-channel-marketing-and-attribution-modeling/
+		- http://www.visualiq.com/resources/marketing-attribution-newsletter-articles/abcs-attribution-omni-channel-marketing
+		- https://blog.gpredictive.de/multi-channel-cross-channel-marketing-and-attribution-modeling
+		- https://thecmoclub.com/wp-content/uploads/2014/12/VisualIQ-Guide.pdf
+		- https://www.oxyma.nl/blog/which-marketing-channel-generates-sales/
+		- https://www.mdconnectinc.com/medical-marketing-insights/digital-healthcare-marketing-omnichannel
+		- http://www.bizible.com/blog/attribution-modeling-flowchart
+		- https://www.kaushik.net/avinash/multi-channel-attribution-modeling-good-bad-ugly-models/
+		- Pop-ups
+			- http://www.salecycle.com/
+			- https://www.yieldify.com/products/
+			- https://www.veinteractive.com/
+	- Business intelligence tools
+	  collapsed:: true
+		- Open source
+			- Pentaho Open Source
+			- https://alternativeto.net/software/pentaho/
+			- SpagoBI
+			- https://alternativeto.net/software/spagobi/
+			- ReportServer
+			- https://alternativeto.net/software/reportserver/
+			- [Apache Superset](https://github.com/apache/incubator-superset) (originally developed by AirBNB)
+			- [Grafana](https://github.com/grafana/grafana) (good for timeseries and real-time dashboards)
+			- [Kibi](https://github.com/sirensolutions/kibi) (Kibana + SQL data sources in addition to ElasticSearch)
+			- [Metabase](https://github.com/metabase/metabase)
+		- _Commercial_
+			- MicroStrategy Business Intelligence
+			- https://alternativeto.net/software/microstrategy-business-intelligence/
+			- Sisense
+			- GoodData
+			- Looker
+			- Grow
+			- Tableau
+			- https://alternativeto.net/software/tableau/
+			- Domo
+			- QlikView
+			- https://alternativeto.net/software/qlikview/
+	- Enterprises' software stacks
+	  collapsed:: true
+		- Airtable
+			- https://stackshare.io/segment
+			- https://stackshare.io/mixpanel
+			- https://stackshare.io/adroll
+			- https://stackshare.io/intercom
+		- https://siftery.com/
+		- https://siftery.com/usabilityhub
+	- Employees get paid a fraction of employers because they did the market analysis, took all the risk, spend money on training you
+	- Money mindset
+	  collapsed:: true
+		- p1
+			- [quote='WestCoast' pid='471312' dateline='1371503120']
+			- Numbers don't matter. You should come up with a life theme, your life theme should be this.
+			- The least amount of money I can spend to be 100% happy. After that your goal is increasing your wealth by not wasting time.
+			- If you live by those two principles alone, you will naturally find ways to save money that don't make you less happy and you will also make more money because you won't use your time frivolously.
+			- Once your time becomes more valuable the people you hang out with changes and your social circle improves rapidly. Basically, your time should be expensive and your tastes inexpensive.
+			- One of the major lessons in 2013 for me on a personal basis is to never hang out with someone for free if they are not adding value to my life in any way. If they are I will pay to keep them around if they are not I will simply resort to the slow fadeaway.
+			- So in short, don't worry about salary or wages, think about how to add value to a person's life and extract value from that service. Finally, cater and hang around rich people.
+			- [/quote]
+			- [quote='WestCoast' pid='473517' dateline='1371742151']
+			- I agree with travolta.
+			- I spend no time talking about business or money with people who run dollar savings number or how many $$$ is good/bad. It misses the point entirely and it is not a knock on people who think this way because i used to do the same thing.
+			- You absolutely must change your mind from thinking on a linear $/hr or $/yr basis to eventually make money before you are dead. No point in saving $20K a year in a bank account earning 1% interest because by the time you are relaxing you are old and grey.
+			- You want to make bigger moves. Where is the best opportunity, why? Can I leverage into this opportunity? How.
+			- People don't understand leverage, you take on leverage when you can afford all the capital you used to make leverage. Then you don't care if the idea tanks because you are net zero. Big deal if the other side of the coin was a 700% return profile. You make that trade evey day on a coin flip.
+			- All that said you don't want to bet more than you can afford to lose but the rest is gravy, this is why I also espouse a minimalist lifestyle.
+			- If you can live on $1k a month (I cannot) but if you could that means every single penny above 5 figures can be at risk. This means, by default, you have more opportunities because more can be risked. Having cash allows you to take a risk. If you don't take a risk. You will never make it before you are old.
+			- Find opportunities with leverage, move all in with what you can lose.
+			- [B]Cash = bullets; your mind = sniper rifle[/b]. If you have the money and a sharp brain you just need a couple shots and you're done.
+			- [/quote]
+		- Even if your business may sell a debatably harmful product, it has huge positive consequences
+			- "Take Coca Cola. Imagine you were the founder, and you became a Bill Gates sized billionaire... by getting the country addicted to a drink that makes them fat and rots their teeth. Should I respect you and look up to you? Fuck no. Or what about if you were one of those chicks who wrote The Rules? Should I respect you then? Hey, if you managed to halve the price of grass fed beef without compromising on its quality, I *would* have tremendous respect. Money in and of itself is not my measure."
+			- Rotten teeth in exchange for hundreds of thousands of direct and indirect jobs. I wonder how many people have been educated, fed and clothed as a result of the entire industry that sprung up around Coca Cola. I wonder how many civil servants have had their salaries paid for by tax paying employees of Coca Cola, and Cokes taxes itself. I wonder how much infrastructure has indirectly come from Coca Cola's activities.
+			- See this is the thing. You hate on a company like Coke for its minute bad, while you completely ignore the positive benefits they brought. You do this because YOU TAKE FOR GRANTED the positive impact trade has on an entire system, failing to see past the basic transaction that you did not benefit from.
+			- Its a selfish, simple minded perspective that has zero understanding of industry and trade.
+			- That you cannot think of this for yourself and you need someone to explain this to you is why you cannot relate to people who do create and build something. Its probably why you will end up working till you die, either for someone else or as a consultant/one man business of some sort exchanging time for money.
+			- Not trying to be nasty, just calling it as I see it.
+		- Real risk isn't financial, it's personal. It's throwing years of your life into something with no certainty of reward
+			- People think taking a risk is taking out second mortgage and throwing it into the establishment of a business. Or building something on the side while they enjoy the comforts of a stable salary. This is shit you can come back from. This is not risk, its having a punt.
+			- Real risk is not financial, its personal. It encompasses everything. Its putting your entire network on the line. Going so deep into something that you risk credit ratings, personal health, relationships as you fall of the radar. Chasing something with no certainty of reward at all. While everyone else is buying homes, having families, going on holiday or enjoying their weekends off, you are working without any certainty of success at all. You whole life comes to a standstill and you could lose 2-3 years of your life for nothing. Some guys go over a decade.
+			- That is risk. 99% of the people you come across will not have the balls to take risks like this.
+			- I have no doubt someone is going scream about the wealthy bankers who generate their wealth risking other peoples money, and you would be right. But those guys are being given a TINY PROPORTION of the money the real wealthy motherfuckers have to play with. The people who really do well are building something or creating something. And if you are one of these guys who constantly resorts to calling all bankers easy money deadbeats, then you need to ask yourself why the hell you are not an easy money deadbeat yourself if its all so simple. Those guys tend to be the best in their trades and they are a highly skilled minority.
+	- Offer "free" products - just pay for shipping, then upsell
+	  collapsed:: true
+		- Not first hand but seen a lot of it
+		- being done. Lost run the ads right
+		- to the product page. If it's an intro
+		- product they Will use Clickfunnels
+		- and do free + shipping offer, usually
+		- like $7. Then they use that to get
+		- you into their value ladder and
+		- Upsell you one time offers and
+		- continuity programs before you
+		- complete the order.
+		- Something like get 30 days Of
+		- Hydroxyvut for free, just cover
+		- shipping for $5.99. Then a one time
+		- offer of 3 additional bottles for only
+		- $40. Or a subscription program of
+		- $30 per month
+	- Set up a trust to reduce tax rates over a typical limited company
+	  collapsed:: true
+		- You could set up family or discretionary trust to reduce tax further
+		- With a trust , you could distribute your profits to as many people who are beneficiaries and they would get taxed at lower rate
+		- I did this in Australia and gave  cash to retired parents and student sister
+	- http://www.rooshv.com/how-to-make-money-online
+	- http://ecommerceliftoff.com/13-direct-response-ecommerce-offers-that-crushed-it-in-2016/
+	- https://www.clickfunnels.com/
+	- http://wallstreetplayboys.com/human-nature-will-never-change-and-how-to-profit-from-it/
+	- Decentralised Autonomous Organisations (DAOs)
+	  collapsed:: true
+		- Now take this model and apply it to a big business like Google.
+		- As a stakeholder in Google
+		- Now take this model and apply it to a national government.
+			- has an actual vote in the outcome of each decision the government takes.
+		- Imagine the cryptocurrency the DAO is based on is a Proof of Stake coin. This means that it produces
+		- Powerful stuff.
+		- At it's core DAOs allow for the accrual of resources. Combined with other technologies this can explode their pace of development as it feeds itself.
+		- Ten people give cryptocurrency to a DAO and the smart contract allows token holders to vote on proposals.
+		- For people who love to systemise businesses then a DAO is perfect.
+		- Part 2 coming soon.
+		- Now take this model and apply it to RVF.
+		- What do we do all day on here? Post content. Might as well incentivise this - let's turn post likes into cryptocurrency just like Steem. Voila, now we have a forum that pays us for the content posted on it.
+		- This in itself is powerful but it's limited. Not everyone wants to be a writer.
+		- Many people here want to be entrepreneurs, how can startups be incentivised?
+	- Product launch list
+	  collapsed:: true
+		- Here's what's been done so far:
+		- • promotional graphics • CHECK
+		- Social media banners • CHECK
+		- Welcome emails + Broadcast - CHECK
+		- 2 Blog posts to promote the summit - CHECK
+		- Podcast interviews to promote the summit - CHECK
+		- Facebook event to promote the summit - CHECK
+		- • Email swipe files for The speakers • CHECK
+		- • Test to make sure all the links work • CHECK
+	- DJ Khaled marketing
+	  collapsed:: true
+		- DJ Khaled is a marketing genius. He hustles real hard to connect with all these artists to get them to feature on his songs, is huge on Snapchat and even made his son into a meme
+	- Use Time Doctor for monitoring employee productivity - shows time per site etc
+	- ymass add-on for gmail for bulk emailing - 400 emails a day
+	- New Relic
+- Evernote
+  collapsed:: true
+	- General 1
+	    collapsed:: true
+		- **Habit Laboratory **
+			- **Guest Post**
+			    collapsed:: true
+				- Change Your Thoughts
+					- http://www.stevenaitchison.co.uk/blog/contribute/
+					- Top posts
+					- http://www.stevenaitchison.co.uk/blog/the-night-i-gave-up-on-life/
+						- suicide attempt - though doesnt attract ideal commenters (people seeking therapy)
+					- http://www.stevenaitchison.co.uk/blog/56-things-i-wished-id-known-when-i-was-younger/
+						- 18 Things I Wish I Could Tell My 18 Year Old Self?
+					- http://www.stevenaitchison.co.uk/blog/8-destructive-thinking-patterns-and-how-to-change-them/
+						- CBT Patterns?
+					- http://www.stevenaitchison.co.uk/blog/100-ways-to-develop-your-mind/
+				- Dumb Little Man
+					- http://www.dumblittleman.com/2006/08/submit-article-to-dlm.html
+				- I Will Teach You To Be Rich
+					- I Will Teach You To Be Rich
+					- Free personal experiment guest post on mental rechargers inside
+					- GUEST POST: Self-Experiment with 'Mental Rechargers'and other breaks
+					- FREE POST: what's the most productive type of break (graphs included)
+					- I was fascinated by idea of mental rechargers in recording
+					- I had been tracking my productivity for a while now eg I could tell you on x date I was drafting this post from x time to x time, efficiency was x% (we all procrastinate even when it's as fun post as this :P though it is above my lifetime/monthly average of x%)
+					- Anyway, I looked back at my data for which I had kept some info about patterns
+					- Quantified self reference
+					- Compare work/without work
+					- Time of day
+					- Mental recharger + type
+					- Make it relevant and useful to readers, not just prattling on about myself
+					- Massive value
+					- I did extensive testing so you don't haw to
+					- I found these results
+					- This shows that the type of break we take MASSIVELY matters. We shouldn't be leisurely, it's too positive and enjoyable which makes us not want to get back to work. Think of it as a battle of intrinsic motivation - which so you have more to do because its immediately rewarding?
+					- When I researched nutrition a while ago I couldn't stop because I was so fascinated and trying to work it out in my head
+					- So the less you like the work, the less fun your break has to be tol
+				- Introducing: Willpower Week / How to Overcome Your Worst Weaknesses /with Willpower
+					- Your temptation box (if it's a material thing) e.g. sweets, cigarettes, heroin..etc
+					- Go through the process of actually getting all ready then not doing it.
+					- For example I track all my food intake, so my routine involves first weighing the food, then entering in the food on my calorie counter app and finally bringing the food up to my mouth...and stopping. Just breathing in the food's aroma
+					- Some of the main factors you can manipulate to increase or decrease the difficulty of Temptation Training is your current hunger level, how much you desired the food (before training lowering desire)
+					- But there are ways to supercharge your willpower:
+					- 1) Social Accountability
+					- e.g. I'm using a Habitstream to show my habits as they happen. You can get a virtual assistant who nudges you whenever you're messing around.
+					- If you have an iPhone, I use a simple data entry app called rTracker in order to log my efforts which you can later export as a CSV. This makes it very easy to plot graphs to see your progress over time or
+				- JohnnyBTruant
+					- http://johnnybtruant.com/category/guest-posts/
+				- LifeHack
+					- http://thewritelife.com/guest-blogging-spotlight-lifehack/
+					- http://www.lifehack.org/contribute
+					- 13 Things/Habits That X Do Differently
+				- Pick The Brain
+					- http://www.pickthebrain.com/blog/write/
+					- http://www.pickthebrain.com/blog/self-improvement-articles/
+				- ProBlogger
+					- 1) Habits of the ProBlogger
+					- 2) Morning Routine of a successful blogger
+					- 3) How a ProBlogger can Stay Energised / motivated
+				- Psychology Today
+					-
+					- http://www.psychologytoday.com/writers-guidelines
+					- http://www.psychologytoday.com/aboutcontact
+					- http://www.psychologytoday.com/blog/the-guest-room
+					- http://www.stevenaitchison.co.uk/blog/contribute/
+					- The Aggregator's
+					- Articles for Men
+					- Captain Capitalism
+					- Delusion Damage
+					- Free Northerner
+					- Hawaiian Libertarian
+					- Viva La Manospere
+					- submissions@lifehacker.com
+					- tessa@lifehacker.com
+					- Especially How-To's e.g. How I work, featured desktop/workspace/homescreen
+					- tags: Productivity, money, mind hacks, creativity, memory, sleep, psychology
+					- http://thinksimplenow.com/start-writing/
+					- http://sourcesofinsight.com/featured-guests/
+					- http://timemanagementninja.com/guest-post/
+						- http://www.livehacked.com/guest-post/
+							- http://www.dailyblogtips.com/contact
+							- http://www.famousbloggers.net/submit-your-article
+				- Return of Kings
+					- Return of Kings
+					- need to learn how to block IP
+					- move possibly (address)
+					- Aaron Sollesse is a Behavioural Analyst. You can find him in the HabitLaboratory cooking up some
+					- experimenting with new behaviours and testing hypotheses. You
+					- POSTS
+					- 1) Creativity -
+						- Limitless: The 3 Drugs Which Will Solve All Your Problems
+						- 3 Drugs You Can Take To Grow/Develop To The Next Level
+						- 3 Supplements Which Massively Boost Your Creativity
+						- 3 Supplements Which Make You Limitless
+					- (not specific enough?)
+					- 3 qualities: creativity (piracetam), mental endurance (modafinil/sulbutiamine + rhodiola) and logical analysis
+					- learn faster (tDCS) The Real NZT-48 (From Limitless) Is A Device, Not A Pill
+					- I've now got my hands on one so I'll be detailing my results with it on my website
+					- Also in tag line
+					- http://boldanddetermined.com/2012/06/11/the-real-life-nzt-48-from-limitless/
+					- recall memories from distant past (Lion's Mane?)
+					- 2) Invisible council (not ideal self?)
+						- I want to mention it on blog though?
+						- The Napoleon Hill Method To Become Like Your Heroes/Role Models
+						- What the Father of Self-Help Can Teach You About Success
+						- The Visualisation Exercise Napoleon Hill Used to Become Successful
+						- Your Invisible Council
+					- How to Biohack and Rapidly Master Game
+					- e.g. ((67eae97d-9044-498a-8b87-ffb39b85b983)) kava, mdma, tDCS (imply limitless)
+					- How to Use Cutting-Edge Technology to Master Game
+					- Heart rate monitor, bodymedia (GSR, heat flux, cal burn),
+					- How to Use Biofeedback to Become a Zen Master
+					- How Fatties Can Really Lose Weight
+					- (mindless eating recommendations)
+					- The Life-Changing/Time-Saving Mentality I Borrowed From A 2,000 Year Old Book
+					- something to do with Only Prayer or Only Useful Teaching from Bible?
+					- the bible "God, give me the strength to change the things I can"
+					- How To Quit Your Job and Become A Free Man
+					- (maybe best once I've done this myself)
+					- relationship/body habits?
+					- Success or Acceptance for Happiness?
+					- Roosh has written about not wanting numbered goals
+					- Also about ego vs buddhist roosh talking
+					- He's also wrote how now he's achieved his Dream (link to travelling fucking bitches lifestyle) he doesn't have other ones to replace it. Similarly Leo Babauta writes about not needing goals because he's already achieved the family man success, meditates, eats healthily, successful blogger. What more could you want? He's acheived his Big Wins. (high leverage meta-habits)
+					- WHY YOU CAN'T SHOULDN'T BE AN ANONYMOUS MANOSPHERE BLOGGER
+					- 1 - Lack of trust
+					- 2 - Stops you from reaching your true potential (it's a barrier which causes you to become insanely valuable or lose your job)
+					- 3 - Anonymity is a lie (number of people have been outed, NSA knows all of our shit, matt forney - with enough time onlone, chance of maintaining anonymity drops to zero)
+					- 4 - Although you can, being real will help you succeed faster
+						- People will either align with you or show their true colours and fade into the background. The giants of the manosphere who still maintain anonymity (Rollo, Heartiste) only do so because they have been posting for many years high-quality content. For Habit Hackers such as ourselves, showing our real name and faces will accelerate growth and success in a corner of the web where most choose to remain in the shadows.
+					- 5 - Lead the movement
+						- So many of the forefathers of the Game and Lifestyle Design community faced trials and tribulations all by themselves. Now we have a full-blown community available at our fingertips yet we still choose to remain hidden behind an alias. How you claim to fight feminism or inspire other young men when you still remain behind a curtain? Maintaining anonymity around your followers still shows how you fear the hate and criticism which is inevitable around any strong opinionated Alpha and are afraid to bring the rest of your life up to the adequate levels in order to make sure it has little effect (being true to your family, having a loyal crew, a job where you are valued etc)
+					- The Case Against Anonymity ROK @guest posts
+					- Giving up anonymity helps you to become your best self/can help
+				- The Change Blog
+					- http://thewritelife.com/guest-blogging-spotlight-the-change-blog/
+				- Tiny Buddha
+					- http://tinybuddha.com/get-featured/
+				- Zen Habits
+					- The 1 minute Workout
+					- 1 set every day (30s lowest, 90s max)
+					- upper - horiz push/pull, vert push/pull; lower - legs, calves, abs/neck/wrists/fingers
+		- For propaganda/media manipulation - provide a tantalising hook not in your favour + promotion in your favour
+			- e.g. Trump making a tweet being wrong about $400 million cash to Iran, this gives the news story more coverage
+		- ebook - 7 day startup
+			- Page 148
+			- Copy the tables
+		- Advice I will tell myself after 6 years of selling products online.
+		    collapsed:: true
+			- Advice I will tell myself after 6 years of selling products online.
+			- It’s the Hussle:
+				- People always worry about traffic. Writing tons of articles which is a waste of time in my opinion.
+				- Like I said, I fell into the online stuff. I created a program for real estate to use for myself. There wasn’t anything really available that was good so I ended up creating one myself.
+				- I didn’t write any articles, I didn’t do ads, I didn’t do any seo mumbo jumbo. I did it old school and made deals with people.
+				- Even today, I don’t have to worry about any of the stuff because I built up credibility and relationships. I just tell them I got a product and they hit their lists for a cut. Not to mention, I make lists from their sales that I can sell other things.
+				- I was selling the software for 2k a pop and it sold quite a bit. I know many people say they could live just about anywhere for 2k a month. Imagine only selling one program a month to get that.
+			- Get your offer right and you will make sales:
+				- I am not a copywriter. It is something I would like to work on but I don’t need to. I know that if my offer is spectacular, I will make money.
+				- What is a spectacular offer?
+				- One that makes you think, “Holy shit, I can’t believe I am doing this!” Roosh saw an increase when he started offering more bonuses and making the offer better.
+			- The one thing I have found that works great is to offer a product for sale on a time frame. In fact, I will be doing this for most of my products. I have my products that build my lists and other products that will only be marketed to that list.
+				- Here is how it works.
+				- I have a group of products that I will sell periodically. I sell them for a week and then pull them off the marketplace. I am in the middle of building up that product line to where I will sell two products a month using this system. It will be available twice a year.
+				- Sometimes people have to be pushed to purchase now or they will wait. This pushes the hell out of them but also tells them if they ever refunded they wouldn’t be able to get it again.
+			- If you also add limited quantities you can punch up the price of the product as well. These are very powerful techniques that anyone can use. Again, I am no copywriter and I can’t tell you how great this stuff works.
+				- Don Wrote:  Thanks for the info man, would you have any tips for someone who's interesting in giving this a shot, but has a budget of 100 - 200$? Say you were in my situation, what would you do.
+			- Get active in the communities for that market. There are forums for just about everything nowadays.
+				- After some time, you see the same questions asked over and over again and you will know the answers. A lot of those questions would be your evergreen products.
+				- There will be product sellers in those communities as well. Build relationships with them instead of looking at them as competition. Check out what type of products they are selling and look into creating complimentary offers that would appeal to their customers.
+				- Hell, one thing that worked for me was telling a guy with a sizeable list that we could brand the product in his name. List owners love that shit because they don't have to do a damn thing and they have something more to sell.
+				- List owners have a hard time finding quality products to sell. You make it easy for them and they will become your best friend.
+				- My main customer lead source is affiliates. I also have done some paid ads on various networks but affiliates are my best converting source. I rather devote more time to creating more products than maximizing ad conversions.
+		- Affiliate Marketing Data Sheet
+		    source:: https://www.rooshvforum.com/thread-60868-post-1494643.html
+			- Contents
+				- 1 Introduction
+				- 2 Definition
+				- 3 Tools
+				- 4 Clickbank glossary
+				- 5 Direct Linking & Search Engine Advertising
+				- 6 Affiliate Marketing with Squeeze Page / Landing Page
+				- 7 Feasibility
+				- 8 Conclusion, Thoughts and Recommendations
+			- Introduction
+				- This data sheet is dedicated to demystifying Affiliate Marketing - If you always wanted to get into it (maybe you want to be location independent), this will give you a realistic perspective. If you want the easy money, this will discourage you from doing it (if you are interested in knowing the numbers before you dive into it, go to Feasibility and Conclusion).
+				- In general, the market is saturated and volatile. There's a low barrier of entry, which means, that literally everyone can enter the market. Affiliate Marketing is a low hanging fruit. Rules change all the time. Even laws – a lot of Amazon Affiliates have been warned just recently in Germany. No one knows what will be next year – or even in 5 years. So consider the potential lack of sustainability.
+				- I don't consider myself an expert and I don't know it all. This is my experience and opinion; your mileage may differ. If that's the case, you are welcome to add intel.
+			- Definition
+				- Affiliate Marketing is selling and marketing other people’s products. After join an Affiliate program, you get a unique link to the product. This link is directly tied to you, so you get provision for every sale.
+				- There are multiple ways to do Affiliate Marketing
+				- 1. Direct Linking. It is obsolete and does not generate leads, but it’s still a useful tool for getting first experience.
+				- 2. Landing Pages with Opt in/Squeeze page. By collecting the E-Mail addresses, you are generating leads.
+				- 3. Niche site. Product reviews and tests to niches with specific key words.
+				- 4. Blogging. Publishing articles about a specific topic and occasionally promoting a product.
+				- There are more Affiliate Networks out there:
+				- Peerfly Affiliate Network
+				- CJ Affiliate Network
+				- Warrior Forum
+				- Amazon Associates
+				- I will focus on ClickBank and Amazon in this datasheet as I am most familiar with them. If you have experience with the others, feel free to add information.
+			- Tools
+				- In my opinion, these tools are necessary to be really successful in the long run. You don’t need them if you start out, or you can use the free trial. Keep in mind that it can become quite costly.
+				- You don’t need to have all the tools, some are basically doing the same or something similar (GetResponse vs Aweber vs ClickFunnel).
+				- AWeber, MailChimp, Constant Contact etc,
+				- E-Mail Marketing platform for sending sequences or broadcasts.
+				- Cbengine
+				- Offers good insight into what’s going on behind the ClickBank Marketplace. Makes searching for parameters and metrics easier.
+				- GetResponse
+				- It's an Auto Responder with the feature of building a Squeeze Page / Landing Page.
+				- Click Magic
+				- Invaluable tool to track what keywords are getting sales / or opt-ins into Mailing lists.
+				- ClickFunnel
+				- It’s a monster of a tool, allowing you to create complete sales funnels for literally everything. Quite expensive.
+				- ClickBank Builder
+				- Allows you to build and host squeeze and landing pages without needing a domain. Costs a lot.
+			- Clickbank instruction
+				- Pick a Product you know and like.
+				- Avg $/Sale. How much money you will make when you make a sell.
+				- Popularity. How many sales the product has and how much money its making. It's not a bad metric, but it's less important than Gravity.
+				- Gravity. It's the most important value for Affiliates. If an Affiliate makes at least one sale, it goes up by one. Gravity ultimately shows how well a product actually is selling.
+				- 1) Always pick Gravity bigger than or equal 1, if you are not feeling like gambling.
+				- 2) There are different philosophies on how high Gravity usually should be. Some say the higher the better, but in my opinion, it just creates more competition for keywords. Try picking products with max 60-100 gravity in that case. Try to find the sweet spot and works for you – capturing leads always works regardless of Gravity.
+				- Average Rebill Total. If there is a subscription with recurring costs. $$$
+				- Do I have to know the product? Well, if you want to have the moral authority to recommend it, yes. Ask for a free affiliate copy. Dont misuse the return policy, you will get flagged.
+				- Some Vendors offer pretty good affiliate tools, like prepared copies. Use them.
+			- Direct Linking & Search Engine Advertising
+				- With Direct Linking, you directly drive traffic to the product. You should not do this and you will see why. But here is how it generally works.
+				- You buy Ads for specific keywords. Google Adwords are potentially the most lucrative, but Bing Ads are cheaper and you get enough click throughs. Bing Ads and Google Adwords work basically the same way.
+				- It's a complex tool and if you wan't to get into that you have to do some digging on your own. But having an idea how it works is a useful skill. Remember: You won’t do Direct Linking and you soon will know why. It's just useful to know how it works.
+				- Usually I would say it's a good starting point to get some money flowing. But here's the problem:
+				- 1) You don't generate leads. Bad!
+				- 2) It simply doesn't work, because GoogleAdwords and BingAds suspend you
+				- My account on Bing got banned without further comment, so I can't say what I did wrong. Had some trouble getting back my money. I suspect they don't allow direct linking to other people's funnels. And you need to have a Privacy Policy. Other than that, beats me.
+				- At least on GoogleAdwords, my campaigns were suspended for just that reason. Google doesn't allow you to direct traffic to other people's sales funnels. You got to have your own thing in between! Which completely renders direct linking obsolete and brings us to building your own branding. There's no other way around it!
+				- And here you start to see the issue with AM: Rules change all the time and screw up everything you have going. You are completely dependent on what others do and how your infrastructure changes. Also, make sure to study the Ads policy so you don't get suspended. I personally found it fun to tweak all the values without much investment. Just to see how the markets work. And knowing how to use AdWords is a good skill to have if you want to promote your business, service or product.
+			- Affiliate Marketing with Squeeze Page / Landing Page
+				- You don't just drive traffic to the product landing page. It's considered bad practice. You will lose potential customers forever and miss out on long term income opportunities.
+				- Imagine if you could get the E-Mail addresses of those potential customers. They have demonstrated an interest in a specific area – let's say paleo, for example. So, from now on you collect the E-Mail Addresses and you can pitch to them later – they are leads.
+				- You need a Squeeze Page an (or opt-in page) to generate leads. It's called like that because you squeeze it in between the source of traffic and the product you are promoting. You don't need to consider Gravity anymore, you can still generate leads in a niche.
+				- You offer free, high quality value by E-Mail and occasionally you ask for action (Affiliate Link, Product link).
+				- How many subscribers you need to make good profits will be discussed later.
+			- With a Website and with Amazon Associates
+				- Amazon Associates is an affiliate program by Amazon. You get a provision of 10%, depending on the product. One possibility and example is building a small web page with reviews and tests of products.
+				- Usually, such a website is low (lower) maintenance, after you get it running. You need a Domain (can’t be a trademark obviously), a Hosting service and WordPress.
+				- The goal is to find a good market, which can be summarized in a short keyword. What’s a good market? Well, I’m glad you ask!
+				- The niche should not be to small and not to big (Check name with AdWords Keyword-Planer)
+				- Your competition is low, e.g. there are not lot of websites around doing the exactly same
+				- People want to buy something in that market and are not looking for free stuff
+				- You can actually write stuff about it
+				- Amazon offers products when you type in your keyword
+				- Example:
+				- http://thebestespressomachines.org/
+				- I don’t know what the legal situation is in other countries, but in Germany a lot of “test” pages have been warned (which is one step before getting sued), as they don’t really test but just drive traffic to their affiliates. This is a perfect example of changing rules in the Affiliate Marketing business and how it can affect your income.
+			- Feasibility
+				- How many Subscribers do I need? What are the conversion rates?
+					- Usually, aim to get 1 sale for 100 visitors. If you are not getting sales after your 300-400th visitor, ditch the product/landing page. That's just my rule of thumb when looking at the analytics. Everything else is not that easy.
+					- (http://www.wordstream.com/blog/ws/2014/0...rsion-rate)
+					- The stats are as follows: You have E-Mail Open Rates of 20-25%. You have a Click Through Rates of 2-3%.
+					- Now let’s do the math. Imagine you want to reliably get 10 sales every day. Lets assume you are awesome and in the top 25%. You get a conversion rate of 5%. You need 200 high quality visitors.
+					- Let's assume your Click Through Rate is about 2-3%. You need 6000-7000 people clicking on the link in your E-Mail.
+					- Which are 20-25% of the overall recipients. You need a list of ~30000 high quality subscribers.
+					- 30k is A LOT. And this assumes that you are in the top 25% (in the Top10% you need half as many subscribers). If you are average, you need 60k+ subscribers. If you have conversion rates of 1% like 25%... 150k+ subscribers.
+					- What are 10 sales? I've checked some high gravity products and they usually range between 10-30$ (some outliers). So, you will get 3000-9000$ each month – if you have daily E-Mail sequences. Getting to that number of subscribers is one thing. Writing enough converting E-Mails with perfect copy writing to fill the E-Mail sequence/broadcasts every day for a long, long time is another. Keep in mind that you can only pitch every 3-4 mails without appearing spammy. 10 sales a week is more sustainable, but won't enable you to become financially independent. You get the idea.
+					- Keep in mind that with increasing subscribers the cost of your Mailing list increases drastically.
+					- And that's the thing with Affiliate Marketing no one is going to tell you. You can decide for yourself if getting tens of thousands of subscribers and supplementing them with a lot of E-Mails is realistic.
+				- Example of what can be expected
+					- What counts as both realistic and successful, in my opinion?
+					- This. You will notice that:
+					- 1) It's not a lot.
+					- 2) It fluctuates.
+					- In my opinion, this will put you ahead of 98% of your Affiliate competitors. For someone from the third world it's a lot. But for you it's first and foremost a lot of daily tweaking, paying Ads, paying for Hosting and tools with a potentially low RoI.
+					- I personally found it fun to do split tests, copywriting and experiment with keywords. For a while. It feels a bit like gambling. Keep in mind that most people don't even get that far.
+			- Learning from Top Affiliate Marketers
+				- These are the mere basics. If you are starting out, you are not going to know what to do. Either you spend months and years experimenting, or you pay for a program or mastermind. Usually, good advice is hidden behind a paywall – other Affiliate Marketers offer their products on how to do Affiliate Marketing. It's a feasible business model - for them. I was thinking about doing my own course on how to do Affiliate Marketing, too. Because it's such a lucrative market.
+				- Don't fall into the trap of Survivorship bias. This means you should not listen exclusively to guys who „made it “. By this I mean high revenue marketers, who could live from their income. Yes, I've seen some impressive revenue. We are talking about 1000$ a day. But here's the thing:
+				- – Those Marketers have been doing it for years. This means they got started when it was easier to become established. In addition to being established, they have a lot of experience about what works and what not.
+				- – They dominate a lot of niches. They dominate keywords and can afford to buy Ads with good keywords. Also, they rank high in Search Engines.
+				- – They have massive E-Mail lists with high quality subscribers. Their broadcasts and E-Mail sequences are on point. Their copywriting is flawless. Chances are you don't even know some of those words when you start out.
+			- Conclusion, Thoughts and Recommendations
+				- I don't say it can't be done. I just say doing something else, investing in something else might be simply a better choice. For example, your own high value information product, service, etc. that you can market yourself. Or let others do the marketing.
+				- By the way, I don't think I will contribute to the saturation of the market by making this guide public (like I said, most of it is behind a pay wall. Maybe some people will even be pissed about it). Quite the opposite. By being upfront about the odds and telling „all those secrets “, Affiliate Marketing will stop looking like a „get rich quick” scheme and attract less people. So, paradoxically, it may become more feasible again at some point.
+				- If you want some coffee money, sure, you can get into it. But you need to be ambitious and can't do it in a half assed way. A lot of people seem to think that's it’s this passive income-ish stuff you can do on the fly. Nope. You should work on it every day and build dozens of campaigns. Step by Step. And you need to put in money to drive traffic, generate leads and pay for tools. Even then there's no guarantee that you will break even. You have seen the math we did regarding the conversion rate!
+				- So, you still want to do it? My advice is common sense: Start with one small thing. 2h a day, every day. Don't put too much money into it at first. Play around a bit, see how it works out. And build it from there. Personally, I put AM on hold for now and focus on other projects, but might come back if I have some time. Currently I'm experimenting with Social Media Marketing and building my own brand.
+		- Biz resources
+			- Ok, here are some resources. I think the best thing would be to figure out which
+				- Ok, here are some resources. I think the best thing would be to figure out which one of these are you most interested in, then dive in that and specialize.
+			- Free Traffic: SEO, Content Marketing, Social Media, etc.
+			- https://www.quicksprout.com/2014/09/22/g...2-courses/
+			- https://www.quicksprout.com/university/
+			- https://moz.com/beginners-guide-to-seo
+			- https://moz.com/learn/seo
+			- http://my.copyblogger.com/
+			- Paid Traffic: AdWords, Facebook Ads, Media Buying, etc.
+			- Traffic Blackbook 2.0 (you can find it online)
+			- A Complete Guide To Affiliate Marketing - Finch Sells
+			- Google's official AdWords Training
+			- Digital Marketer Lab (I haven't bought it, but I heard good things about it)
+			- Keep in mind that this is only about getting traffic. Although there are several conversion optimization guides in there, that's a separate subject.
+			- Then there is also funnel building a la Russel Branson (DotCom Secrets).
+			- My advice to you is to determine what do you want to do online first, then learn skills needed for it.
+			- Do you want to be an affiliate marketer? Finch's guide is a good start.
+			- Do you want to do lead generation for local businesses? AdWords and Facebook ads are golden.
+			- Do you have your own product you want to promote? First find places where your ideal customers are hanging out online, then buy traffic from there.
+			- If you have any more questions shoot.
+		- Be a "Business Partner" Guru
+			- you know how they say that having a business partner is like getting married?
+			- well, it’s not.  it’s worse.  it’s way, way worse.
+			- or better.  either way.  you don’t want to start out with people who have obvious flaws.  if you had any success you probably get “offers” on a pretty regular basis.  broke guys wanting you to pay them, and also give them a big piece of your ideas and work.  and “investors” who want giant piles of equity.
+			- and if you’re still new and starry eyed, then you get even sillier things.  it’s like the young dude getting married to his first girlfriend.
+			- but then sometimes you run into a perfect combo.  somebody who has their act together.  some relevant experience.  contacts.
+			- and you realize that a lot of times it makes sense to have a business partner.
+			- but you know what?
+			- that stuff almost aways gets complicated.  personalities, pressure, changes, it’s never easy.
+			- i’ve got a fair amount of friends who went down that road.  some with better luck than others.  but there are always long drawn out arguments and things along the way.
+			- you know what they all need?
+			- they need … a business partner shrink.  a therapist for business.
+			- this, a guy who knows business, been there, done that.  had some partners.  has a thing for psychology.  somebody who can sit back and without saying too much, let the business partners talk it out.
+			- you wouldn’t even be doing much, mostly listen.  and you know, when things get quiet, repeat the last few words of their last sentence, with a question mark at the end.
+			- that’s it, jake?  a shrink for business partners?
+			- yea, it’s not as glamorous as some fucking app.
+			- but there is a whole, whole lot more here.  there is a killer hook that’ll make every business journalist chase you for interviews, and massively successful CEOs want to talk to you.
+			- but first and also, it’s a solid way to make a business.  you meet a whole lot of relevant people.  you get to hear a lot of stories.  and with every new set of clients you learn so much more about various businesses and challenges than 99% of people do otherwise.
+			- imagine you do this for ten years.  you’d be the uber-guru of business.
+			- you write some books.  you have seminars.  you have all sort of subscription services, pimping this to kingdom come.
+			- it suits a certain personality type.  here you’ve got a field with not much competition, you don’t need fancy degrees, and you can really establish an interesting area of expertise.  imagine too, all the opportunities for free PR, with all the stories you’ll be able to tell.
+			- but of course, that’s the wee tip of this particular iceberg.  the thing not immediately apparent is the part of this ideas that will make you the guy people talk about at business get togethers and in business circles.
+			- because the idea, the hook, is fun.  it’s super weird.  it appeals to superstition and i-have-to-know-how-he-did-this.
+			- it is … i can tell you all the key parts of your business partner’s personality.  detail oriented anal relative or big ideas dreamer, no-follow up guy.  opportunist selfish type or fiercely loyal.  in need of praise and direction, or independent and easy going.
+			- i can tell you without ever having met him.  and you know … so can you.
+			- —
+			- ahhh, fuck.
+			- i’ve said it for years.  leave comments, it’ll pay off one day.
+			- this best part, which is just straight up genius (and pretty weird).  how you almost immediately create a ton of credibility, get yourself published in the business magazines.  have all the journalists chase your for quotes and your opinions?
+			- all right so in all fairness i’m going to totally cliffhanger this one.
+			- not because i want to.
+			- but here is the pretty weird thing:
+			- without ever having met your business partner, i can tell you what he or she is (or is going to be) like.  is he going to try to rip you off?  is he a scammer?  is he super anal retentive, mad detail oriented?  is he a dreamer?  big ideas, terrible at follow-up?  is he loyal or ready to bail anytime things get tough?
+			- more interestingly, i can tell you how your business persona and his will mesh, and where it’ll get tricky. i can tell you if your business partner needs a ton of praise (or not), and how he deals with criticism, and what gets him motivated.
+			- what if i told you that you can make a really interesting assessment of a business partner’s personality, relative to your partnership, through … just keep an open mind for a minute … astrology stuffs?
+			- i know.  weird.
+			- and you know the blog so you know of my affinity for profiling girls and cheat sheeting dates based on some astrology indicators.  i’m not a fan of astrology due to the non-science cooky-ness.  but there are things there that i absolutely know i can leverage.  so … whatever.
+			- if you are totally anti the whole thing, then this isn’t for you.
+			- but if you dabbled, if you noticed that past all the cold reading and applies-to-everybody crap, there is some odd relevance, then this, totally.
+			- yea, yea jake.  whatever.  so what if you can somehow divine business personalities.
+			- so then here is the even more interesting part.  YOU can tell these things, too.
+			- if you ever managed to make sense of the girl dating thing through astrology, then you already have all the pieces.  all you need is the specific planet alignment things that make it all relevant to business (that’s the only tiny part of the formula i’m not putting up, here).
+			- and here is where it gets really interesting.
+			- you get a piece of code written.  dude man puts in his birthdate, and the site / app spits out his business personality.  he gets the first part, for the full review he needs to put in his e-mail address.  add some graphs and charts that are Facebook shareable, along with a “so what’s your business personality?”
+			- bam.  e-mail list plus social.
+			- the novelty aspect alone is going to net you a whole bunch of people interested in business.
+			- you write a little book filled with cliffhangers and lots of interesting anecdotes.  you know how you get those?  you read entrepreneur biographies (ya know, books), you get their birthdates, you link what you know to the personality that comes through in their stories.
+			- gold,  gold.  GOLD.  you analyze the greatest business minds.  steve jobs, what’s his business dude something something sign?  you make up names for it.  you write pieces and shop them around all the business media.  make it engaging and relevant and you’ll get exposure in no-time.
+			- you compare them, you stipulate how their personalities made them successful, what parts of their personalities held them back.  you’ve got an endless library of people and lots of stories right there.
+			- even if it wasn’t real (debatable though i really believe that there is something to it), people will eat it up.
+			- if you want to be a famous business guru, and you have a flair for the weird, the embellishment, being an entertainer, then this is a killer business for you.
+			- extras:
+			- Wait, wait, wait … Recruiters should be the audience.
+			- See if you can make it go viral on LinkedIn, though I think personality testing is the current socially acceptable alternative (INTP/ENTP myself).
+			- The only snag would be if you had a low tolerance for charlatanry/high moral opposition to cold reading. Still, that’s what pen names are for.
+		- Earn thousands per month writing erotica
+			-
+			- The Six-Figure Erotica Author by Jade K. Scott
+			- April 21, 2015 By Robert —Leave a Comment
+			- The Six-Figure Erotica AuthorWriting erotica is the fastest and easiest way to make money online. If you put out three or four short stories a month you could easily earn $800 to $1,000. More serious authors who are releasing 10 or so stories a month are pulling anywhere from $7,000 to $10,000.
+			- To put it mildly: There are more erotica authors making $100,000+ a year than there are bloggers, get-rich-quick hucksters, or “lifehackers” who earn a similar amount.
+			- If you’re a college student or just someone looking to make a few extra bucks, I’d highly recommend writing erotica. It takes very little effort (I can finish a story in under three hours) and you can build up a nice little passive income.
+			- Best of all, it requires no special skills or major investment.
+			- You don’t have to spend five months building a blog, or buy a book about SEO, or watch endless YouTube videos on optimized content.
+			- Writing erotica is pretty much a fire-and-forget industry. You pump out books, throw them online, and then collect a royalty check at the end of every month.
+			- How to become a mildly successful erotica author
+			- I am not some wildly successful erotica author. I’ve never had a number one selling book or made $10,000 in a month from my work. But I’ve also never put a whole lot of effort into this venture.
+			- As of right now I haven’t published a single new story in almost a month. Yet I’ve still got 21 different titles selling on a daily basis, churning out a decent side income. Is it enough for me to retire on? Of course not. But an extra $500 or $1,000 isn’t anything to laugh at either. It allows me to focus on other businesses and gives me a little extra capital to fund new projects.
+			- One of the nice things about erotica stories is the fact that they sell themselves. A good cover and title will move books for you without any extra effort. I’ve never built a blog for my pen-name, started an email list, or even opened up a social media account. While all these things can definitely help boost sales, they aren’t essential. Unlike most other ventures, the learning curve is amazingly low.
+			- So low, in fact, that I learned everything I know about the industry from one brief book. The Six-Figure Erotica Author by Jade K. Scott (Amazon). This is a concise how-to guide from one of Amazon’s most successful authors. Scott is so popular that she hasn’t published anything in months and is still ranked as the 58th highest grossing erotica author on all of Amazon. With 146 books, averaging around 30 sales a day per title, I figured Scott had some industry secrets worth sharing.
+			- What The Six-Figure Erotica Author did for me
+			- I purchased my copy The Six-Figure Erotica Author towards the tail end of December, 2014. I followed all the advice, wrote a handful of books, and watched my earnings increase modestly. Before buying the book I’d made a measly $100 in total royalties. After reading the book and following its advice for one month (and that included directly copying the sample story outline) I made over $230 in worldwide sales.
+			- The following month I stuck to the book’s advice, turned out more stories, and earned roughly $500 in royalties. And then I doubled my profits again in March.
+			- The Six-Figure Erotica Author Earnings
+			- (U.S. royalties were about $175 in January)
+			- $230 isn’t a lot of money, but it didn’t take much time to make either. It took nine hours for me to write all my books, averaging out to around $25 an hour. If I were a broke college student or underemployed graduate making minimum wage, I’d invest a few hours a night into erotica writing. The average monthly student loan is $242. You could write a few erotic short stories to pay your bills.
+			- If you sat down and wrote two stories every Saturday afternoon, you’d end with about $1,500 in passive income.That’s almost as much as some people earn from a full 160 hour month of work. Summer is coming up and I know that a lot of college students will have plenty of free time. Why not do some writing to help with tuition next year?
+			- Get paid to learn a new skill
+			- For several months I’ve been working on a novel about killer goats. I enjoy pulp horror titles like Night of the Crabs (good review here) and The Rats. But, as anyone who has ever attempted fiction quickly discovers, writing a novel is hard work. Penning dialogue, pacing a story, adding descriptive imagery. All that stuff is immensely difficult.
+			- Even writing something as pulpy as a flesh-eating goat story can become immensely complex and difficult.
+			- This leaves you with two options: Spend thousands of dollars on fiction writing workshops overseen by some stodgy academic (who hasn’t published a bestseller either), or write every day while getting incrementally better.
+			- Authoring and publishing erotica is a great way to make money while learning how to write. You get to practice your storytelling skills, hone your editing abilities, become an expert on keywords, and master the art of eBook formatting. All while getting paid.
+			- If you’re really ambitious you can take these same skills you learn and use them to start a consultation business. I have several recurring clients who hire me to explain things like sales rank, keywords, and cover design.
+			- You’re paid to learn and paid to teach.
+			- How my “dud” book outsold Chris Kluwe’s memoir
+			- During early March I released a really stupid book that was based around a nonsensical joke. My title peaked with a sales ranking under 30,000. This means that I was selling about seven books a day.
+			- Eventually my sales rank fell to the 40,000 range. I was now selling three or four books a day.
+			- BigFoot Book Earnings
+			- (Rankings from beginning of March)
+			- While this might not sound like much, my title was outselling hundreds of thousands of other books on Amazon. Including Beautifully Unique Sparkleponies by former NFL player Chris Kluwe. In fact, this one 3,000 word erotic story was selling about four times as many copies as Kluwe’s memoir was. Kluwe is a man with national fame and almost 200,000 Twitter followers. But my self-published book managed to sell circles around him, and without any sort of marketing or promotion.
+			- This is actually a fairly common phenomenon. A self-published erotica novel once debuted on the same day as a new Stephen King book, and almost beat King out for the Number #1 spot on all of Amazon.
+			- That’s because erotica is a multi-billion dollar industry. And one of the only big-money fields that’s easy to get into and profit from. Even as I write this, two of the top five Amazon bestsellers are erotica stories.
+			- Amazon erotica bestsellers
+			- Create a sell-publishing empire today
+			- The Six-Figure Erotica Author (Amazon) is one of the few books that’s had a direct impact on my earnings. This isn’t some theory title where you get 10 ideas to implement into your own business. You get actual, actionable information that can be used today. I got so much value from this short guide, that I even revoked my “no book reviews” policy to tell you about it.
+			- If you’re looking for an easy way to make some extra money, erotica writing is a fantastic venture. You could easily churn out five or six stories a month and quickly create a four-figure recurring income.
+			- What could you do with an extra $12,000 a year?
+		- How to Become a Professional Public Speaker | The Art of Manliness
+			- 3. Once you’ve become successful in something, how to you segue into public speaking? How do you go about getting the word out that you’re available and start getting your first bookings?
+			- The easiest route is to get in touch with conference organizers via email and introduce yourself. Give them a quick sense of who you are, what you’ve done, a brief synopsis of what you’d talk about, how their audience would benefit from your expertise, etc. Oh and that you’re willing to talk for free! You’d be surprised how often this works as conferences are always looking for fresh, new speakers to include in their lineups. Getting that first gig is always the hardest but it gets much easier after that because an audience has heard you, reacted to you, tweeted about you. The word about you is now officially out.
+			- 4. When people invite you to speak, how do you know how much to charge for your rate? What is the average rate of pay for speakers?
+			- The very first thing I do is determine if the event organizers are willing to pay anything at all. A lot of conference speakers are happy to speak for free for a number of reasons; their employer doesn’t allow them to take a fee, they’re just starting out in speaking, the value of the exposure to their company or product is worth doing the speech for free. That’s not the case for me as I don’t have a service or product to promote so I get no value from “free publicity.” After that, I take a look at everything from the size of the event, where it is in the world, how many days I’ll have to be away from home, the topic, and the industry.
+			- To be completely honest, once you’re established, public speaking can be very lucrative. I know people who charge anywhere between $25-40k for a single appearance. Some former CEOs, politicians, retired athletes, and “celebrities” charge hundreds of thousands of dollars for a single appearance. But it takes years and years of speaking and a hell of a reputation before you can start charging that much. If you’re curious, browse some of the speaking bureau websites–they often have price ranges listed for each speaker. Oh and just to be clear, high fee does NOT equal great speaker. I’ve seen some lousy speakers who charge an absolute fortune on the back of their previous career or accomplishments.
+			- 5. Some speakers are represented by agencies that book gigs for them. Do you recommend this?
+			- When I first started out speaking professionally (i.e. being paid to speak) I was doing everything myself. Finding gigs, responding to inquiries, negotiating, planning travel, invoicing, chasing payment, etc. It was time consuming and really frustrating, especially anything to do with money. I didn’t know what I should be charging, how to structure the contracts to protect myself, when to say no to a gig, or what to do if an event organizer didn’t pay. The latter happened often, surprisingly–I’m still owed a pretty sizable fee for a gig I did 2 years ago.
+			- Lesson learned. But for the last year I’ve been represented by a London-based agency called JLA (JLA.co.uk) who are awesome. They were recommended to me by a friend who is also represented by them. They take care of everything for me: finding gigs, negotiating on my behalf, all the contractual work, taking care of logistics, etc. They pay me directly, too, so I never have to worry about not getting paid.
+			- 6. How does getting representation work—do you reach out to them or do they reach out to you?
+			- I got in touch with JLA, mentioning my friend’s recommendation, and we arranged to meet at their office. The meeting was mainly to see if my speaking style, content, etc would be a good fit for their client base and whether I felt they would be a good fit for the market I was going after. It’s been a fantastic relationship since Day 1.
+			- All that said, I’ve been approached a number of times by other agencies who either want to represent me or want to feature me on their site. The latter happens often as agencies work together to cross-promote speakers. So it can work in both directions, but the key is to find an agent or agency that you can have a good, honest, open working relationship with and who really understands your style and content.
+			- 7. How many speaking engagements do you do a year?
+			- My busiest year was 2010 when I did close to 30 engagements all over the world and racked up 103,000 miles of travel. I pulled back dramatically in 2011 so I could spend time with my newborn son. Right now I do about 1-2 paid events a month. That includes everything from full-day workshops to keynote speeches to MC’ing events for private organizations.
+			- 8. What do you think are the keys of being a successful public speaker?
+			- You have to know your stuff. Inside and out. And I don’t just mean your subject matter, I mean your material. You have to know every slide, every transition, every image. That way you can present without notes or prompts which makes you seem conversational but knowledgeable– which is what all good speakers should be aiming for. It’s also super important to have simple, clean slides. In my most recent keynotes, over 80% of my slides only have one line OR graphic/chart on them. That way you’re not asking the audience to listen to you AND read an essay at the same time. Speaking of essays, avoid reading from a prepared script–so many people trip up on this one. They spend hours and hours writing out every word of their speech and then stand up and recite it verbatim. Snoozefest. It’s also lazy and a disservice to your audience and to you as a speaker. Finally, have fun! Relax, enjoy, go a little nuts and march around the stage–people will dig your energy and enthusiasm.
+			- 9. What is the best part of your job?
+			- The people. I can’t think of many jobs where I would get to meet such a broad range of people in such a short space of time. And I’m not just talking about job roles or even industries, I’m talking about entirely different cultures. Whenever I go to an event I make it a point to hang out with as many people attending the event as possible, and I’ve made some great friends as a result. Another great thing about my job is that I’m exposed to a broad variety of new subjects. Each time I speak I spend several days researching the industry, the country, the attending companies, etc and since I speak at trade events for industries I know absolutely nothing about, several times a year I get to learn an entirely new subject. They have all been, without exception, fascinating.
+			- 10. What is the worst part of your job?
+			- Apart from being away from home, I would say the worst part is the unpredictable nature of the speaking industry. You never know when your next event is going to be, so it can make it quite hard to plan around, both financially and logistically. It’s hard to factor in speaking work to your annual budget because while events pop up throughout the year, it would be a mistake to assume you’ll get a certain number of events during a given period. I’ve been doing this professionally for 2 years now and haven’t seen any patterns to how and when events come my way.
+			- 11. What is the work/family/life balance like for you?
+			- It’s a series of extremes. Since I work from home I get to spend a lot of time with my wife and 15 month old son. But speaking frequently takes me all over the world, and I’m certainly grateful for that, but being away from my family really sucks. It got so bad that I started trying to figure out the shortest possible amount of time I could be away. So I’d fly from San Francisco to Singapore for 20 hours or back to London for a day and a half. Not healthy or fun. But I’ve been working on that and try to bring my wife and son with me when I visit new places or just turn the gig down if I think I’ll be gone for too long. On the flip side, the income means I can focus on other projects (my latest project is here www.plonkr.net) and not have to worry too much about paying the bills, as long as the speaking events come in reasonably regularly.
+			- 12. What is the biggest misconception people have about your job?
+			- People are often surprised to hear that I’m paid a fee to speak at events. They assume that my expenses (travel, accommodation, etc) are covered but that the only people who are paid to speak are celebrities and ex-politicians. They’re even more surprised when I tell them the upper fee range that some people in the industry are commanding. But the world of professional public speaking is absolutely open to anyone who is knowledgeable and passionate about their subject. If you can relay your thoughts with enthusiasm and clarity, people will pay good money to hear what you have to say.
+			- 13. Any other advice, tips, commentary or anecdotes you’d like to share?
+			- A couple of years ago I wrote down 10 tips for being an engaging public speaker. I live by these and they’ve served me well so far. You can find them here: http://thinkvitamin.com/web-industry/10-kick-ass-presentation-techniques/ To ultimately be successful as a public speaker, you need to be an entertainer AND educator. You have to hold hundreds of people’s attention for 30-60 minutes while giving them interesting, useful information to go home with. I won’t lie, it’s exhausting. But a hell of a lot of fun.
+			- London speaking bureau - Google Search
+	- General 2
+	    collapsed:: true
+		- BS Your Way to Internet Riches
+			- [source] https://www.blackhatworld.com/seo/bs-your-way-to-internet-riches.10964/
+			- Contents
+			- Introduction
+			- Whit Hat, Gray Hat and Black Hat
+			- Market and Product
+			- Psychological triggers
+			- Technical information
+			- The BS Riches Tributary
+			- Introduction
+			- I admit I am a newbie at Internet marketing. The first task I set for myself was to understand what the hell all the hawking was about, so I undertook some education. I have since consumed Internet marketing books, ebooks, audios and videos until they came out my ears, including crap on MLM, hypnosis, horse racing and God knows what all else. From the hype alone, I should know enough secrets to put the CIA to shame.
+			- I don?t have many secrets, though. All I have are some thoughts, overviews and technical information. I am putting some of it down in an organized fashion, in a kind of blueprint form. This is more for me because I want to eventually make money from it. Use it if you think it?s worth something. I don?t mind sharing. The customer base is huge and growing. Just don?t spam it.
+			- I wish I could take credit for some of this stuff, but it came from many sources. Those of you who are old-timers will know where a lot of things came from. Later, when this study comes to a money something, I will throw in the sources, elaborate a 200 page ebook, a 600 page loose-leaf binder course, 12 CD?s, a DVD six-pack, and membership site with guest guru participation and lots of freebies. Oh yeah, I forgot. It will only be $1,995, down from $3,995 for a limited time only because I think you are extra special.
+			- I care.
+			- Whit Hat, Gray Hat and Black Hat
+			- The whole purpose of Internet marketing is to sell people stuff or get them to do stuff that pays you.
+			- That?s it.
+			- There are three basic approaches. If this bothers anyone, I don?t mean to be offensive. I am simply stating categories as I see them. I will be using them as I go along.
+			- White Hat: Sell the best stuff you know, believe in it, and follow the rules.
+			- Gray Hat: Do White Hat stuff, but throw in some bullshit and if, perchance, you sell some crap, take the money and run.
+			- Black Hat: Get as much money for as little as you can. Favor quantity crap over quality value.
+			- We can go outside this scheme altogether and sell freelancing services, but that?s employee mentality. My focus here is on entrepreneurship and getting rich. If you get real broke, sell some writing or coding or flip some hamburgers to get by until you make it. I didn?t bother studying techniques for any of that.
+			- Another division of online promotion is useful:
+			- Spam: There are many names for this, shotgun approach, throw a lot of mud on the wall and see what sticks, etc. The crux of this approach is to automate quantity and not care so much about profiling.
+			- Targeting: There are colorful labels for this, too: laser targeting, finding schools of hungry fish, niche marketing, etc. The most important aspect of this approach is profiling a customer base through different kinds of studies.
+			- White Hatters target. Black Hatters spam. Gray Hatters do both.
+			- Market and Product
+			- There aren?t too many aspects to worry about here:
+			- 1. Find a lucrative market and product,
+			- 2. Make a place to sell it and advertise, and
+			- 3. Sell it and get paid.
+			- To identify a lucrative market, you have to see what folks want to buy, find something similar and offer it to them. Or you can be a stubborn fool and try to get them to buy some crap they don?t want. Stay broke, I don?t care. This is one of the most important decisions of the process and you should make it consciously, even if you think you don?t need to.
+			- If you can be passionate about your market and product, all the better. But Don?t-Give-A-Crap marketing (when disciplined) will always outsell Fool-In-Love-With-His-Dream marketing. No exceptions. If you can?t have both, take the first. Make some money. Then you can at least become a sucker and pay for it.
+			- People pay the most when you solve a problem. So search for phrases on Google like ?no solution? and ?need help? and so forth. Forums are good, so add the word ?forum.? See what comes up. Find the ones that come up most often. Do some reading. Then see if you can find or make a product that solves their problem. This will define your niche and product at the same time. (Niche means small specialized market.)
+			- Also, you could look into desperate people (people with eminent money disasters, especially home foreclosures, spouses with fear of being cheated on, insecure people who cannot get dates, those with severe diseases, fat people, etc.). This is really predatory if you do not provide value, but if you do and you over-deliver, you will make good money and provide them a service they sorely want and need. Not everyone is suited to this category, though, and you could end up a nervous wreck who is unable to sleep at nights from guilt and empathy. Check whether you have more of an inner moral compass or a callous where that should be.
+			- The best stuff is digital because there?s no overhead, but you know what you know. So if your product is physical and there is shipping, deal with it.
+			- Then look on Amazon, eBay and other places that provide product sales statistics. See how the products sell for this problem and niche. There are all kinds of techniques for checking this, so look for them in the literature. The only important part is to be sure you are looking at closed sales statistics and not simply product searches or offers.
+			- On keywords, you?ve got to do the donkeywork. Keep in mind that when a person types in a keyword on Google or a search engine, he is looking for something. You need to get him to look at your stuff and not someone else?s stuff. Do what it takes. It?s easy to lose sight of this when you start studying it because of all the math. There are a gazillion books on keyword strategies, but you can actually get the basics for free by searching Google.
+			- Product names make the best keywords. Next come 3-5 word phrases called long-tailed phrases. The worst keywords are general terms like ?make money? and the worst of the worst are ones nobody is looking for. You type them in and nothing comes up except
+			- ?sorry.?
+			- Once again, make sure people who search for your keywords are people who buy stuff (do Amazon, eBay, etc., again if you need to). ?Freeware,? for instance, is a terrible keyword. So are ?cheapskate? and ?free ebooks.?
+			- The highest-selling niche markets are those whose keywords have:
+			- 1. A lot of search requests (over 200 a month on the free Wordtracker keyword tool), and
+			- 2. A low number of pages to search (under 300,000 or so on a Google search).
+			- This is just a rule of thumb, though. If everybody is selling Wii?s and making money, then sell Wii?s, too. When everybody?s doing it, unless you want to specialize, don?t compete. Copy. Copy everything you can from top sellers and expose yourself as much as you can to their traffic. Expect modest earnings, not a fortune from this.
+			- You can sell all kinds of stuff, both niche and popular. If you sell enough modest stuff, you make a fortune.
+			- Next you need a site to sell the stuff on. Learn HTML sites, do Wordpress, or set up a free site like a hosted blog, Squidoo or a Web 2.0 site. Learn the options. There?s tons of assorted crap out there to teach you. For a small niche site, you need about 5-10 pages of quality content and your offer, which will send the reader to a sales page. Make it pretty to look at and that?s about it. You can pepper it with Adsense if sales are down.
+			- Don?t be fooled by a lot of blah blah blah about blogging. Treat blogs as niche presales sites or backlink pages. End of blogging course.
+			- You can make Adsense sites with blog farms, etc., but products give you more money per sale. Learn to sell products. Then learn to make Adsense sites. That?s the best sequence in my opinion unless you?re a real geek or math freak.
+			- If you can learn the shit-through-the-snake sales page techniques, all the better. (This means your reader starts at the top, goes through a long scroll until he hits bottom and comes out by clicking to the order page.) Lots of hype, testimonials, fake high prices that you discount, fake reviews, freebies, big ugly ?Buy Now? buttons all over, and other techniques. There?s oodles of stuff on this. They are usually called landing pages or sales pages. They are crap but they work. That?s why people use them.
+			- If you have trouble learning the techniques, find a good sales page that impresses you and copy the damn thing. Then replace the dude?s stuff with your info. Sales pages don?t get any search engine attention, so you can copy up a storm.
+			- IMPORTANT. Make sure you can get paid and accept credit card payments. Set up accounts with Paypal, Clickbank, some other places (look for them). Get a merchant account (the best option, but do the others as well).
+			- Make sure you deliver promptly. For digital products, make sure there is a way to download it. Those who sell other people?s stuff online don?t have that problem, but they need to learn how to cloak their commission link (usually called a hoplink). It?s pretty technical but doable. Even if you don?t do it, you still make money. You are just ripped off sometimes.
+			- If you are starting out with your own digital product, protect the download page, but not too rigorously. It?s good for Black Hatters and other clever fellows and gals to grab it for free and comment about it. Your name grows as it spreads. They?re going to steal it anyway, so don?t even worry about it. Just make it a little challenging to keep the newbies out. Of course, it?s better to get paid, but remember that if you completely isolate yourself and you are a nobody, you will get 100% of nothing.
+			- As to physical products, like I said, there?s shipping and you have to deal with it. This isn?t rocket science, though and the literature is easy to find. Look for ?drop shipping? and you will get all kinds of places to sell goods and let others worry about shipping.
+			- I didn?t say too much about one aspect of your product: what you sell. You can sell other people?s stuff, your own stuff or try to get them to do stuff like click on an ad, fill out forms or install programs on their computers. I didn?t say much on purpose. There are gazillions of ideas, techniques and so-called secrets out there. Find what tickles your fancy, find the instructions for getting it or making it on a Google search and simply do that.
+			- But none of this is nearly as important as making sure your product or information solves the problem of people who buy stuff. Or it tickles their dream or they think it?s cool. If you get to them and offer them they want, you sell. That?s the only real secret and any kindergarten kid can tell you that.
+			- Make sure you choose decent profits, too. At least $15-20 a sale. Otherwise, don?t waste your time.
+			- On advertising, I will deal with this below.
+			- White Hatters fall in love with their product and market regardless of sales. Gray Hatters do the market research donkeywork and sell what people want. Black Hatters sell home loans and penis enlargers and so forth by spam with no research, or try to get people to do stuff often by tricking them.
+			- As regards customer profile, remember that it is easier to sell one person out of 2,000 an item (and a dream) for $2,000 than it is to get 2,000 people to buy something for a dollar. You only need to lay down some bullshit to get the first, but you need a whole lot of bullshit to get the second and the money is the same. There is a lot of literature on this so make sure you become familiar with it. I will go into it a bit below on BS Riches Tributary.
+			- Psychological triggers
+			- I love the concept of psychological triggers. There is a lot of stuff written about them, but I have yet to read Internet marketing literature about the dark side. The positive triggers don?t work without it. First let?s look at the light side.
+			- There are six standard psychological triggers that are constantly discussed:
+			- 1. Reciprocation: If you give someone something for free, he feels the need to give you something back. That?s why you give out freebies. That?s also why you are constantly told to over-deliver in the Internet marketing literature.
+			- 2. Consistency and commitment: If someone does something once, he is more likely to do it again under the same circumstances than he is to do something different. That?s why you try to get him to make that first click or accept that first email, etc. This is sometimes called baby-steps.
+			- 3. Social proof: If a lot of people say something is good or bad, the person hearing it or viewing it will be induced to go along. The whole reason for testimonials is right here. Crowd psychology is based on social proof triggers.
+			- 4. Liking: A person is more prone to grant someone he likes the benefit of the doubt than someone he doesn?t like. That?s why you try to be human, show your weaknesses with charming humility, talk about your problems and dreams, etc. Once he likes you, he will actually read your sales copy.
+			- 5. Authority: Another word for this is credibility. If a person thinks you are an expert, he will often take your word over another person?s without checking it. If you have trouble being truthful, which is the best way to obtain long-term credibility, bullshit people often about what an expert you are. Many will believe you sight unseen.
+			- 6. Scarcity: Our customer likes to have something others can?t have. This makes him feel special. Countdowns and ?Only 23 left? kinds of messages yank this trigger.
+			- There are many studies on this and sales techniques developed from them. There are people who provide even more triggers. But the 6 above are the main ones used most of the time in the Internet marketing material I have seen.
+			- Now for the dark side. The ugly fact is that it is hard to get these triggers to work without lying or misleading people. You must omit at best. If this bothers you, just be yourself and forget about using them. The White Hatters will not like the following comment, but if you play it straight all of the time, you might be seen as one hell of a nice guy, but you will not sell jack.
+			- Now here?s the really dark side. There are some other triggers that nobody talks about except for cult fighters. I will give 6 for the sake of symmetry, but there are more.
+			- 1. Vanity: If a person thinks he is more important than other people for superficial reasons, he will do many stupid things. Flattery works. Pile it on in sales copy. And present your call to action right after. You will often get it.
+			- 2. Laziness: People in general like to automate stuff so they don?t have to think. They are lazy. They prefer to push a button and feel like they are masters of the universe than study and get it right. All you have to do is tell them they will learn a secret or simple-to-learn technique nobody knows, that they will only have to do it once, then repeat it without thinking to get a desired result like a profit, and they will pay good money for that secret. Use the phrase ?rinse and repeat? often when yanking this trigger.
+			- 3. Inner Thief: Almost anybody will steal on the Internet if he thinks he can get away with it and nobody will find out. Anybody. So promise him that if he buys your stuff, you will teach him how to steal other stuff on the sly and nobody will be the wiser. Use pretty words and euphemisms like ?secret weapon? and ?special technique? and ?loophole? and ?hedge? and ?sidestep? so forth. Don?t say steal. This way he can lie to himself and pretend he is not stealing.
+			- 4. Tribe Member: The most common way this trigger is yanked is by an ?us against them? approach. Establish this easily by saying ?Other gurus teach blah blah blah to the majority of people, but this is a lie!? You make your potential customer feel he is part of a special minority that is striking a blow against an enemy for truth, and, as an ?unsought? result, he will get filthy stinking rich by being so virtuous. You also reinforce this by putting together some easy-to-learn insider jargon for common concepts and using these words and phrases frequently in your presentation?always with a subtle superior smirk (vary this with nodding your head knowingly). Also, once you establish group contact with your customer, and yourself as the cool expert wealth guru, single him out for special praise in front of the group. This blends the tribal feelings with vanity. Then he will dig deep in his pockets and fork it over whenever you need him to.
+			- 5. Guilt: If your customer is lazy, it is easy to get him on guilt. He knows deep down that he doesn?t know jack, so remind him once in a while about it. Right after he feels comfortable that he is an insider and doesn?t need to think to get rich anymore, he only needs to push some damn button or other, remind him that the stupid fools ?out there? always try to get off the easy way and not do the work that needs to be done. That?s why they stay poor. Thunder a little here. This will make him feel guilty and in a panic. Then offer him another ?secret? that will show him the light and another button to push for only $XXXX.
+			- 6. Greed: This is my favorite. Tell a person he is not to be greedy, but must seek inner balance. Then say because he is very special and enlightened, you will teach him how to make millions. Hit him with visualization. Make him think the millions are arriving tomorrow or the next day. Show him pictures of money and beaches and fancy cars and mansions, telling him that this is his just for the asking. Spend some time showing bank statements. (If you don?t have them, use a graphics program and make them.) Get him really worked up and salivating, then hit him with your product. Once he bites and forks it over, if he complains that his riches didn?t come, then up the ante. Tell him to forget about that old stuff. There is even more coming with this new secret (make up something, whatever, at the time). The customer will fall for it again and again because the larger amounts cater to his greed. This isn?t the only form of using this trigger, but it is widely in use like that.
+			- If you want to learn more about this, study cults and cult fighters. There is a lot of free information on the Internet, so all you have to do is Google it. Cult leaders are masters of using the dark psychological triggers.
+			- I don?t see White Hatters using psychological triggers too much, except for some lightweight stuff taught by standard gurus. They might think this kind of manipulation is dishonest. Gray Hatters will be more ruthless and I see them as the largest group of users. Ironically, I don?t see Black Hatters using them too much, except for special projects and spam texts. Then I see them going forth without mercy.
+			- The real danger is that the line between using psychological triggers and becoming a con artist is pretty thin. A person needs to be emotionally balanced and highly disciplined to use them well without becoming a total scumbag. The best way to avoid this is to always provide value on your end.
+			- Technical information
+			- If you want to work at Internet marketing, you have to bite the bullet about learning technical skills. There are many, too. Fortunately, there is a lot of automated stuff out there that can be used to make money while you are learning the other stuff.
+			- One of the most important technical skills you need all the way from the beginner level, one I have never seen discussed, is fabricating and operating aliases. You need to learn to make up people and act as if you are them. The only person who does not need to do this is one who strives to become an authority and only work within that field. If you want to sell a large quantity of stuff, though, and you are not Wall Mart, you will need to use other names so you don?t blow your authority work. It would never do for an expert in diets and weight loss to sell candy.
+			- I will not go into many specific details, but keep to broad outlines as I have done up to now.
+			- If you have difficulty with imagination, there is a small resource called Fake Name Generator (look it up). It will give you name, address, phone number, credit card number, etc., all fake but in the correct format. (Obviously the credit card doesn?t work.) That?s a start. Get a real phone number for free online from K7 if you feel you need it (look it up). Otherwise, get a Google account (or similar), an email account, and whatnot. Then start signing up for a My Space account and other Web 2.0 sites. The more stuff you get, the more credible your new alias becomes.
+			- You should also keep some kind of records, maybe a spreadsheet folder for each alias. Otherwise, keeping track will be hard after he/she grows up and you have other aliases taking off.
+			- I do not suggest taking this concept so far as to procure a real SSN for your alias or things like that. You do not need the authorities after you. All you want to do is make money and provide value in return, not break any laws by falsifying government documents.
+			- But playing around with this, for example, getting your photo from public domain photo banks, making an avatar, etc., can be a hoot. A money advantage that?s a hoot is using your community of aliases to plug each other?s products and start drawing attention to the products. This sales force can get hilarious.
+			- Now for your other skills. Here is what you should learn at least in rudimentary terms. I suggest learning something superficial about these topics (outline or overview kind of stuff) before going into more depth. This is not all-inclusive, but it will be a good foundation.
+			- Beginner
+			- How to register for email account, use a browser and all elementary things like that.
+			- Money accounts (Paypal and Clickbank to start with)
+			- Affiliate accounts
+			- Free site accounts: Google, Blogger, Squidoo, Weebly, etc.
+			- Free Web 2.0 accounts: My Space, Facebook, Flickr, Digg, Delicious, StumbleUpon, etc.
+			- Craigslist and other classifieds
+			- Yahoo! Answers and similar
+			- Forum marketing
+			- Basic Niche site and review site concepts
+			- Keyword research
+			- Basic HTML (formatting text and href with anchor texts)
+			- Backlink strategies
+			- Basic Web graphics
+			- Adsense
+			- Adwords and PPC
+			- Article writing and submitting
+			- Sales copywriting
+			- Press release marketing
+			- Making PDF files
+			- Pinging
+			- RSS
+			- Intermediate
+			- More HTML
+			- FTP and CPanel
+			- Scripts
+			- Link Cloaking
+			- Wordpress, both as blog and niche site, including plugins
+			- Web site creation (and site creation program)
+			- Sales site creation, including squeeze page and popups, popunders, etc.
+			- Autoresponders, list building, opt-in forms, follow-up messages and broadcasts
+			- SEO in general
+			- Sitemaps
+			- Audio (and Audacity, including Podcasting concepts)
+			- Video (screencasting, recording, editing, codecs and uploading)
+			- Developing digital products
+			- Site nets and interlinking strategies
+			- More Web 2.0
+			- eBay
+			- Advanced
+			- Blog and site farms
+			- Proxies and IP filtering
+			- Mass posting and link programs
+			- Content scraping and manipulation programs
+			- Advanced HTML, PHP, Perl, etc.
+			- Other Black Hat Techniques
+			- At this point, the person will have a really good idea of what more he needs, what he does well and what he does poorly. The good thing about the Internet is that it is growing so fast that no one needs to learn it all. You can specialize in, say, Squidoo or Wordpress as your main marketing platform, use no audio or video or Black Hat techniques, and still make a bundle on White Hat stuff alone.
+			- Internet marketing is hard to get right, even if you want to bullshit your way to the top. You need hard work any way you look at it, so don?t bullshit yourself. Bullshit others if you want to bullshit. You can choose what you want to do, but you are going to have to learn skills to be able to perform. No exceptions.
+			- Writing
+			- I have read so much crap about writing that I need to say a few words. Most of what I have read is not worth the paper it is written on, but I have come across some good stuff and I have a few thoughts.
+			- About 90% of Internet marketing is about writing, even spam. It is unrealistic to say you don?t want to learn writing, but want to make money off the Internet. That?s like saying you want to go swimming but you can?t stand water. If you loathe writing and refuse to learn it, do something else. All you are going to do is waste your time looking for money on the Internet.
+			- The most important part about writing is to understand why you are doing it.
+			- Spammed backlink. This is the simplest form of commercial writing in existence. Write the link and nothing else. Move on. If you need a comment, say something noncommittal like ?Great job!? ?Nice forum!? etc., and put the link in. Obviously, the more relevant the comment, the less likely it will be to go the way of all spam.
+			- One-page content blogs or Web 2.0 pages for backlinks to a niche minisite. Use an anchor text with keyword in your link and write something relevant to that keyword and your site. That way the search engines will not penalize it like they do with spam. Rework an article from the minisite and you are done.
+			- Article for article directory. These articles are used for content on sites, blogs, ezines, etc., by people who can?t or won?t write what they need. The article includes an author?s box that needs to be published with the article as the price the user pays for using it. The author?s box includes a link to a site you own, preferably a money-site.
+			- The whole purpose of writing an article for directories is to get the reader to keep moving down the page on into the author?s box and click on the link. There is a very good formula I came across for this.
+			- All articles are niche articles by definition. The most important overall point is to give the reader enough information about his interest to keep him reading, but not enough to satisfy him (or bore him).
+			- You can use this system for reworking scraped content, but I will give the system as if the article were being written from scratch.
+			- Before research: Make a list of 3 keywords or keyword phrases you want to use throughout the article.
+			- Research: Use one of the keywords on a Google search and open several sites from the first page. (Or use scraped content, PLR, etc.) Read them quickly, partially or superficially to get a general idea of a point. Write that point down. Get one point for your article from each source and make a list of 3-5 points. Do not copy the other content, but keep the page open for checking facts while you are writing the article.
+			- Title, aim for:
+			- 1. Curiosity (?secret,? ?hidden,? etc.),
+			- 2. Shock value,
+			- 3. Benefit (?how to,? ?discover,? ?7 Ways? etc.) or
+			- 4. Ask a question.
+			- Any one of these is good. You don?t need to use more than one. Include your main keyword.
+			- Paragraphs: In the outline below, each number should be one or two sentences, three maximum.
+			- First paragraph:
+			- 1. General idea of the subject.
+			- 2. List an abbreviated form of your points.
+			- 3. Statement of article?s purpose (?explore,? ?compare,? ?discuss,? etc.)
+			- Point paragraphs (3 to 5):
+			- 1. Give point (in different words).
+			- 2. Two or three informative sentences about that point.
+			- 3. Conclusion and transition to next point. Note: in the last paragraph, mention that the points are over.
+			- Last paragraph:
+			- 1. General statement about what was presented.
+			- 2. Sum up the points covered (abbreviated), but mention some things you didn?t cover. Focus on things the reader really wants to know.
+			- 3. Sum up article based on the purpose given in the first paragraph.
+			- Author?s box:
+			- 1. Give something, but minimum information on author. The less the better. This bores folks. Picture is OK.
+			- 2. Use anchor texts in links to your site or sites.
+			- 3. Give an idea of what to expect on your site or sites.
+			- 4. Give a good reason (benefits) for going to your site. Hint that the missing info in the article is there. Say you have ironclad systems or secret solutions and other bullshit (but have something like that up when they get there). Offer freebies.
+			- Notice how this drives the reader down the page in a logical manner and pushes him to click on the link.
+			- The article should be about 500-1000 words. If you do shorter, the reader feels cheated or the information was too superficial for him to click on your link, and if you do longer, he might put the article down before getting to your link. Make your keyword density about 3%.
+			- Review article. This more or less follows the principles given for directory marketing articles, but there are some differences. There are three kinds of reviews and all of them aim at getting the reader to click on a link to the sales page of a product. Always use anchor text in links. Period. No exceptions. A banner or two on the side of the review is OK (or above or below it). A picture of the product is good to include in the reveiew.
+			- Review articles are used more on review minisites than anywhere else. These minisites are actually niche presales sites in drag. If you do present a review as a guest on someone else?s blog or publication, link to your niche presales site and not directly to the sales letter for fewer headaches with site/publication owners.
+			- 1. Normal review. Give product and some basic specs. Mention problems it solves. Bullshit some personal story (or stories) about how you or someone you knew had a problem, the more personal the better, and the product helped solve it or made the person rich or whatever. Give a minor issue or two that the product doesn?t solve so you sound objective. Hint that there are other great benefits (minor ones) you have heard about but still need to look into. Then strongly endorse the product as a problem solver. Click here. You are done.
+			- 2. Comparative review. This is actually 3 or more reviews of similar products with some kind of rating system. Do no more than five products at a time. Use the normal review system, but elaborate more on the product you want to sell. Make sure second place is really close and there is at least one with a rather poor rating in third or fourth or fifth place.
+			- 3. Scam review. Two of the most searched-for words on search engines are ?review? and ?scam,? so use this traffic. (Bonus is also high up.) Sound like a hard-hitting journalist at the start. You want the bloody facts and nothing more. You?re nobody?s fool. Say you heard a lot of gossip about the product being a scam and you are going to get to the bottom of it. Then really bullshit a personal story about you or someone you know using the theme of ?I was lost but now I?m found.? Life was hell before the product. Someone mentioned it to help you. You were suspicious as all get-out. You tried the product with misgiving. Voila. Problem solved. Life ain?t all roses now, but you are no longer a sufferer and you?ll be damned if you?ll ever talk bad about that product again. Yada yada yada? click here?
+			- Normal content articles and books. Go to school to learn how to do this or use other people?s stuff. Blog posts and forum posts for content are about the same. You do this stuff because you love it, not to sell stuff. So this is outside of my discussion.
+			- Style.
+			- 1. Use a conversational tone for Internet marketing. If a reader needs to look up a word, he ain?t buying and he can?t read fast.
+			- 2. Talk the talk of your audience. If the demographics of your market profiles young girls, don?t talk macho. If it is religious folks, don?t talk jive. You get the idea.
+			- 3. If you get stuck, ask a question and answer it. (?Why do you want to do that? Well??)
+			- 4. Spin a ?most people? bullshit story. (?Most people say this?? or ?Most gurus say that?? followed by ?But the truth is??) There is no way on earth you could know what most people say, but it makes for great bullshit. Since you are giving The Hidden Truth, you are the Hero of the Day and the reader is pleased to know you.
+			- 5. Get other style stuff from the literature or on Google searches. There?s a ton of it out there.
+			- White Hatters will learn this stuff down cold. Gray Hatters will do it, but will often use pre-prepared content and content re-writing programs to help. Black Hatters will use scraped content and content re-writing programs almost exclusively. But even they can use these techniques to improve their content while checking for gibberish.
+			- The BS Riches Tributary
+			- BS Riches Tributary? How?s that for a phrase? I?m getting my jargon together already.
+			- The idea is that you start with a trickle and it grows and grows as it moves along until it is a raging river gushing out into the ocean. I?m talking about money, of course, and about one person?s pocket flowing into yours.
+			- I am going to discuss this in terms of Internet marketing and your own product, but it can be applied to any niche with reasonable traffic and sales.
+			- Remember that it is easier to get one person in 2,000 to fork over two grand than it is for the 2,000 people to plunk down a buck each.
+			- If most people see you are hyping bullshit, don?t worry. (But you can hype quality value, too. Both quality stuff and bullshit sell. Just remember not to bullshit yourself.) The bullshit spotters would never get snared into your BS Riches Tributary, anyway, so don?t worry about them.
+			- You first got to get people to listen to you. Try ?permission marketing.? This means that you give them free stuff and they give you permission to send them your spiel. This is the concept behind opt-in forms and autoresponder marketing.
+			- But you can hook them on sales pages and niche presales minisites, too. It doesn?t matter where. The more hooks you put out, the merrier. The important thing is to get them to bite and buy that first whomp-ti-do ebook or software.
+			- I need to open parentheses here. How do you get someone to buy something like that and accept you as an expert if you never sold anything before and don?t have jack?
+			- Easy.
+			- Don?t mention you name at first in the bright lights. Focus on the system. When you talk about yourself (or ?others? talk about you), say you have been in reclusion for 5 years or more, during which time you have been working on and perfecting this top-secret system. Only now have you felt it could be unleashed on the public. Say you tried it out first and made a fortune with it, so now you want to spread the good times around and share it with others. Talk about the virtue of giving something back for your blessings. Make up stuff, texts, photos, videos, etc., about how much money you have and show it off.
+			- Start putting your aliases to work. Make them do it in any manner you want (endorsement, pure sales page, reviews, ?is it a scam?? etc.), but the final message has to be, ?Oh Wow! This is IT!? Mix it up and have a ball. Other people will start jumping on the band-wagon after a while.
+			- Once you start making some money, get in touch with another guru (or more than one) and offer him a cut or outright money for plugging it to his customers and plugging it in general. His name will bring others and the whole shebang is on its way in the BS Riches Tributary.
+			- The present average price for an ebook is around $47 and that?s pretty good. If you go much cheaper, you lose image and market focus. A dude who forks over 47 smackeroonies for a piece of crap like a PDF ebook that he has to print out when he can go down to the bookstore and buy a new attractive bound book for 25 bucks is probably willing to dig deep for other crap that makes him look like an insider.
+			- Also, you might want to increase the perceived value of your product by saying the real price is $97, but for a limited time, yada yada yada?
+			- Once your fish bites the bait and hook, you start reeling him in. This will be far less than 1% of all people who look at your stuff, but this small group is where your BS Riches lies. Sell your customer the dream. Sell him the sizzle. Tell him he is going to get rich beyond decency and belong to the world?s elite of insiders. Sell him on His Special Fine Destiny.
+			- Don?t think he?s a total fool, though. He might be committed because of the 47 smackeroonies, but he wants to be told he did a good job and he wants some insider info.
+			- So pepper the ebook (or software manual) with phrases like ?Congratulations!? ?You did it!? ?Get ready for a wealth make-over!? ?This will blow your mind!? and so on. Be generous. After all, the dude paid for this. Make him think he already has money in the bank.
+			- Show him your rich-dude stuff as proof (young pretty women, fancy cars, yacht, mansion, etc.) If you are starting out and don?t have jack, make this stuff up. There are photos all over the Internet and if you can?t copy-paste, hang it up. What the hell are you reading this for?
+			- Tell him to change his mindset, to start thinking about how he wants to spend his new riches and pay off all his debts. Give him a generous dishing of bullshit mental images about his wife smiling, friends laughing, ?debt-free? signs, telling his boss off, cars, houses, jewelry, hundred dollar bills floating around, the works. Hit him hard, but don?t go overboard. Even a duped fool has a bullshit meter and you never want that to go into the red zone.
+			- Now you have to provide some value. Mostly tell him how to sell some stuff and how drive traffic to the sales points. You might want to tell him how to make some stuff to sell or how to get some stuff from other people. There are tons and tons of ?secrets? out there, so use your imagination. If you get really stuck, focus on a small item, like an Adwords title for instance. Crib from the literature, but use your own words. Write 7 pages on how to do the title, whether to use a call to action or a question mark or any other bullshit you can think of. Use some big words if you know of any for statistics, but keep the insider jargon flowing in abundance.
+			- There is another angle. A person who is reading a PDF file that he paid $47 bucks for is paying attention. You have a captive audience, so make a sales pitch. Tell him that he can raise his earnings ?up a notch,? or ?take it to the next level? or some other bullshit phrase that sounds good. Then offer him some other stuff. Make sure your pitch about his imaginary wealth takes it to the next level, too, so he thinks he is going to get even richer than before.
+			- I read in one place that this should observe the proportion of 20% information value, 40% selling the dream and 40% sales pitch for new stuff. That doesn?t sound right from the stuff I have seen, but the categories are correct. To make an off-the-cuff estimation, I have seen it more like 50% information value, 30% selling the dream and 20% sales pitch for new stuff or something along those lines. This should be tested and varied according to results.
+			- The next step (the new stuff you stick him with) is to get him signed up into a membership site where he can download videos, mp3?s, transcripts and other people?s leftover stuff for free. Charge a sign-up fee of $100-200 and a monthly fee of $20-40.
+			- Once inside, he can also buy a special DVD course for $497 or so. Or he can get the entire multimedia home-study course (including a 600 page loose-leaf binder text) for $1,997.
+			- Change these prices if they don?t work or if you think you can get more.
+			- Give your disciple (he is now a disciple) more secrets and start peppering in Black Hat info. But keep the jargon and the bullshit flowing. Remember, this is a tributary and you are now in the river part. So flood the bullshit. He is now an insider and he needs to be treated as such.
+			- Then shoot for the moon: a few one-on-one coaching sessions with membership to a special insider?s club with group coaching and workshops. Make sure your insider?s club can be accessed from inside the first membership site with aggressive ?Members Only? type gateways. Here you can get $20,000 or so a pop.
+			- What about traffic for all this crap?
+			- Well, there?s the normal stuff you teach (SEO, backlinks, PPC, etc.), but there?s a whole lot more.
+			- Make an aggressive affiliate recruiting campaign. Like I mentioned above, put your aliases to work as your first affiliates. Make them sound like they are selling the hell out of your product. Make it easy for new affiliates to sign on. Offer free training and teach new affiliates how to spam the living daylights out of the Internet, sites, blogs, forums, audio, video, the works. But always say on your own sales material that you are ?100% against spam and unconditionally condemn the practice.?
+			- Give the new affiliates pre-written texts so all they do is say good things about you all over the place. Give them banners and sales buttons and templates. Cloak their hoplinks for them. Offer them a 75% commission. Keep your aliases pumping right along beside them and if an affiliate starts selling well, copy all his sales stuff for one of your aliases and do the same.
+			- You will meet many people along the way and other bullshit artists. Use them for ideas. It shouldn?t be hard to come up with an unending list of new products and campaigns. Before too long, you will have a name as an Internet guru, you will be invited as speaker to prestigious seminars and conventions, you will be a world-class authority and your trip on the BS Riches Tributary will have reached the ocean.
+			- By this time, it doesn?t matter whether you are White Hat, Gray Hat or Black Hat. You are king.
+			- THE END
+		- [CoSchedule](http://www.smartpassiveincome.com/coschedule)
+			- This is my new favorite toy for 2015! CoSchedule is a tool that allows you to schedule posts ahead of time, but it’s much more than an editorial calendar. It’s a complete marketing engine for your blog posts as well, allowing you to advance-schedule tweets and social posts promoting your content as you’re publishing your post. It’s also is a great tool to collaborate over your entire content schedule with your team. CoSchedule is a must-see for any blogger.
+		- Create multiple newsletter lists
+			- http://www.rooshv.com/how-to-meet-girls-during-the-daytime
+			- Instead of having only one huge email list like before, I’m eventually planning to develop four focused lists on these topics, which reflect my widening readership:
+				- Day game
+				- Dating and night game
+				- Travel and lifestyle
+				- Culture war
+			- If you subscribe to my day game list, you’ll also get a Monday newsletter that highlights the week’s best articles and videos along with bonus content. If you don’t want game advice, but only want to get on the Monday list, subscribe using the below form. You’ll still receive the free copy of The Best Of Roosh.
+		- e-commerce advertising
+			- Normally just Facebook advertisements and contacting Instagram influencers. Most efficient way to advertise for my needs for sure
+		- Look for GPL software to fork and offer free
+			- e.g. Bloom was commercial and hijacked to become a lead magnet for LeadPages
+			- [http://www.riseforums.com/threads/leadpages-are-douchebags-for-forking-elegant-themes-bloom.1875/](http://www.riseforums.com/threads/leadpages-are-douchebags-for-forking-elegant-themes-bloom.1875/)
+			- You have to physically sign up via email to receive an activation code to get the plugin to work
+		- Extract PDF notes for 7 day startup by dan norris (741)
+			- [https://workflowy.com/#/0ec2663b7349](https://workflowy.com/#/0ec2663b7349)
+		- Fake job resumes
+			- I'm writing a fake resume currently, heh. I took the job red pill in 2009. Never been caught through 3 jobs.
+			- Go for it. Buy the references. Fuck it you can buy degrees and transcripts too.
+			- If you US based, background checks are seldom completed. David Geffen lied on his resume to get in the mailroom at the William-Morris agency in the '60's. He's a billionaire now, ymmv, and he brags about that now. And people love him for it.
+			- Don't apply for an endovascular surgeon gig if you've only taken Anatomy 101.
+			- If you were a sales associate at target, put down assistant manager. Always go one responsibility level up. Why? Because that guy was your boss you've seen him and work and have a sense of what his daily duties are and can use that to fake it in the interview.
+			- Why do job posting require 5 yrs of "X" experience when most jobs have you repeat the same stuff daily after training? You were probably competent after the first 6 months! I always felt the 9-5 jive was BS and decided that the rules wouldn't apply to me anymore.
+			- Do yourself a favor and google the "Fake Resume Guide", Guerrilla Marketing for Job Hunters, and the Amazing Cover Letter Creator. PM me if you have questions/concerns. Good luck.
+		- Fire people and let them save face
+			- I used to get called out to job sites to fire employees with minimal drama. This was usually in the case where the site foreman and the employee had worked up some ego beef with each other and did not want to lose face with their crew.
+			- I would go out to the site, as unannounced as I could, after talking to the foreman and then seek out the employee for a private meeting. The meeting would essentially be "I'm out here because your production has been going down. I'd rather not fire you because I don't think you're a bad employee, but I'd like to give you the opportunity to look for another job on your own terms. I'll pay you for the rest of today (I'd always show up in the morning) and you tell me what you want me to tell the crew and the foreman about your leaving and I'll pass it along. Figure that out and we'll pack your gear up and I'll give you a ride back into town, without any hard feelings."
+			- I had guys want their 'exit story' to be that they had a bad back, they got another job, they got accepted to college, their mom died etc. Which I communicated, and they walked off the job site, head held high, ego intact. The employer and foreman got rid of a problem employee, with no retaliation, which was my goal.
+			- This was much better than what usually happened. The foreman and the employee escalated a workplace war with each other which resulted in a public 'your fired' and the employee would fight back by sabotaging equipment, getting in a fight or filing a fake workers compensation claim to retaliate.
+		- fired if you have any politically incorrect views
+			- ([Pax Dickinson](http://reason.com/archives/2015/07/09/the-social-media-shaming-of-pax-dickinso), [Brendan Eich](http://www.washingtonexaminer.com/mozilla-ceo-brendan-eich-forced-to-resign-for-supporting-traditional-marriage-laws/article/2546770), [James Watson](http://www.telegraph.co.uk/news/science/11261872/James-Watson-selling-Nobel-prize-because-no-one-wants-to-admit-I-exist.html), [Peter Thiel](http://www.slate.com/articles/technology/future_tense/2016/10/should_silicon_valley_shun_peter_thiel_because_he_supports_donald_trump.html))
+		- graphics
+			- I use Canva all the time for graphics but just the free personal version. There
+			- I use Canva all the time for graphics but just the free personal version. There is a business version that gives you more options and lets you collaborate but it costs money. I just found out (through my awesome VA) that they give it away free for non-profits so I figured I'd pass that along in case anyone in this group has a non-profit or is working with one.
+			- One of the cool business features that I am looking forward to using is to create something once (like for facebook), and then duplicate it for other sizes like twitter, instagram, etc.
+		- Instagram marketing
+			- When you post a pic, tag a big account
+			- also create a comment with .
+			- .
+			- .
+			- #tag #tag etc like Katie Pemberton does on her fitness pics
+		- Mentor finding
+			- If you want a mentor checkout an organization called score.org. They will pair y
+			- If you want a mentor checkout an organization called score.org. They will pair you up with a CEO who volunteers their time to mentor people.
+		- Needs Research
+			- Your first order of the day should be to spend a few hours around the Amazon Kindle marketplace. Browse through the top sellers, be generous with your clicks and read up as much as you can – user reviews, book descriptions, Amazon’s editorial reviews (if any). You want to get an intuitive feel for the market, what sells, what doesn’t. How many non-fiction books end up in the top 10? What genre do they belong to? What is the average price of a Kindle bestseller? What do their covers look like? How many reviews do they have? What is the average rating? What is the correlation between rating and current ranking?
+			- [TIM: For what it's worth, much like Hugh Howey, I write about what I love or would love to learn about. Here's how I did preliminary market research for The 4-Hour Chef:- I polled my 400,000+ followers on Twitter and Facebook with questions like “What are your favorite 2 or 3 cookbooks?” and “If you were starting over, which 2 or 3 books would get you most excited while learning fundamentals?”- I then used virtual assistants via Taskrabbit.com to create a list of those titles that pop up more than 3 times. I also asked professional chefs the same questions and cross-referenced the lists.- Once I had the repeat contenders (let’s assume 20 titles), I headed to Amazon, where I did 2 things:1. First, I identified the titles on my list that have an average review of 4 stars or higher.2. Second, I read the “most helpful” critical reviews from those titles, aiming to focus on 3-star ratings, whenever possible. If not, I look for 4-star. The 1- and 2-star are usually written by people who hate everything (look at their other reviews if youdoubt me), and the 5-star reviews tend not to go into detail. From the “most helpful” 3–4-star reviews, I compile a list of:A) Things “missing” or deficient in even the best books. These are opportunities for me to do or explore something new. For instance, even the best-selling BBQ books were criticized for omitting the “heart and soul of BBQ”: short ribs and brisket. This meant I naturally had to include at least one.B) I download all 20 books onto my Kindle and read the “Popular Highlights” in each, sorted by “Most Popular.” This often allows meto read 20–50 pages instead of 300, 500, or even 1,000 pages. Then I can deep dive only where I love what I see. If you don't like the movie trailer, you're certainly not going to like the book the highlights were pulled from.
+			- Entrepreneurs will likely hang out at [TechCrunch](http://www.techcrunch.com/), while productivity folks will have [Lifehacker](http://www.lifehacker.com/) bookmarked. [Quantcast](http://www.quantcast.com/) is a good tool to understand market demographics better. Just type in the URL of the target site, and you’ll get a fair idea of their demographic make-up. [TIM: You can also get valuable data from Kickstarter projects you find that might attract similar customers -- [which sites are sending them the most traffic?](http://www.fourhourworkweek.com/blog/2012/12/18/hacking-kickstarter-how-to-raise-100000-in-10-days-includes-successful-templates-e-mails-etc/)]
+			- - Reddit is one of the finest sources to research niches and gather ideas. Spend a few hours in /r/Fitness and its related sub-reddits (/r/leangains, /r/paleo) and you’ll come up with dozens of ideas for a book (example: The Butter and Bacon Diet: Losing Weight With Keto, inspired by /r/keto). This is a nice list of sub-reddits arranged by popularity.
+		- News stories formulas
+			- News stories formulas
+			- In her book The Interplay of Influence: News, Advertising, Politics, Kathleen Jamieson illustrates how news stories are made to fit one of the five following categories, all catering to the lowest common denominator:
+				- Appearance versus reality
+				- Little guys versus big guys
+				- Good versus evil
+				- Efficiency versus inefficiency
+				- Unique and bizarre events versus ordinary events
+		- niche website
+			- Main thoughts
+			- If I want #Fastlane-Control then I need to create my own products
+			- Also has the highest [Long Term Gain]
+			- All good businesses start with a MVP
+			- Ideally sell other people's products first in a market before creating my own MVP product https://workflowy.com/#/ed21be9865a1
+				- At best #SellingExistingProducts is a short-term income stream
+				- But what's the point? I want something I can continuously build on
+				- I don't need a £1k or whatever business to survive on
+				- If I'm working full-time 7/3/7/4 rota as a security guard, the business would have to make at least £1k/mo to even consider quitting
+					- Most likely it would depend on the effect that my free time would have on rate of expansion #MoneyHighwayMaximiser https://workflowy.com/#/79031a4bec94
+						- i.e. no point quitting if it's a small market and traffic can only come from SEO (e.g. an Amazon product business)
+				- It's similar to the idea of creating 'hot topic' content or products rather than evergreen stuff
+					- Good for short-term bursts of cash or traffic, but can't build a business with that as it's core (it usually requires more time investment due to lower longevity)
+		- Wall Street Playboys:
+			- If you want to make money online, again you have to either 1) sell your soul by selling a bullshit dream or 2) start selling products to the masses.
+			- At least #2 works long-term. Hint hint, sell to married women and you'll make the most.
+			- Mike doesn't make a lot (alluded to it by saying how book sales would only net him an average employee wage, and this is after years of free writing)
+			- [http://www.dangerandplay.com/2015/04/06/make-money-online-writing/](http://www.dangerandplay.com/2015/04/06/make-money-online-writing/)
+		- Obligations Are Now Gone: If you are starting at ground zero, you have absolutel
+			- Obligations Are Now Gone: If you are starting at ground zero, you have absolutely no obligation to anyone. This includes your best friends, your teachers and even your family if they are not going to help you succeed. Everyone encourages you to join the Peace Corps or worry about “the children” and other social matters that are now irrelevant to you. We will reiterate. All obligations for you to do anything are now gone.
+			- It is important to note, this does not mean you will live a life without consequence, it means that you will no longer have an excuse of “obligation to someone else”. This means every action you make is going to directly impede or help your future success and the only person you get to blame is yourself.
+			- To wrap up on the obligation piece, this is not “cold hearted”. It is much more cold hearted to donate your time and help 20 people when you could have donated several hundred thousand dollars (or even millions!) that will help thousands of people instead. If Warren Buffett never became the investor he is today, billions of dollars would go to waste. By signing a giving pledge, he will do more for society by himself than thousands of workers combined. In addition, he can pay for thousands of people to pursue their own dream of working for charities. Just remember, without his donations they wouldn’t be able to work in the first place.
+		- Overpay Your Employees (But Require Them to Do the Work Of 3 People)
+			- We only have 3 full-time employees, but they do the work of about 10 employees.
+			- 7 days a week.
+			- Each of them is on-call 24 hours a day.
+			- We get over 100 emails a day and routinely fulfill over 100 orders a day.
+			- Each one of them is paid VERY VERY VERY well, is included in our profit-sharing 401(k), get big surprise bonuses and plane tickets.
+			- Working for me is like playing for the Dallas Cowboys.
+			- Besides, "overpaying" a few great employees is ultimately cheaper than hiring a bunch of average employees.
+			- Never "try to make money" by cheating (underpaying) your employees.
+			- Make money by negotiating good deals with your suppliers and focus on making happy return customers.
+			- Your employees need to feel like they are working for someone that cares about them and is not trying to make money at their expense.
+			- When you start your very first business, I don't suggest hiring any more than 1 employee. Only hire more when it is absolutely impossible for them to keep up with the work.
+			- I encourage you to hire family (or trusted friends) when you start.
+			- There's no reason to hire an outsider if you have a good bond with someone else who is equally as capable (or can be trained to be). It is very rewarding to build a business with people you are already close to.
+			- Loyalty, not smarts, should be the main criteria for an employee.
+			- Train your employees to replace themselves and move them up when you hire.
+			- Even our part-time employees get bonuses.
+			- For a lot of them, it's a matter of Christmas vs. No Christmas.
+			- fun fact: 95% of the employees at Happy Hippo are female (age 18-27).
+		- People only care about the value you provide
+			- [Josh Franken](https://disqus.com/by/joshfranken/) [February Flower](http://www.returnofkings.com/79806/10-things-you-must-teach-your-future-daughter#comment-2504488757) • [10 hours ago](http://www.returnofkings.com/79806/10-things-you-must-teach-your-future-daughter#comment-2504611648)No one on this site considers what you've done success. What did you invent? What creation in this world is yours that has made this world a better place? How many lives have you saved? What new species have you discovered? What business have you built? If non, what is your contribution to society?
+			- If non of those things, have you at least used the money you've made from your job to raise a happy, healthy, well adjusted family?
+			- If non of those things at all, then the travel, the languages, the job and the money is just a form of masturbation that allows you to brag and feel good about yourself. And most of your friends and social circle tell you it's great. You're simply a hedonist living life for enjoyment and nothing else. Maybe there's more to life than that. If you ever find out it will probably be too late.
+			- This is a small community of men whom don't think it's great and you will not convince them that it is great.
+		- Persuasion
+			- When you can't make them see the light, make them feel the heat.
+		- Plugins. Ajax Edit Comments and Decent Comments.
+		- Sales letter example
+			- https://archive.is/lWO2e
+		- Smart conversion optimiser trick - for account signups ask for email but not password
+			- Smart conversion optimiser trick - for account signups ask for email but not password
+			- Instead email them with verification link
+			- Which then takes them to password setup page
+			- In meantime they can play with your tool without a password
+		- Start niche then interlink
+			- My view has always been to start niche. More likely to succeed than targeting a more general audience with more competition. If it does well you can create an ecosystem of t-shirts sites all targeting different niches and link them all together like Envato Market
+		- Useful software
+			- [Surveymonkey](https://www.surveymonkey.com/) – Create and publish online surveys in minutes, and view results graphically and in real time
+			- [Wufoo](http://www.wufoo.com/) – Online form builder with cloud storage database
+			- [Visual Website Optimizer](https://vwo.com/) – A/B Testing Software for Marketers
+			- [Umbel](https://www.umbel.com/) – a tool for understanding your audience
+		- User generated content types
+			- Upvote based
+			- Facebook, Disqus, Reddit. Twitter replies somewhat too
+			- More emphasis on consensus than recency
+			- Recency based
+			- Forums (eg myBB), 4chan,
+			- More emphasis on most recent updates. Good for developing stories
+		- WeekendCasanova on eCommerce
+			- Dropshipping with Oberlo[https://archive.is/usiYF](https://archive.is/usiYF) / [https://www.rooshvforum.com/thread-57327.html](https://www.rooshvforum.com/thread-57327.html)
+			- Sell T-Shirts Online (Hold Zero Inventory)
+			- [https://archive.is/F7pZq](https://archive.is/F7pZq) / [https://www.rooshvforum.com/thread-56519.html](https://www.rooshvforum.com/thread-56519.html)
+			- Vinny (@Vinny:matrix.org)
+			- How expensive is a designer?Options
+			- Burn
+			- im paying $20/t-shirt for mine, but i know he has been doing it for $10/t-shirt as well but im thinking its worth paying little extraOptions
+			- Weekend
+			- Jesus that's cheap. Options
+			- Hook me up with your designer. HahahOptions
+			- I paid $50/each for mine.
+		- Write a contract and have them pay you 50% up front, to cover at least the labou
+			- Write a contract and have them pay you 50% up front, to cover at least the labour and materials component. Don't start work or purchasing materials until you have this money in your bank account.State that the materials (until paid in full) are your possessions and you can simply rip them out of the end delivery if there's any argument over payment.Source: Dads been in business dealing with six figure and seven figure contracts before I was born, he wrote the contract that I supply to my customers.
+			- I currently have a six figure contract with one customer. They pay me in installments every two weeks and reimburse material and equipment expenses as we go. If they walk I'll be bummed but ultimately fine financially and not on the hook for anything.
+			- But the OP's point still stands. You should constantly be thinking about how people might screw you. Doesn't mean you turn away your business, just protect your downside.
+		- You'll never get higher than 5% conversion to buyers
+			- [http://www.dangerandplay.com/2016/03/05/the-iron-law-of-the-internet-how-to-avoid-scams/](http://www.dangerandplay.com/2016/03/05/the-iron-law-of-the-internet-how-to-avoid-scams/)
+	- JOBS
+	    collapsed:: true
+		- Cedonulli intern email - didn't send
+			- jake application (cancelled because I just want to work part-time or get shares)
+			- jake@cedonulli.com
+			- The only way for me to leave an internship is by having clients or passive income - I'm lucky to have some time freedom by working with Greg
+			- ...
+			- I want to partner with you.
+			- I'm going to keep this short and to the point. If you want to find out more then see this Google Doc here.
+			- You want someone
+			- Sidenote: You may know I'm currently working with Xsplat in Bali. It's been a great 7 months but there has been some differences in agreed expectations so I've decided to make preparations to move on.
+			- To see if I'm a good fit for you I want to give you a brief summary of my strengths.
+			- If I don't fit your needs at this moment, no worries and I hope you find someone who does fit.
+			- My Strengths:
+			- - Systemising - Created processes
+			- - Managing staff - Managing a team of 11 currently by through to do numerous media buying, hiring staff, fulfilment, customer service, etc.
+			- - Writing (being a
+			- So Far So Good?
+			- Okay if what I've said so far fits your needs then click over to the Google Doc and I've got more info there.
+			- Thanks for your time Jake and I look forward to hearing from you.
+				- Aaron Sollesse Twitter
+			- Systems and behaviour analyst
+		- Freelance vs job for aspiring entrepreneurs
+			- Freelance work - at the moment mostly setting up/managing wordpress sites, web admin and copywriting.
+			- Freelance > job for those with startups that require a large time investment (which is most of them). You generally get paid more than doing the same task on a salaried job and you're not obliged to work 40+ hours/week so you have way more time and flexibility.
+			- This works best for people with business/IT skills, but if you don't have any skills that lend themselves easily to freelancing then I quite like YMG's idea for learning a location independent skill such as programming, web design or SEO (
+			- http://www.codeacademy.com, http://www.udemy.com, http://www.moz.com for resources). This would allow you to work closely with other entrepreneurs on their ventures and learn from them (especially useful if you don't know what business to create), as well as enabling you to geoarbitrage in cheap places around the world like SE Asia whilst you create your business.
+			- Of course this is more suited to startups that require time more than cash - those who need an investment for their business might be better off simply working their 9-5 to build their fund (or seek venture capital if you need big money).
+			- As far as book recommendations go, The Millionaire Fastlane by MJ DeMarco is a solid overview of the entrepreneurial mindset and strategy. Also your real focus should be getting your Minimum Viable Product up and running ASAP (see The Lean Startup by Eric Ries).
+			- I can't find that post by YMG on acquiring a location independent skill, can you link me to it?
+			- Thanks
+			- http://www.rooshvforum.com/thread-25838-post-489617.html#pid489617
+			- Here's a few other summaries of location independent career paths:
+			- http://markmanson.net/10-best-ways-to-make-money-online
+			- http://www.makeuseof.com/tag/200-ways-to-make-money-online/
+			- http://fizzle.co/sparkline/64-ways-location-independent-people-earn-a-living
+			- I'd highly recommend focusing on the minimum needed to create a business, not another job. Many people learn skills like copywriting, graphic design or programming only to remain looking for clients 10 years down the line. The reality is you don't need to be that skilled to create your MVP.
+			- Also I recommend The $100 Startup by Chris Guillebeau, very simple and to the point for getting your MVP up and running.
+		- 8 Steps to Getting What You Want… Without Formal Credentials
+			- https://tim.blog/2011/09/29/8-steps-to-getting-what-you-want-without-formal-credentials/#comment_list
+		- Becoming location independent eg TEFL
+			- Recommending non-Fastlane routes is like teaching someone how to get laid at work - I could give you short-term success but it'll result in long-term loss
+			- Though some people are desperate to leave their country. If so here's the best options:
+				- 3-12 months til location independence: learn a digital skill [http://postmasculine.com/10-best-ways-to-make-money-online/comment-page-1](http://postmasculine.com/10-best-ways-to-make-money-online/comment-page-1)  and starting getting small projects on sites like Elance, then later productise the service (how likely is productisation?
+				- 2-6 months: OR take a TEFL/TESOL/CELTA course and teach English for 20-30 hours/week somewhere that pays well like South Korea/Japan/China etc and start entrepeneurial projects in free time
+				- 1 month: Or take your current skills and apply for jobs within whatever country you want to go to of course
+			- YMG's Guide - Masters in 21st Century Digital Skills
+			- [http://www.rooshvforum.com/thread-25838-post-489617.html#pid489617](http://www.rooshvforum.com/thread-25838-post-489617.html#pid489617) http://www.rooshvforum.com/thread-24989.html
+			- YMG's Guide to Hacking Student Loan Debt
+			- If you are graduating soon or have graduated recently with a degree in the humanities from a mediocre school and have 25K or under in debt, try this:
+			- 1. Get Teaching Job in Asia.
+			- Get CELTA/TEFL/TESOL certified in [Thailand](http://www.cmutefl.com/)/Vietnam/Taiwan/Korea
+			- 2. Set Up Debt-Hacking Budgeting System
+			- Get a cheap apartment in whatever city you end up in and budget while teaching English abroad so that you can save 1000 USD a month and pay back your student loan debt ASAP
+			- This is easy in second tier Korean cities. It's harder but definitely possible in Taiwan/Thailand/Vietnam.
+			- 3. Acquire Digital Nomad Skill Sets
+			- Your regular work hours will be about 20-30 hours per week so you can either do tutoring and make more cash or you can invest in building location independent digital skillsets such as:
+			- -Coding [http://www.codecademy.com](http://www.codecademy.com/)
+			- -Wordpress [https://www.udemy.com/building-custom-wo...m-scratch/](https://www.udemy.com/building-custom-wordpress-sites-from-scratch/)
+			- -Design [https://www.udemy.com/courses/Design](https://www.udemy.com/courses/Design)
+			- -SEO [http://moz.com/learn/seo](http://moz.com/learn/seo)
+			- -Languages [http://www.italki.com](http://www.italki.com/) [http://www.duolingo.com](http://www.duolingo.com/)
+			- 4. Start Small Entrepreneurial Projects
+			- While you teach and pay off your debt - you can simultaneously acquire these skills then actively apply them in small entrepreneurial projects of your own. Many of them will fail but some of them will start bringing in some cash here and there.
+			- You have a timeline of 27 months to pay off your student loan debt so you have a long, low-risk, and low-pressure timeline to experiment with passion projects and see if you can get them off the ground.
+			- During this time you need to make all of your mistakes and learn. You should see what it's like to have a business partner.
+			- Team up on a small project like exporting a few shipments of local teak furniture back home or to Mexico.
+			- Try creating a mobile app of some sort and work with a Bengali virtual assistant who doesn't get anything you say and the project crashes and burns but you learn important lessons about delegation and managing expectations.
+			- Do not expect to accomplish too much in the first 6-12 months of hacking it at entrepreneurship besides learning a ton about what it is like to create wealth and value out of thing air.
+			- At some point everything will click and you will start to bring in more and more cash. And you'll wonder why you weren't making this sort of money before - it's so obvious and easy - that's what's called unconscious competence.
+			- Persistance trumps intelligence. If you work hard and are attacking a legitimate need in the marketplace you will start making money.
+			- One thing you can always do, of course, is hustle fiverr gigs to businesses in your local area. If you make yourself well-liked in your neighborhood in a second tier Asian city, you can get quite a bit of business doing certain sorts of hustles and fiverr gigs. Not everything has to be the next twitter/linkedin or instagram. Just try to create cash, wealth, and sales out of thin air. You'll start to see business opportunities everywhere.
+			- 5. Try Internships
+			- You can also try an internship with a local multinational - but picking up these digital nomad skills are probably better for you in the long run - all depends on what you want to do.
+			- Internships in emerging market countries generally are the first step to being hired full time. Positions are rarely posted for people with a recent-grad type profile - you need to get your foot in the door with connections and then carve out a niche for yourself inside of the company.
+			- 6. Conclusion
+			- If you save 1K USD a month to pay off debt and you have the national average of 27,000 USD of debt then it will take you 27 months to pay it off. That is just about two and a half years.
+			- Thus, if you began this plan right when you graduated at 21/22 years old....
+			- ...then when you finished it you would be 24/25 years old, debt free, and have acquired various practical skills that make you formidable as a location independent entrepreneur.
+			- Even if you majored in Sociology, Philosophy, Literature (or something equally useless) it is never too late to build practical skill sets for yourself that you can use to make money.
+			- More important than building these skill sets, arguably, is the art of delegation and creating systems within your business so that you can scale.
+			- All of the tools that you can build that will help you build a web-based business are all useful for any company that would want to hire you. Ultimately if you can add more value than you extract and your impact can be measured in dollars added or the retention of potential dollars lost, then you can be valuable to a company.
+			- Ironically, by the time you become good enough at these skills (and 2.5 years is more than enough time) you won't need to get hired anymore.
+			- Thus, this guide I laid out above is for you young bucks with humanities degrees and under 30K USD in student loan debt and working at American Apparel or at Starbucks, wondering when you're going to get your big break.
+			- Don't wait for your big break - you gotta make it happen.
+			- Geoarbitrage is the way.
+			- -
+			- [http://www.rooshvforum.com/thread-25838-post-492931.html#pid492931](http://www.rooshvforum.com/thread-25838-post-492931.html#pid492931)
+			- Thus, you can consider a two-three year period when you are teaching English and paying off your debts as a sort of "Masters in 21st Century Digital Skills"
+			- Say that you have 30K in student loan debts. Over a period of 2.5 years you can:
+			- 1. Get work experience teaching (still counts as work experience!)
+			- 2. Have an amazing life story
+			- 3. Travel while you are young
+			- 4. Pay off your 30K of student loan debt by budgeting correctly
+			- 5. Date amazing women
+			- 6. Network with internationals in the fastest growing region in the world
+			- 7. Teach yourself wordpress, graphic design, coding, microsoft office, iWork suite, PHP, python, ruby on rails, creation of mobile apps, copywriting, SEO - all for less than the cost of ONE COLLEGE COURSE.
+			- 8. Try, fail, try again, and ultimately succeed with low risk and small scale business ventures such as:
+			- [flipping mobile websites](http://fiverr.com/alykhan/create-a-professional-mobile-website-for-your-business) in underserved markets and in your local neighborhood where ever you live.
+			- [Flipping basic wordpress sites](http://fiverr.com/alinam1/create-a-very-attractive-professional-3-page-custom-made-editable-website-for-you) for businesses in the local city where you are teaching
+			- Import/Export during your free time like the guys at [http://www.theelevatorlife.com](http://www.theelevatorlife.com/)
+			- ...
+			- Thus after this period of time you will have acquired the technical skills that you are interested in - whether it's PHP, graphic design, mobile game development, import/export - and also tested your skills out in a low risk real-time environment.
+			- Your mentality going into this should be:
+			- At WORST I will pay off my student loan debt, get two or three years of teaching experience, build up various skillsets to proficiency that will make me valuable as a 21st century digital worker, and have a bunch of skills/portfolio/experiences that will make me useful and employable.
+			- The BEST situation is that you have picked up a business opportunity that allows you to pursue a scale-able venture of some sort.
+			- We'll strike up business deals in Mandarin, Spanish, Russian, and Arabic. We'll be Americans and Canadians brokering cement, android tablets, and services between Nigerians and Cantonese businessmen.
+			- Imagine if 1M Gen Y millenials left abroad to teach english, go to the peace corps, and explore business opportunities in the middle east, Africa, FSU, Asia, Latin America?
+			- Then came back with all of those skills, languages, connections, and experiences?
+			- In my humble opinion, "self-globalization" is the answer to the unemployment crisis.
+			- [http://www.rooshvforum.com/thread-24989.html](http://www.rooshvforum.com/thread-24989.html)
+			- Hacking Student Loan Debt via Geoarbitrage
+			- I was inspired to make this post/thread from a different thread I just posted on related to someone having turmoil in his personal life at home and being burdened by student loan debt.
+			- In this blueprint I'm going to discuss two things.
+			- 1. Discuss case studies of paying off 20K or less of student loan debt in two years or less as a teacher in Korea/Asia
+			- TEACHING ENGLISH ABROAD
+			- There are many Catch 22 situations involved in working abroad and teaching English abroad. In this context, the problem is usually that teaching English abroad does not result in gaining the types of real job skills and private sector experience you'd want to grow your career. That is, the only thing you are going to learn from English teaching is how to teach English.
+			- Thus, ESL should be viewed ONLY as a means of securing a work visa and salary in a foreign country.
+			- Currently if you graduated from Mediocre State University with a GPA of 2.9 in Philosophy/English/Lit/Polisci/Useless then you are undoubtedly facing a lot of grief in the job market. Especially if you are in your twenties and have not had the ability to gain some job experience before the market crash.
+			- *CAVEAT* I have not done this myself. But I have consulted and helped friends and clients out to follow this precise path and they have found success in doing so.
+			- 1. Choose Destination
+			- The first step is to choose what country you want to go to. If your priority is mostly paying off debt as fast as possible then you should go for Korea. There is really no other spot where it is as easy to find a position and where you can make a salary of 3K monthly while keeping your living costs very low. While it's not as cheap as Bangkok, China, or Vietnam, the ultimate amount of cash you're saving at the end of the month is probably greater than it would be in any of those other spots.
+			- Countries to consider:
+			- -Korea
+			- ((649b115e-acb6-40c4-b8f7-ae28dccfb939))
+			- -Vietnam
+			- -China
+			- ((62def65b-1354-48a5-913f-962f7287b3d0))
+			- By the end of this stage you want to have made a decision on where you will go based on your current financial situation and the countries that are most attractive to you. You also should have done a lot of research about that spot.
+			- 2. Get certified and secure teaching job
+			- As a rule of thumb with starting a career or venture abroad, showing up is 90% of the battle. This is also true with getting a teaching job. However, in more developed countries like Korea you can secure a teaching job before you hit the ground. If you are comfortable with the idea of coming to one of these Asian destinations before you are certified then that is probably a better route. You'll be able to feel out the different places and know what you are getting yourself into. You can also get certified for TESOL/TEFL (or equivalent) locally and get brokered into your first position. Being on the ground will also obviously give you better leverage in negotiating your salary.
+			- I'm not going to go into too much detail about getting certified here as the process of getting hired varies widely by country.
+			- By the end of this stage you should have researched and determined your plan of attack for entering this country and securing your teaching job.
+			- 3. Set up a budgeting system based on your salary and living expenses
+			- Your goal is to pay off your student loan debt partially or fully, depending on the lifestyle you want to live and how much debt you have. If you are 20K or under in debt you can realistically pay them off in their entirety in 2 years. If it's higher it might not be very realistic.
+			- Anyway, figure out how to baseline your expenses down to the lowest possible number so that you can take home more of your pay and use that to pay off your student loan debt. You are going to have to get creative in terms of how to hack your budget and really save money. Live with roommates, only eat local food at cheap places, don't party at expensive clubs, minimize international travel, etc etc
+			- In general you can achieve the highest amount of savings in second tier Korean cities like Daejeon/Daegu/Pusan/Gwangju.
+		- Easy hustles in USA
+			- Easy Hustles in USA
+			- Research And focus Groups - these pay anywhere from $50 to $400 dollars for an hour or two of your time. You have to sign up for the focus group institutions, and they will periodically send you "screeners" to see if you qualify for whatever focus group they are trying to run. Not a bad way to make extra cash completely passively. Here is the focus group site that sends me the most invites - [http://www.focusgroup.com](http://www.focusgroup.com/) . The easiest way to get into them - google focus groups for your city (NYC focus groups for me).
+			- Blood and Plasma Donation - you can get about $200 to $300 a month if you donate once or twice a week. Check your local donation centers for more information. The downside is that its impossible to party hard while doing this lol
+			- Sperm Donation - if you are a college educated male, you can make anywhere from $400 to[](null)Easy Hustles in USA
+			- Research And focus Groups - these pay anywhere from $50 to $400 dollars for an hour or two of your time. You have to sign up for the focus group institutions, and they will periodically send you "screeners" to see if you qualify for whatever focus group they are trying to run. Not a bad way to make extra cash completely passively. Here is the focus group site that sends me the most invites - [http://www.focusgroup.com](http://www.focusgroup.com/) . The easiest way to get into them - google focus groups for your city (NYC focus groups for me).
+			- Blood and Plasma Donation - you can get about $200 to $300 a month if you donate once or twice a week. Check your local donation centers for more information. The downside is that its impossible to party hard while doing this lol
+			- Sperm Donation - if you are a college educated male, you can make anywhere from $400 to $1000 dollars a month donating sperm. Usually you'd have to pass some tests beforehand, but once you're set its off to cum for money! The catch is that you're paid twice as much if your donation is not anonymous and you agree that your future children can contact you once you turn 18
+			- Now the HFEA is considering adopting the Spanish system which would see the payment cap lifted to £800.(in UK its £35 max, in USA its loads)
+			- 000 dollars a month donating sperm. Usually you'd have to pass some tests beforehand, but once you're set its off to cum for money! The catch is that you're paid twice as much if your donation is not anonymous and you agree that your future children can contact you once you turn 18
+			- Now the HFEA is considering adopting the Spanish system which would see the payment cap lifted to £800.(in UK its £35 max, in USA its loads)
+			- Class Action lawsuits - www.topclassactions.com for US. UK introduced legislation for them in Oct 2015
+		- How to get a $100k Job - cedonulli
+			- When I started looking for jobs, I started the research the way a reasonable person should – by looking at what would be highest paying, locally available, without any crazy hours or serious skill requirements.  By serious skill I’m talking about stuff like being able to pilot an aircraft carrier or perform brain surgery.
+			- While not necessary, I like to borrow from skills I already have to build my “employable sheeple” portfolio.
+			- So, first go on Monster.com, limit search by geography and salary.  Browse.  Look at what may strike your fancy, keep an eye on common elements of skills required by any majority of postings.
+			- In my case, project management came up quite a bit.  It’s a great field since it’s basically complete and utter bullshit.  You an get PMP certified (harhar), and basically you sit around and tell people what to do.  The main skills required are a) management ass kissing and b) being more organized than the average loser.  Check, and check.
+			- PMP - [http://projectmanagementacademy.net/pmp-certification-requirements](http://projectmanagementacademy.net/pmp-certification-requirements)
+			- TWO.  ”Acquire” the necessary skills.
+			- If nothing falls into your skill set range, don’t be afraid to spend a couple of weeks at the bookstore and bone up on buzz words for whatever industry you’re going for.  Considering that interviews hardly ever last more than an hour or two, you should be able to accumulate enough “knowledge” to do just about anything.
+			- THREE.  Write some fiction (resume).  Lie, about everything.
+			- Then, craft a resume.  For me the goal is to have nothing on it be true whatsoever, but that’s more of a personal hobby than anything actually productive.
+			- The less money the job offers, the more actual work and skill it involves.  It’s how the game works.
+			- SIX.  Schmooze, scheme, plot.  Play their inflated egos.
+			- My last job went exactly like that.  I ended up project managing the entire e-commerce operation of a global industrial parts supplier.  Hundreds of millions of dollars in annual transactions, a bunch of languages, currencies, integration to SAP.  It was a beast of a job.  Guess what though … I’d show up at 8AM sharp, and leave at 5PM sharp.  All the things that needed to be done, I talked my boss into hiring people with the actual skill.  Yes sure, in the interview I sold them on me doing it, but after a couple of months there, they ended up “realizing” that we wouldn’t meet deadlines without some extra man power.
+			- Game, game, game.  Picking up girls is nothing if you play the big boy game well – the game of getting PAID.  Of course there were no deadlines.  I got them to believe that they thought they needed to get stuff done.  I got them to believe that they wanted to expand my department.  I spent most of my time getting my boss pitted against competing c-level ass kissers in other departments, turning the whole thing into a game of company politics chess.  He wanted to look more important, thereby doing all the work for me convincing the top bosses to throw more budget my way, allowing me to hire people to do my job.  The job I had no clue how to do to begin with.
+			- Seven.  Deliver like a boss, then quit.
+			- 20 COMMENTS
+				- [Reply](http://cedonulli.com/how-to-get-a-100k-job/?replytocom=3128#respond)
+				- cedo
+			- October 19, 2011 at 12:00 am
+			- It’s BS. You can go get PMP certified and do the same thing. Shuffle paper around, fill out time lines, have meetings, generally be useless. I knew some IBM PMPs, useless as anything. Pays well, though. Pad that resume, get one of those gigs (at a smaller company where they don’t have a giant HR bureaucracy that actually checks everything).
+			- [Reply](http://cedonulli.com/how-to-get-a-100k-job/?replytocom=3129#respond)
+				- Socialkenny
+			- October 19, 2011 at 12:00 am
+			- Interesting tips for getting the job.
+			- And I like the correlation with pick-up and handling job interviewers.
+			- Nice post.
+			- [Reply](http://cedonulli.com/how-to-get-a-100k-job/?replytocom=3130#respond)
+				- Grant
+			- October 23, 2011 at 12:00 am
+			- It sound like a business degree is a necessity for all of your job-related posts.
+			- [Reply](http://cedonulli.com/how-to-get-a-100k-job/?replytocom=3131#respond)
+				- xsplat
+			- October 28, 2011 at 12:00 am
+			- I like the theme of bluffing your way through to getting a job and then hiring other people to do the work for you that you are not even qualified to do.
+			- But I’m guessing you underplay the managerial and problem solving skills needed to do that. High level creative problem solving. I’m guessing you did earn your pay.
+			- Most people are not big picture thinkers. That’s why big picture thinkers get paid. It’s not to do detail work. You did your job.
+			- [Reply](http://cedonulli.com/how-to-get-a-100k-job/?replytocom=3132#respond)
+				- xsplat
+			- October 28, 2011 at 12:00 am
+			- I’ll add that it only takes one good idea to save or create all of your salary plus the costs of implementing that idea and then some. Did you have at least one good idea while you worked?
+			- [Reply](http://cedonulli.com/how-to-get-a-100k-job/?replytocom=3133#respond)
+				- cedo
+			- October 28, 2011 at 12:00 am
+			- I like to understate. I got paid for common sense, and people skills.  And I did get them an amazing piece of B2B e-commerce infrastructure built.
+			- [Reply](http://cedonulli.com/how-to-get-a-100k-job/?replytocom=3134#respond)
+				- Q
+			- November 19, 2011 at 12:00 am
+			- I’m a 20 (going on 21) year old college kid who’s only work experience is at McDonalds. Do you think this plan would still work for me?
+			- [Reply](http://cedonulli.com/how-to-get-a-100k-job/?replytocom=3135#respond)
+				- cedo
+			- November 21, 2011 at 12:00 am
+			- Young looking makes things a bit harder. Best would be to work something seasonal, well paid (bar tending, oil rights, whatever floats your boat), and then use the money to travel the rest of the year in cheaper countries. Wait till you look the part before heisting the corporate world … if you’ll ever be back to actually do that.Reply
+				- Pingback: [A need to succeed – How to get a $100k Job](http://aneedtosucceed.com/articles/how-to-get-a-100k-job/)
+			- LEAVE A REPLY
+			- Your email address will not be published. Required fields are marked *
+			- Name *
+			- Email *
+			- Website
+			- Comment
+			- Optionally add an image (JPEG only)
+			- Notify me when new comments are added.
+		- Canadian oil sands
+			- CANADIAN OIL SANDS
+			- Fuck that shit, the hourly wage cap is too low and it requires too large a time investment for a very limited ceiling.
+			- Even with the 6 months on/off later to allow for reinvesting into businesses, it still is a ton of hours to invest before you can focus on business again
+			- [http://www.rooshvforum.com/thread-9826-page-19.html](http://www.rooshvforum.com/thread-9826-page-19.html)
+			- ACTION PLAN
+				- Get working holiday visa
+				- Save up money for flight and £3k for living costs + safety courses
+				- Create a CV highlighting blue collar experience
+				- (optional) sort out a job before landing
+				- Get a cheap hostel to stay at
+				- Get a labourers job with potential for apprenticeship
+			- PROSCONS
+			- Good starting pay and many hours available for overtime + weekendsMoney saved up can be pooled together to invest in real estate, franchises, etc for passive income/early retirement extremeThough I think my time is better leveraged into a businessSave £20k and live in a cheap place like Chiang Mai or Saigon whilst working on internet business (estimated monthly wage after tax is £3k so this will take 7 months)Many jobs have free accomodation + food, helps to baseline expenses to increase savings rateFlexible - if you have the skills, you can take months off and come back when you wantLearning a trade is both location-independent and SHTF-resistantTime-based rather than results-based job, allows you to slack off and take it easyPhysical work + the environment increases testosterone which boosts motivation/bone density/muscle/libido/motivation/health/risk-taking etcBest time is to do it now - whilst oil boom is still happening and whilst we're still young and fit enough to do blue collar work. Above 30yr old it's also harder to get a job up thereOther opportunities are always available to come back to if this doesn't work outHard physical workDangerous work if you're not trained or carefulRough frontier town - many criminals work up there so high risk of fightsWinter is very coldWorking with boring idiotsHard to get laidExpensive up thereLong hours takes away from other habits/projects/etc - get up at 5am everyday and go to work for 12 hours?Cyclical industry based on price of oilSocial skills will deteriorate if all my time is spent workingVS COPYWRITINGHourly pay potential is far higher with copywriting4 years to reach £10k/mo (before tax) - high, guaranteed but that's the ceilingAble to work + party/scuba dive/surf etc all in the same dayI hated cold weather of 30min outside for ABA - canada will be way worseMastering this skill can be leveraged into marketing TIMP - which I'm passionate about creatingWorking in the oil sands would be unfulfilling, time and energy drainingI have a safety net (can take on cheap gigs if necessary or survive on minimum £70 liabilities)Full time flexibility e.g. biphasic/polyphasic sleep, useful for socialising, hangovers, if sick, things come up, etc
+			- Weighed up the Pros and Cons, going to save up £4k then decide from there the best plan
+			- - However I'm learning towards not going Canada as I can earn more by spending all that time doing copywriting/on a business instead, plus £100k will be my ceiling
+			- LOCATIONS
+				- Fort McMurray, Alberta (oil sands)
+					- Edmonton/Calgary nearest cities
+					- [http://www.youtube.com/watch?v=XrHQxvsOW8E](http://www.youtube.com/watch?v=XrHQxvsOW8E) Sh*t Fort McMurrayites Don't Say
+				- Williston North Dakota (oil rig in USA)
+				- also check out NE BC (fort st john, fort nelson), other AB areas (calgary-red deer Edmonton, grande prairie, cold lake, lloydminster, etc) and saskatchewan has lots of work too in regina, estevan, etc (oil and gas, uranium, potash, etc).
+			- GETTING A JOB
+				- IMMIGRATION VISAS
+					- Immigration canada webpage [http://www.cic.gc.ca/english/](http://www.cic.gc.ca/english/)
+					- Working holiday visa? valid up to a year
+						- This gives a person enough time to get a job and switch visa to a foreign worker visa to stay longer than a year. The app takes up to 2 weeks or less and it cost up to 500 dollars. However the only issue is a person must be in school or show that they were in school. the website sit is http://www.swap.ca
+						- or temporary work permit
+					- [http://www.international.gc.ca/experienc...spx?view=d](http://www.international.gc.ca/experienc...spx?view=d)  Its a government programme called "International Experience Canada" if you're under 35 and come from one of the many countries listed above (Netherlands and Ireland are there but not the USA, shitty!), you can come and work in Canada for up to a year. Its probably very easy to qualify for, so guys from the UK or Europe can apply
+					- http://www.canadainternational.gc.ca/ireland-irlande/experience_canada_experience/index.aspx?lang=eng&view=d -
+					- For those the a high level of education, you should consider the PNP program as a means to gain residency status in Canada
+					- Two good resources for people wanting to move to Alberta: [http://www.alberta-canada.com/immigration/](http://www.alberta-canada.com/immigration/) [http://www.services.gov.ab.ca/Living/Index.aspx?N=770](http://www.services.gov.ab.ca/Living/Index.aspx?N=770)
+				- EMPLOYABILITY
+					- Do some safety courses before you go out (unless of course the company offers to), it makes your CV more attractive to employer, the 2 essential ones are called
+						- "H2S Alive" (its a one day 8 hours sour gas safety course) - its a one day, 8 hour course all about how H2S (sour gas) can kill you, its pretty deadly stuff and you need the ticket to get onto all oil and gas sites. There's lots of different places to take the course all over Alberta, I think it costs about $150 which is money well spent IMO, if you have that ticket before you start applying, it'll make you more attractive to employers. You could also try to get a job without it, but most job posting I see have H2S as a prerequisite.
+						- Other safety tickets are CSTS (Construction Safety Training System)
+						- First-Aid/CPR, possibly even Confined Space Entry and Fall Arrest. Depending on the job, you may need to take some or all of those courses, they're all a day long and coast about $100-150.
+						- do that one on-line through Enform.ca OR cheap to do it in edmonton
+						- All workers working in the oil sands sites are required to have Construction Safety Training System (CSTS) and Oil Sands Safety Association (OSSA) certifications completed. Without these certifications, workers are not allowed to work on the oil sands sites. To find more information on these two trainings and other requirements that you may need please visit: [http://www.woodbuffalo.net/trainSAFE.html](http://www.woodbuffalo.net/trainSAFE.html)
+						- most important are H2S, Confined Space, CSTS, WHMIS, Fall Protection.
+					- Take pre-employment courses at SAIT; NAIT Red Deer College, Keyano college. Book after flying out to stay flexible
+						- [http://www.enform.ca/coursesearch/default.aspx?Keywords=online](http://www.enform.ca/coursesearch/default.aspx?Keywords=online) [http://www.firstaidsafetytraining.ca/h2s-alive-course.php](http://www.firstaidsafetytraining.ca/h2s-alive-course.php)
+				- ONLINE JOB HUNTING
+					- Industrial cleaning jobs? call call/e-mail their HR people
+					-
+						- [http://www.cleanharbors.com/](http://www.cleanharbors.com/) [http://www.unitedsafety.net/](http://www.unitedsafety.net/)
+						- [http://www.cedagroup.com/index.html](http://www.cedagroup.com/index.html)  click on "2012 CEDA jobs" and you will see listings for unskilled and skilled jobs, these guys hire lots of guys for maintenance shut downs every year, read the offer, they will fly you in, train you and put you up in camp.
+					- Labour Market News on our website. [http://www.woodbuffalo.net/LMNMAIN.html](http://www.woodbuffalo.net/LMNMAIN.html)  . Suggested reading for you: - Finding a job - Oil sands Jobs - Administration
+						- go to the > Links > Employer Web Sites section our website: [http://www.woodbuffalo.net/linksEMPLIntro.html](http://www.woodbuffalo.net/linksEMPLIntro.html)  — this will give you a list of companies that hire by trade. Links that you should look at: - Business
+					- General employment listings are often found at [http://www.jobbank.gc.ca](http://www.jobbank.gc.ca/) . Click on English, then Job Search on the upper left, then Alberta in the list of provinces. In Step 1, enter a keyword, or leave it blank. In Step 2, pick Fort McMurray and Area from the list.
+					-
+						- Also check out: [http://www.fortmcmurraytoday.com/](http://www.fortmcmurraytoday.com/) [http://oilsands.infomine.com/careers/](http://oilsands.infomine.com/careers/) [http://www.fortmcmurrayjobshop.ca/](http://www.fortmcmurrayjobshop.ca/) [http://www.alis.gov.ab.ca/employment/jp/jobbanksab.asp](http://www.alis.gov.ab.ca/employment/jp/jobbanksab.asp)
+						- [http://www.oilcareers.com/](http://www.oilcareers.com/) , [http://www.rigzone.com/](http://www.rigzone.com/) , jobbank.gc.ca, workopolis, monster.ca, [http://oilsands.infomine.com/careers/](http://oilsands.infomine.com/careers/)  [http://www.fortmcmurrayonline.com/jobs/welcome.aspx](http://www.fortmcmurrayonline.com/jobs/welcome.aspx)
+					- Major surface mining companies in the Regional Municipality of Wood Buffalo (Fort McMurray) are Syncrude, Suncor, Albian Sands and Canadian National Resources Ltd. (CNRL). You can apply for jobs directly to their website, but some of the jobs on the mine sites, especially construction, are contracted out to other construction companies. Also there are a number of in-situ mines that operating or under construction.
+						- [http://www.suncor.com/en/working/315.aspx](http://www.suncor.com/en/working/315.aspx) [http://www.syncrude.ca/users/folder.asp](http://www.syncrude.ca/users/folder.asp) [http://careers.cnrl.com/js/](http://careers.cnrl.com/js/) [http://www.shell.ca/careers](http://www.shell.ca/careers)
+					- Most oil sands operations:
+					-
+						- Suncor-1st ever oil sands operation, built in 1967; Syncrude-Largest oil sands operation; CNRL Horizon; Shell Albian Sands; Imperial oil (EXXON) Kearl Lake; Suncor Firebag; Husky Sunrise; Cenovus-Christina Lake; MEG Energy-Christin Lake
+					- Most likely, you will find work with a contractor or subcontractor (like me), here's some big ones in the oil sands:
+					-
+						- -PCL (Canada)-Kiewit (USA)-KBR (USA)-Ledcor (Canada)-Transfield (Australia)-TIC (USA)-Bechtel (USA)-Kentz engineering-DCM (Canada)-Bradken ( ((64e09423-468c-49f3-9fc3-cb3fbab8e4c7)) )
+						- -Strike Energy Services: http://www.strikeenergy.com-Bird construction: http://www.bird.ca/-Nabors drilling-Precision Drilling-Flint Energy: http://www.flintenergy.com/-Garda Security
+						- Naibors, Ensign Drilling, AFCN, Aramark and Paladin Security
+						- Keep looking around, try some of the major oil sands contractors too (especially for shut down work- big money in short time): Jacobs, FT Services, DCM construction, KBR, Transfield Services, Ledcor, Canonbie, Aecon, Lockerbie and Hole, Quinn Contracting, BFL Construction, PCL, Enerflex, etc.
+						- Check out the website of the major oil sands companies: Suncor, Syncrude, CNRL, Shell, Total, Statoil, MEG Energy, Cenovus, Husky, etc.
+						- Also, you can try some drilling companies, they also have work in Fort Mac and other areas of AB,BC and Sask: Precision Drilling, Nabors Drillling, Trindad Drilling, etc.
+						- Oil & energy companies: Imperial Oil, Esso, MEG energy, suncor, syncrude, CNRL, Husky, nexen, Encana, harvest, peyto, Crew, Vermilion...I'm sure there's a lot more.
+						- Construction: Thompson, NACG, kiewit, aecon, graham, voice, KBR, Bantrel, PCL, CEDA, Wilco, Pyramid, Pacer, Ledcor, Lafarge, Alberco, Hazco, Fluor, CPI, EnviroPro, A&H steel, Flint
+						- Drilling and servicing: nabors, calmena, Trinidad, champion drilling, Halliburton, schlumberger
+						- [http://www.noraltalodge.com/](http://www.noraltalodge.com/)
+				- CAMP JOBS
+					-
+						- There are construction jobs that come with camp accommodations but, whether or not a job comes with camp housing depends on the company and the job, so it's something that you have to negotiate with the employer. For more information on getting a job that comes with camp housing, see the Labour Market News at: [http://www.woodbuffalo.net/LMNMain102007.html](http://www.woodbuffalo.net/LMNMain102007.html)
+					- Temporary work agencies
+					-
+						- Diversified Staffing Services, Manpower Canada, Randstad Canada
+					- ELECTRICIANS
+					-
+						- -Chemco (http://www.chemco-elec.com/) -Kiewit (http://www.kiewit.com/) -JV Driver (http://www.jvdriver.com/) -Pyramid contruction (http://www.pyramidcorporation.com/) -DCM Construction (http://www.dcmgroup.ca/) -FT Services (http://www.ft-serv.com)
+					- SAFETY
+						- [http://www.fortmcmurrayonline.com/jobs/welcome.aspx](http://www.fortmcmurrayonline.com/jobs/welcome.aspx) [http://www.hseintegrated.com/](http://www.hseintegrated.com/)  and [http://careers.unitedsafety.net/2012/01/....html#more](http://careers.unitedsafety.net/2012/01/....html#more)
+						- I know for a fact that these two companies hire inexperienced newbies off the street, probably $18-22/hour doing safety watch for confined space entry, gas monitoring in vessels, ensuring SCBA/SABA ensuring oxygen cylinders are full and maintained, etc. Also, those other 2 I mention, clean harbors and and CEDA hire guys off the street.
+				- IN-PERSON NETWORKING
+					- Going to be far easier finding a job once you're on the ground for an in-person interview
+						- LinkedIn cold emailing rate is very high, shows employers are overflooded with prospects. Also one member emailed a lot of companies, who said that they will only talk to people once they are there and ready to go
+					- If you can't find a job, bring £2/3k then try and get any job e.g. mcdonalds/bar work (pays about $15/hr minimum)
+						- A lot of companies have walk in interviews available (Savanna Drilling for example, savannacareers @ savannaenergy .com, located at 9753 51st Ave.)
+						- I also met a boilermaker here and he said that the union is looking for people. just show up to the office (International Brotherhood of Boilermakers Lodge 146), ask about their pre-apprenticeship program and you can pretty much get started asap
+						- Another option, if you need cash right away, is to do some landscaping work. Weedman pays about 18/hr without any experience. Another landscaping company that a friend of mine recommended is Canadian Property Stars. Apparently, they pay up to 400 per day and you can make your own hours/work 7 days a week. If you wanted.
+						- I'm pretty sure that if anyone walked into a few a union halls or construction company offices in Alberta today, it wouldn't take long before they had a good job.
+				- LIFESTYLE
+					- Most common rotation is 2 weeks on, 1 off. Most you're allowed to work is 24/4, others include 10/4, 7/7, 12/7, 21/7, etc. Some companies allow 30/30 and give you $1000 for flights
+					- ACCOMODATION
+						- Get a job with fly in/fly out (staying in camp during shift), companies pay for your 45min flight from Edmonton/Calgary to Fort Mac
+							- Rented rooms in a house cost about $400-600 per month in edmonton/calgary or $800-1k in Fort Mac
+						- Hi-Edmonton Hostel - not only is it cheap, a lot of the guys that are staying here are either working in the sands or looking for work. Great way to network and find leads on gigs! ($33/night?)
+						- Fort Mac is best for industrial work, Edmonton also good for industrial and Calgary too but slightly more of a white collar type city
+						- A camp job with paid flights may be the best for you, especially if you are based in Calgary, during your week off you can go to the Rocky mountains and go skiing and partying in places like Banff, Lake Louise, etc.
+							- All travel time is paid including flight and drives to/from airport
+							- If you drive up to Fort Mac and look for work there, you will likely be hired as a local, some companies offer living allowances or housing incentives, but probably won't for a labourer. You'd likely work in town or on-site and be home every night, so that may interest you because you could still have a social life (well as much as you can in a city like Fort Mac). You can also move to Edmonton or Calgary and be hired for a Fort Mac camp type job and fly in and out on a rotation, that's what I'm doing now.
+					- CARS
+						- having a car will make your life a lot easier. Its not absolutely essential (I lived for almost a year without one in Alberta), but citied like Calgary and Edmonton are definitely car cities, public transportation isn{t the best and the cities are very spread out. During you initial job search, you may want to rent a car for handing out CVs or put an add on Kijiji.ca and pay someone to drive you around, the industrial area of Edmonton, Nisku is near the airport, about 20 minutes outside of town, thats where a lot of companies are based, but not all.
+						- red arrow or greyhound coaches from city to airport
+				- OTHER TIPS
+					- FIRST JOB
+						- Need 1 month no weed to pass urine test + no blazing during as they do post-incident testing after accidents (even if you were not the person affected in the accident)
+						- Bring a suit for interview and be charming
+						- Don´t be too picky with your first job, you may only make $15-18/hr to shovel shit in a ditch, but once you get all of your safety tickets done, bank a few bucks and do some networking, you should be able to move onto something better
+						- since you'll likely be on a budget and need to work efficiently, you'll need to be hitting the pavement by 8am.
+						- if they have job ads for labourers, then contact them. If they also employ skilled tradesmen (most do), then thats how you'd get a job. Start out on the bottom rung, don't be a retard and eventually you will be able to get into a trade that way.
+						- Get hired on as a welder's helper, basically a labourer's job, you'd make around $20/hr starting out and if you played your cards right, the company would enlist you into the provincial apprenticeship programme. After about 6 months of field work, you'd to to school for 6-8 weeks and do this 3 times over the course of 3-4 years, after each school session you'd get a raise until you hit the top journey man rate, which in most trades is $40-45/hour, plus about $6hr into you pension. So if you're 18, by the time you're 21-22 you WILL (theres no grey area here!) be making about 150K, you'll get paid to go to school and make big money during your 4 year apprecticeship, I have a friend who is 25 and hasn't made less than 100K/year since he was 17!
+						- "I emailed all the recruitment agencies asking who wanted to help me find some work. Got to love outsourcing."
+					- Don´t EVER do a job or task that you think is unsafe, you have the RIGHT to refuse any unsafe work
+					- Stay away from the strip clubs, escorts and hookers. This sounds logical but you should see the crazy shit a guy will do after working 60 days straight in the patch without seeing a fuckable women then he has 4 days off in Edmonton or Calgary
+					- Get a social insurance and Alberta health insurance as soon as you arrive.
+					- work on getting a license or government issue photo ID next.
+					- Telus, Bell, and Rogers are the main cell phone providers. Get set up with a cell phone ASAP as you'll need one to network and Internet access. Before getting a cellphone, you'll need a Canadian ID. A cell phone with gps is a huge help for finding your way around the city. The last thing you'll want is to roam aimlessly..lost in a foreign city all day or night.
+				- JOB PROGRESSION
+					- As long as you have halfway decent people skills and are not a total fuck up, you WILL be able to jump to better opportunities QUICKLY
+					- APPRENTICESHIP FOR TRADES
+						- directly contact companies to see if they have any openings for a labourer or helper, then once you get on, you can register as an apprentice, then go to school for your first year training, for trades this is about 8 weeks (you can draw EI while at school). Basically you'd work for 4 years and go to school every year for 8 weeks before you can become a journeyman.
+						- Another option is to go into a union hall and see if they are hiring apprentices. I would suggest this option as union companies pay the most and some locals have excellent training facilities, such as the United Association local 488 in Edmonton (I am a UA member), more info here: [http://www.local488.ca/](http://www.local488.ca/) join a union once you're an apprentice for increased rates?
+						- Another good union local that always seems to be busy and hiring green hands is the Boiler Makers, local 146 in Edmonton. BM is a good trade, lots of work and is also high paying: [http://www.boilermakers.ca](http://www.boilermakers.ca/)
+						- Another good option is the pre-employment route, if you do this, you won't be completely green when you show up on the job site and should have a good idea of the basics of the trade. Also, depending on the pre-employment course you take, you may be able to go right into second year apprenticeship and thus only have to do three more 8 week courses.
+							- Check this website, it'll answer your questions in more detail: http://www.tradesecrets.gov.ab.ca/
+						- These schools are where you can do your trades training, either pre-employment or apprenticeship training in Alberta:
+							- [http://www.nait.ca](http://www.nait.ca/) [http://www.sait.ca](http://www.sait.ca/) [http://www.rdc.ab.ca](http://www.rdc.ab.ca/) keyano.ca lethbridgecollege.caCHOOSING A TRADE
+				- Building/construction trades (most demand and well-paid) - welder, pipe fitter, electrician, boiler maker, scaffolder, iron worker, scaffolder, crane operator, industrial instrumentation, industrial insulator, plumber, diesel mechanic
+					- Welder
+						- some making $8-10k per week.  Contract rig welders in the Mac make $100-120/hr, 80-100 hrs week, do the math on a 24 on 4 off rotation! [http://www.youtube.com/watch?feature=player_embedded&v=THLzeQM_TmM](http://www.youtube.com/watch?feature=player_embedded&v=THLzeQM_TmM)
+						- One of the highest paying trades, if you get your own rig and self contract. That isn't something that happens quickly, you'll first have to spend about 3-5 years getting your JM ticket. A welder who isn't self employed and works directly for a company, like most other trades, make the same, $40-45/hr for a journeyman
+						- Most tradesmen make around $40-45 for a journeyman rate (that is base rate, goes up x1.5 or x2 with OT rates), welders can make a lot more because they can self contract, meaning that they get no pension, OT rates ($100-120 straight time all the time), have to do their own taxes, health care benefits, etc. plus they breathe in fumes?
+						- Can be a hazardous occupation but if a guy follows the proper safety precautions, he can minimize the risk
+					- Pipefitting is 4 year trade and the work isn't that bad. I hear the pipefitters union is taking in new applicants with no experience to get their numbers up.
+				- Technical trades that are less physically demanding than the building trades but still require field work in the elements - instrumentation tech, industrial automation tech, safety officer, PLC programmer
+				- Engineers - civil, mechanical, material, chemical, electrical
+					- Engineers don't usually work an insane amount of over time like tradesmen do, they have a cushy office job where they sit at a desk all day and tell guys like me what to do, so they don't always make really big dollars, like a welder can. Requires years of education however
+				- Driver - need to get a special license called a "class one" to drive big rigs or "class 3" to drive vac trucks or dump trucks, a regular license to drive cars is a "class 5".
+					- Heavy equipment operators eg bulldozers
+					- Check out these companies for more info:http://www.nacg.ca/ -http://www.thompsonbros.com/ -http://www.finning.ca/ -www.michelscanada.com
+				- Non-skilled - little/no training: Labourer, janitor, kitchen staff, camp staff, security guards, man/hatch watch (monitoring confined space entry), water/vac truck operator
+					- Unionized labourers can make up to $35/hour, literally to dig holes in the ground and do janitorial work like cleaning toilets, check out the website for more info if you want: [http://www.local92.com/](http://www.local92.com/)
+						- union guys like me get double time after 10 hours and double all weekends
+				- Safety - check out these to companies: [http://www.hseintegrated.com/](http://www.hseintegrated.com/)  and [http://www.unitedsafety.net/](http://www.unitedsafety.net/)
+					- I know for a fact that these two companies hire inexperienced newbies off the street, probably $18-22/hour doing safety watch for confined space entry, gas monitoring in vessels, ensuring SCBA/SABA ensuring oxygen cylinders are full and maintained, etc. You'd sit there on your ass for 10-12 hours per day, no smart phone (not allowed on site), nothing to do but make sure we're okay in there by radio and do gas testing
+					- Health and safety professionals are basically the most hated people on site but are a necessary evil. No body likes them because they can kick you offsite if you break any safety rules, but they're there to protect everyone and make sure we all go home safe. They can make really good money too ($50+/hour) and the job isn't labour intensive, check out United Safety and HSE integrated for entry level positions
+					- Senior guys can make decent money, depending on where and how much they work, around $50/hour. The lower end safety guys make much less, around $18-22, I'll write more about this later because many people ask me about a career in safety and I don't highly recommend it.
+					- need to take a course called "National Construction Safety Officer", as a minimum requirement, a person needs at least 3 years of construction experience to take this course.
+				- Maintenance trades - basically all trades can be a maintenance trade (welder, pipefitter, scaffolder, etc). The pros of working maintenance are that these are more permanent positions and you do less actual work because of safety issues (have to pull permits to work, this takes a while). the downside of course is that you're in a live refinery, things can go wrong (explosions, dangerous gas leaks, etc) also, you'll be exposed to some carcinogens
+					- best to get into a trade or job that is involved in maintenance, because even if all the construction guys get laid off, the refineries, pipelines, etc have to be maintained.
+				- PAY
+					- Starting salary appears to be $20 (£13) per hour for a labourer but accom/food are included, flights paid for and shifts have overtime/weekend rates (1.5x)
+						- e.g. 12 hr days (4 hrs overtime) = $280/day, $360 on weekends = $2120/week
+						- After tax approx $1500/week @ 3 week on (1 week off) i.e. £3k/month, £36k/year after tax
+						- Higher rates for union guys
+							- you can work union through the IBEW (http://www.ibew.org/) or non-union through CLAC (http://www.clac.ca/)
+							- I have to be working for 30 days minimum before I can submit an application to become a union member.
+					- Journerman rate tops out around $40-45/hr @ 8 hours straight, 2 hours 1.5x, 2 hours 2x. 2x for all hours on the week end.
+						- £1200 for 8 hrs/5 weekdays. £1050 for 4 hrs OT/5 weekdays. £1440 for 12 hrs/weekend = £3690
+						- Do the math, basically for 3 months straight, I was saving minimum 3K per week, my best week I CLEARED (net pay) $5600....I think my JM cleared about $7000, in ONE WEEK
+			- more info: [http://www.woodbuffalo.ab.ca/living_2227/Newcomers.htm](http://www.woodbuffalo.ab.ca/living_2227/Newcomers.htm)
+			- why are you going to Calgary first then Edmonton, because of the flights? If you're planning on going to Edmonton, why not just go there right away and take care of all your admin stuff there and safety courses? You can take a bus (Greyhound or Red Arrow), its a 3 hour drive north to E-town.
+			- Of course, there's plenty of work in Calgary too and fly in/out positions available from there, so you could just stay there, actually I prefer Calgary to Edmonton, much nicer city.
+			- Whichever city you choose to stay in, you're plan will be the same:
+			- -land at airport and take a shuttle or taxi to the Hosteling International hostel ([http://www.hihostels.com](http://www.hihostels.com/)), check in for a few days or a week while you take care of your banking and other things. The HI hostel in Edmonton is located a block away from the main party spot in E-town, Whyte Ave, the one in Calgary is very close to downtown, in East Village (a bit sketchy at night!) Dorm rooms are about $30/night.
+			- -Buy a weekly transit pass that will allow you to get on buses and the LRT (Light Rail Transit), both cities have one. Neither city is great for transit and there aren't many bus options going to the industrial areas, it'll take awhile to get around to hand out CVs but it can be done, I did it.
+			- -Find a training centre close to the LRT lines or bus stops and do your H2S and CSTS as a minimum, first-aid is nice to have but not essential.
+			- -I'd recommend finding a room in a house for rent, should be able to get one for around $400-600, again, being close to transit is ideal. Check [http://www.kijiji.ca](http://www.kijiji.ca/) and craigslist.
+			- -Apply for jobs: look up all the companies I posted throughout this forum, check the Service Canada Job Bank ([http://www.jobbank.gc.ca](http://www.jobbank.gc.ca/)), check listings in the local papers, online job companies (Monster.ca, workopolis, etc), also check in with temp agencies (randstadt, manpower, diversified Staffing, etc).
+			- I recommend giving yourself about 2-3 weeks to get all of this done and get to know whichever city (Calgary or Edmonton) you decide to stay in. Also, try to meet some women because if you're working away on a fly in/out rotation, it'll be nice to have some friends to go out with on your days off.
+			- Also, NETWORK, NETWORK, NETWORK! Wherever you go in Alberta, people are generally friendly and will try to help you out if they can. I'm not encouraging you to spend all of your time in bars, but a lot tradesmen and business owners hang out in bars and restaurants after work and will likely take your CV and pass it along to hiring managers. In Calgary, check out 8 ave and 17th after 4pm, in Edmonton it'll be the bars and pubs on Jasper and Whyte.
+		- Run Your Own Business | Find a Niche | Make More Money
+			- Earning more money: How to turn your skills into services that people will pay for
+			- JANUARY 12, 2010 · 78 COMMENTS
+			- Since this is such a huge post, I’m going to start off with 2 notes.
+				- Below, you’ll see how to take your skills and identify what “the market” — or prospective customers — will pay for
+				- I added lots of examples below, but it’s still complex and information-dense. When you sign up at [Earn1k.com](http://www.earn1k.com/?webSyncID=cce1c0b4-2a29-1e9e-9b13-950e24ed4598&sessionGUID=19a8362e-bd3e-c8e8-b970-099ded73377c), I’ll be going over a more structured, step-by-step program.* * *
+			- In a survey of over 1,000 people that I recently did, the #1 reason people don’t start earning money on the side is this: They don’t know what to do.
+			- How do you take your skills and turn them into something that people will pay for? Let’s say you have a full-time job as a project manager or salesperson or software engineer. How can you help that make you $200/month, $500/month, or even $5,000/month on the side?
+			- I want you to pay attention: This is the #1 barrier because it is the hardest step. It’s not some simple 1-2-3 checklist, which is what most people want: a one-size-fits-all solution that they can blindly follow to earn extra money. But because it’s so challenging, the rewards are disproportionately large. That’s because 90%+ of people will wash out at this step, leaving the few, the proud, and the now-earning-a-lot-on-the-side.
+			- So if you expect this to be easy, go away.
+			- If you expect this to be customized to your situation, go away.
+			- You’ll have to take a leap to tailor the advice here to your own situation.
+			- My goal is not to have you start earning money immediately after reading this post — even though we all love 1-2-3 steps, earning more successfully is much more complicated than that.
+			- With that, let’s get started on the first steps of taking your skills and turning them into income.
+			- Freelancing: The easiest way to earn more money
+			- There are a few things that we need to acknowledge up front:
+				- Out of the [3 easiest ways to earn money](http://www.iwillteachyoutoberich.com/blog/3-easiest-ways-to-earn-money/), we think the easiest way to earn money on the side is to freelance. You can start earning money immediately, you can rapidly test your offerings, and you can cut through the unnecessary work of productizing and [increasing your salary](http://www.iwillteachyoutoberich.com/dreamjob/how-to-interview.php). Accordingly, we’re going to focus on [freelancing](http://www.iwillteachyoutoberich.com/blog/the-freelance-diaries-the-laid-off-marketing-consultant-whose-income-has-skyrocketed/) for the rest of this course.
+				- My guess is that 95% of jobs could translate into related freelance work. But 5% of could not: For example, you don’t see any freelance cardiothoracic surgeons. (But you can see some doctors [moving in that direction](http://hellohealth.com/patients/rates/).)
+				- Just like dating, it will probably take repeated failures to find a good match between your skills and what the market wants.That last point is very important. Sometimes people spend so much time building up a business — with business cards and websites and licenses — that when they actually launch and find the market won’t pay for their offering, they give up, exhausted and frustrated. We’ll teach you how to streamline the launch process so you can rapidly test ideas and refine them. Just like in the dating world, you probably won’t find your right match the first time, second time, or the 5th time. That’s where people give up. But if you optimize your system of learning what people want (and are willing to pay for), it’s simply a matter of time until you hit on something that matches your skills to the market.
+			- Two examples: Turning skills into income
+			- Example: How I used these principles to launch this blog and find readers
+			- I originally started “I Will Teach You To Be Rich” as a 1-hour free course that I taught at Stanford. (I consider the blog a mix of freelance and product since I spend ongoing time writing here.) It was never designed to make money, it was just something cool that I wanted to do. When I’d hear friends complaining about money at the dining hall, I’d say, “Hey, you should come attend this class I put together…it’s free and it takes about an hour, and I’ll show you all the basics of money — banking, budgeting, saving, and investing.” The response was VERY positive. People said, “Wow, that sounds awesome!”
+			- And then they would never show up.
+			- Repeatedly, over 1.5 years, I struggled to have anyone show up. I would wonder to myself, “Why am I trying so hard to give people GOOD, FREE information about stuff they really need to know?” I felt like a career counselor, one of the most under-appreciated (and hopeless) jobs.
+			- After trying all kinds of strategies to get people to attend, including emailing THEM and trying to coordinate times, I switched approaches. Instead of in-person events, I launched iwillteachyoutoberich.com so people could read it out of the comfort of their own dorm rooms. Later, I learned why this was so successful: People don’t like attending events about money because (1) it makes them feel bad about themselves, (2) the events are usually boring and/or scammy, and (3) people have to publicly admit they don’t know about money.
+			- It was a classic mistake of not understanding my users (substitute “customers” in for your business).
+			- Lesson learned: You MUST get into your clients’ heads. What are their fears? Hopes? What do they care about most (hint: How much it costs is almost never the first priority.) Similarly, once you get in their heads, you learn that the medium in which you serve your clients matters. (Is it an in-person event or a blog or a weekly phone call?) The way you approach your client matters. And the way in which you sell to prospects matters.
+			- Example: How I consulted for venture capital firms
+			- Like all of us, I know how to use YouTube, Myspace, Flickr, and Facebook. A few years ago, during college, I was able to turn that into consulting gigs with multiple venture-capital firms who wanted to learn how young people were using consumer services on the web. This consisted of me giving them a course each week — online music, videos, social networks, etc — including showing them how guys checked girls out on Myspace. This was perhaps the greatest achievement of my life: Showing how guys found hot girls’ profiles to a bunch of venture capital partners.
+			- Would you have ever thought you could turn your daily routines into a consulting gig? I wouldn’t have before I landed those gigs. But people were willing to pay for it because they had concrete needs: They wanted to understand how young people were using new technologies so they could remain sharp investors. Money wasn’t an issue, but time was: They’d rather hire someone who lived it than try to learn themselves. Once I’d established that I was skilled at these services, but more importantly that I could create an effective structure for teaching the VCs, they hired me.
+			- Lesson learned: It’s not enough to simply be good at something, whether it’s freelance writing, dog walking, or graphic design. Millions of other young people know how to use YouTube/Facebook/Flickr far better than I do. It’s not just knowledge: You have to package your knowledge into something that clients can recognize as valuable. Usually this involves them making more money, saving money, or saving time.
+			- Should you pursue your passion or just make money?
+			- People love talking about passion. Your job should be your passion! You should be a passionate lover. Eat food passionately.
+			- Some of this is true, but passion is also overrated and used as a panacea for everything under the sun. Guess what? You get passionate when you start winning.
+			- As Cal Newport says:
+			- “Passion: The feeling that arises from have mastered a skill that earns you recognition and rewards.[...]My alternative definition claims instead that passion is the feeling generated by mastery. It doesn’t exist outside of serious hard work.When Scott’s readers say “I have too many passions,” what they really mean is “I have lots of superficial interests.” When my readers complain that their major is not their passion, what they really mean to say is “I don’t have a level of mastery in this field that is earning me recognition.”This is a controversial view, so don’t get hung up on Cal’s definition.
+			- The 2 major takeaways are these:
+				- Your job does NOT have to be the source of inspiration for freelancing. If you’re a project manager by day, you can be creative writer on the side. Both share similar skills, anyway! You have to be organized, create structure out of chaos, and focus on delivering on time, every time.Now you see why turning your skills into income isn’t some cookie-cutter formula. Because if a project manager can [earn $1,000 on the side](http://www.earn1k.com/?webSyncID=cce1c0b4-2a29-1e9e-9b13-950e24ed4598&sessionGUID=19a8362e-bd3e-c8e8-b970-099ded73377c) being a creative writer, what could you do? Suddenly, it’s overwhelming.
+				- Your job skills CAN be transferred, no matter how unique you think you are. So you’re a dolphin trainer at Sea World. Wow, unique job! Not really. You have skills in working with animals, obviously, which would suggest training pets. But you also have expertise in behavioral change, which many academic labs and companies would love to tap — and pay for. You can tutor children. You can help people stop biting their nails. Or 100 different options.Don’t simply say, “I’m a process engineer! Nobody hires freelance process engineers. I give up (wipes face with tears and reaches for a large slab of beef). Instead, ask yourself: What do I enjoy? What am I good at?
+			- A friend of mine left a management consulting firm to start a local events-based business because he became an expert on estimating attractive local markets.
+			- Another friend left Deloitte to do system optimization for bloggers (integrating email, Twitter, YouTube, etc).
+			- A third friend, who finds cleaning her room therapeutic, is starting a freelance business where she’ll be a professional organizer. Her full-time job at a non-profit has nothing to do with this at all.
+			- So: “Think outside the box” is the sort of trite advice that I hate, so we’ll go into this in more detail later. But you really do need to challenge yourself to see what skills you have that the market would potentially pay for.
+			- Start with your goals
+			- Too many people jump into the tactics without understanding why they’re doing what they’re doing. To be honest, I did that with iwillteachyoutoberich, and I still do it sometimes.
+			- It’s better to do something WRONG than to do nothing at all. But if you can spend a little time planning — and still continue executing — you can save hundreds of hours of missteps.
+			- Here’s a simple rule.
+			- If you want to start freelancing because you want to earn extra money, identify a profitable market first, then adapt your services to it.However, if you want to freelance because you want to take your passions and turn them into side income, first create your services that are based on your passions, then identify a profitable market.Do you see the difference?
+			- Example: Jack just wants to earn money
+			- Let’s say Jack wants to earn an extra $1,000/month because he wants to pay down credit-card debt and propose to his girlfriend after he’s debt-free. Great! His first goal, then, is to generate income. As a simple rule of thumb, he should figure out the most profitable market that matches with his skills and pursue it relentlessly.
+			- Jack is a customer-support rep for his fulltime job, so he looks outside to the market to see where he can generate income with his skills. He reads lots of mid-size bloggers via his RSS reader, and he realizes they might need help editing their email newsletters (such as iwillteachyoutoberich. He gets in touch about a paid freelance job. Success! 2 clients in a month start generating an extra $500 each month. Since Jack cares about generating income first, and his passions second, he simply found an easy market that would help him earn more immediately.
+			- Example: Mary is passionate about jewelry
+			- By contrast, Mary is passionate about jewelry. She feels like she has a lot to teach other women about accessorizing the right way. Jewelry is her passion, so she wouldn’t want to, say, start a freelance business helping CRM companies optimize their sales funnels.
+			- Since she already knows she wants to earn income in the jewelry field, she spends her time researching different services she can offer to create that people will pay for. Will she help jewelry makers appear at trunk shows? Will she be the trusted jewelry specialist who delivers to high-end clients? Or can she be a jewelry specialist who handles return or customer-service calls? We don’t know what will be profitable yet — but Mary will find out via rapid experimentation.
+			- Remember: Whenever possible, start with your goals, then let the tactics (How should I reach customers? How much should I charge? What software should I use?) follow.
+			- And, as always, if you don’t know what your goals are, I’ll show you a way to get started anyway. That comes later.
+			- The simplified process: Matching your skills to earning money on the side
+			- This is a simplified process to turn your skills into side income. Later, I’ll get into it in extreme detail. But I encourage you to try to fit the general principles here to your personal situation.
+			- It’s overwhelming to consider that you could literally have 500 potentials ways of earning money. That’s why people love simple SEO or other automatic ways to earn money on the side, which give you a repeatable formula…but rarely work.
+			- Take it one step at a time.
+				- What industry are you in? Oh, finance? Ok, you probably don’t want to be a freelance investment banker. But..hmm….you spend all day doing analyses. How can you use that? Example 1: Excel is a breeze to you. Maybe there are people (like me) who HATE Excel yet need detailed analyses for their business. Could you build models for other people? Example 2: You’re really good at doing valuations of industries. Are there pre-launch founders who need that skill? (Alert: Observant readers will have noticed a BIG RED FLAG over the last example of pre-launch founders: They can’t pay you. So if your goal is to generate revenue, you want to re-think your target market to make sure they can afford to pay you.)
+				- Identify your skills and interests — then think more broadly. The most common thing I hear is, “I’m a really good communicator…but I don’t know how to turn that into a side income.” That’s because you can’t. Nobody hires a “good communicator.” They hire people to solve their problems. What does a good communicator mean, anyway? That’s just a lazy way of saying you haven’t spent the time doing research on the available options you have to channel your skills into something that’s worth money. Are you great at writing press releases? (I’d pay for that.) Are you great at training public speakers? (You might be able to find a specific segment of people who’d pay for that. This one is tricky, though. Can you identify why?) Are you a good communicator because you can speak Chinese? Boom, I’d instantly be a tutor for Chinese kids since their parents will love/trust someone who speaks Chinese — even when tutoring their kids for any subject.
+				- If you don’t have any marketable skills, there are still options. [Etsy](http://www.etsy.com/) is a perfect example of people making great side income — and many of them don’t have any skills that would commonly be considered “valuable.” Yet they do well selling niche products to a niche audience. If you aren’t some professional with software-engineering skills or online-marketing experience, that’s okay. Can you hammer something into a wall? (I’d pay for that.) Can you cook? (I’d also pay for that…infact I am.) Can you walk dogs? Tutor kids in 4th-grade math? Help moms with routine tasks? You can make money on all of these things — good money — without having to have some hard technical skill…as long as you find a market that will pay for them.I want to go a bit deeper.
+			- People are very bad at identifying their own skills. They’ll say things like, “I dunno….I guess I’m good at writing and communication, and, like, general organizational skills…” AMAZING!! HERE’S $4,000/MONTH RETAINER!!!
+			- Get a life, please.
+			- Repeat this over and over: People pay for solutions, not your skills.
+			- For example, I was recently on a webcast where I was suggesting ways for people to earn money on the side, and I mentioned that I hate cooking, am not good at it, and would love it if someone cooked for me. I got an email later that night from someone in SF who said, “Ramit, I can help. I can teach you everything you need to know over one weekend, and you’ll know 3-5 great dishes to cook.” I appreciated the offer, but wrote back, “Thanks for the offer! But you don’t understand. I don’t want to learn — I want someone to do it for me.” He ended up sending me another proposal and I’m now working with him. (I’ll release the details, including the exact email script he used to persuade me, at Earn1k.com.
+			- Again: People have problems. They want solutions. They don’t care what you’re “interested” in. Are they too busy to organize their closet? Do they need someone to help them redesign their website? Maybe they want someone to teach their kid how to play flute.
+			- When you make your offer, you’ll have to deeply understand what the market — your prospective clients — want. And then you’ll be able to turn your service offering into something so compelling….that they’ll actually pay you for it.
+			- Let’s take a look at another example.
+			- Case study: Identifying skills that people will pay for
+			- This is one of the most difficult real-life questions I got from an iwillteachyoutoberich reader, so I thought it’d be instructive to tackle it.
+			- “How would a systems process engineer earn money on the side?”
+			- Warning this will be tough. First of all, what the hell is a systems process engineer? I dug around and discovered that they basically build and manage complex engineering systems. Perfect.
+			- Start off by asking yourself this:
+				- Do I like what I’m doing at all, or do I want to do something totally new? If not, remember, you don’t have to use your job for inspiration or passion — you could just as easily earn money teaching people to surf.
+				- What if you DO like your work as a systems process engineer? Step-by-step: Is it freelance-able directly? No, most likely not.Ok, you love your work but can’t find a freelance job that replicates your full-time work (plus, your boss might not like that). So you dig deeper into the skills you use on a daily basis: You…
+				- Do a little PHP coding
+				- Organize systems
+				- Automate complex processes
+				- Project manage
+				- Create technical documents that can be understood by lay audiences
+				- Lead a teamDon’t get stuck here. Ask yourself: Which of these skills can solve a specific problem? Brainstorm those out.
+				- I could do some PHP coding, but I’m not the best. Don’t censor yourself — put everything down.
+				- I could help businesses automate and streamline their income-generating processes. Vague, but okay.
+				- I could manage projects and lead teams towards deadlines / organizing. This is super-vague, any 22-year-old college grad would say he could do the same, and it doesn’t take advantage of my specific skills. Skip this.
+				- I could be a technical writer and help companies demystify their technical-support documents. I could even rewrite the technical portions of their websites to make them more comprehensible to normal people, especially companies in the consumer-energy field. Very promising, especially since I follow a few of these companies online.Each of these individually is a potentially viable freelance trade – can you pick one and do it? The answer should be YES/NO to each. Put “YES” if even remotely feasible.
+				- PHP coding: YES
+				- Automate systems: NO (too vague for me to know where to start)
+				- Project manage: NO (too vague)
+				- Technical writer: YESExcellent. Now you have a list of skills that might potentially be profitable. Optional: Combine skills together to make a more compelling, more niche offer.
+			- You can often charge more and help clients more by packaging offers. In this case, it’s not very relevant, since technical writing and PHP coding are pretty different. But one of the people who helps on iwillteachyoutoberich pitched me to do video editing + marketing. Perfect fit. I hired him.
+			- Next step: How can you prove to people that you’re knowledgeable enough for them to pay you?
+			- This is something I’ve been encountering as I’ve been trying to hire a sysadmin for my blog. I’ve gotten a lot of recommendations, and the first thing I do when evaluating someone is look at their portfolio and past clients. At least half of potential hires don’t have this section. Easy solution! I move on to someone who does.
+				- For our systems engineer, can he point to a PHP project he did on the side?
+				- What about a sample of technical writing where he turned something very complicated into something totally palatable?Having one portfolio entry increases your odds of landing a client by at least 200%. Having 5 increases it significantly more.
+			- Which market should he target?
+			- People tend to think about the market they work in only. But remember, virtually every industry needs the same skills — marketing, sales, engineering, etc. Our systems engineer shouldn’t limit himself to his field (energy). With his skills, he can limit it to technical companies, since they’re the ones most likely to need PHP consulting and technical writing. But to broaden his view and find more potential prospects, he could:
+				- Examine the companies he follows in magazines, blog readers, and TV. Does he love reading about technical blogs about how mom-and-pop shops automate their sales? (There really are a lot of these.) They might be the perfect target to reach out to.
+				- Examine the community of people he interacts with. Does he have a lot of friends or professional acquaintances who are all writing code for XXX purpose? He might: It’s not surprising that people with similar interests hang out together, so if your hobby is writing PHP, you may very well have some friends who need the service.Our systems engineer has now taken his full-time job, excavated it to find skills that he might be able to use on the side, eliminated the unattractive ones, and limited the potential outreach to 4-10 companies he can reach out to.
+			- The next steps would be understanding the needs of his prospects — to see if there is indeed a match with his skills — and crafting his service offering. We’ll get to all of these.But for now, notice the takeaways of how to really think deeply about your skills, which may or may not have anything to do with your full-time job, and systematically narrow them down to something that people might pay for.
+			- * * *If you want to learn more about turning your skills into paying clients — with materials, scripts, tactics, and techniques that you won’t see on the blog, join my private Earn1K insider’s list:
+			- Join my private listGet your first 3 paying clients (Can’t see the form? Click here.)This post is part of a series on Earning More. For more articles on how to earn more money, follow the links below.
+			- « “But starting a freelance business is too risky!” and other reasons people don’t make more moneyEarning MoreBut I don’t want to take a SECOND full-time job to make a second income »
+		- Sales jobs
+			- Sales Jobs
+				- Securities, commodities, and financial services sales agents top the list, with mean annual salaries of $102,510.
+				- sales engineers, who can also expect to pull in six figures
+				- sales representatives for wholesale, manufacturing, technical, and scientific products, who can expect annual salaries just over $85,000.
+				- First-line supervisors of non-retail sales workers
+				- real estate brokers–those individually licensed to assist clients in the buying, selling, and renting of property–round out the top five.
+				- Consulting Sales
+					- Base Salary: $120,000 to $250,000
+					- Commissions: $25,000 to $3 million
+				- Consumer Packaged Goods Sales
+					- Base Salary: $150,000 to $180,000
+					- Commissions: $100,000 to $150,000
+				- Digital Media Advertising Sales
+					- Base Salary: $170,000 to $180,000
+					- Commissions: $130,000 to $220,000
+				- Medical-Device Sales
+				- Base Salary: $0 to $70,000
+				- Commissions: $200,000 to $300,000
+				- Outsourced Services
+				- Base Salary: $150,000 to $200,000
+				- Commissions: $200,000 to $500,000
+				- Software Sales
+				- Base Salary: $80,000 to $100,000
+				- Commissions: $250,000 to $1 million
+				- Startup Business Development
+				- Base Salary: $150,000
+				- Commissions: Unlimited
+				- Telecommunications Sales
+				- Base Salary: $70,000 to $100,000
+				- Commissions: $100,000 to $200,000 IT Security Sales
+			- Government Technology Sales
+			- Electronic Medical Record (EMR) Systems Sales
+			- Bioinformatics Sales
+			- Contract Research Organizations (CRO) Sales
+	- Internet Marketing
+	    collapsed:: true
+		- Assorted
+			- Self-Liquidating Offer
+			  collapsed:: true
+				- Notes 1
+				  collapsed:: true
+					- If you review the first video, you'll see you're forgetting a step. The
+					- progression Ryan laid out was:
+					- SLO Continuity
+					- Small Upsell
+					- V
+					- Big Ticket
+					- Price-wise, you'd be looking at —$27, $67-97, $497-997
+					- The only ones who see the big ticket offer are the ones who have
+					- already purchased the smaller upsell.
+					- And once set up, most of the process can be handled by systems
+					- and software, i_e_ record the webinar once, show it forever.
+					- At another point, in the second video I believe, Ryan poses the
+					- question - how many people could you put in the continuity if the
+					- entire product funnel was treated as a self-liquidating offer?
+					- Over time, some percentage will buy all three offers:
+					- $27 + $97 + $997 = $1 , 121 - $27(SLO already assumed) = $1 ,094
+					- If selling expenses (ppC, affiliate commissions, etc.) are 50%, that
+					- leaves roughly $547 to buy customers with.
+					- If the original SLO takes $27 to get a customer, that's 20 customers
+					- that you can acquire, just from that one original uber-buyer,
+					- If those 20 stay 3 months on average, that 20 x 3 x $27 = $1 ,620
+					- revenue on a $27 ad spend. Add the original buyer for 3 months at
+					- S27 and vou max thinas out at Sl. 700 The ROI on this best-case
+			- Networking
+			  collapsed:: true
+				- Questions to ask business-oriented people
+					- I'm going to teach you two questions
+					- that, if you put them into use at parties,
+					- events, and conferences, will change
+					- your life forever and will grow your
+					- network faster than you ever thought
+					- possible:
+					- 1. What's most exciting for you right now in your life/business?
+					- 2. What's challenging for you in your life/business right now?
+			- Direct vs Indirect selling
+			  collapsed:: true
+				- Mainly dependent on how aware they are of your product, your type of solution and even of their own problem
+				- Of course, there are other ways to explain why you might want to use one kind of
+				- approach or the other. For instance, you'll hear that directly stating the benefit or get-
+				- ting right to your Offer in the lead works best when
+				- .You're selling a product that's easy to understand.
+				- .You can make a promise that's very large and easily accepted.
+				- •You've got an exceptionally good deal or guarantee to Offer.
+				- .Your customer knows and trusts you and deals with you often.
+				- .You've made a product improvement your market was already waiting
+			- Internet Business niche: levels of problems from beginner to intermediate
+			  collapsed:: true
+				- 1) Frustrated, overwhelmed, doesn't know who to trust or where to start
+				- 2) Doesn't know which system or business model to follow
+				- 3) Is easily distracted and procrastinates
+				- 4) Doesn't know how to get traffic
+				- 5) Doesn't know how to build a list and monetise the leads
+				- 6) Desires full-time income online (passive reveneu exceeds lifestyle needs). Wants to work on projects they are excited about
+			- Backlinking strategy
+			  collapsed:: true
+				- Preview of the document saved on Mon, 25 Apr 2016 04:34:49 +0100
+				- [Step #3: Reach Out and Get Your LinksHere’s why most people struggle with link building:They think that the only way to proactively build links is to blast their site with phony blog comments and spammy profile links.Fortunately, that’s far from the truth.When you have a piece of Wow Content, you’ll find that people actually WANT to link to you.You just have to get those people to see it.Here’s how.Strategy #1: Resource Page Link BuildingResource pages are a link building goldmine.What are resources pages?They’re pages exist to link out to helpful resources on other sites.](null)Here’s an example from SPI:
+				- Think about this for a second:
+				- You’ve got a page that links out to helpful resources…
+				- …and you just created a helpful resource.
+				- Can you say match made in heaven?
+				- Here’s exactly how to get backlinks from resource pages:
+				- Step #1: Find Resource Pages In Your Niche
+				- Most resource pages have footprints that you can use to find them at scale.
+				- Here are some search strings to try:
+					- “keyword” + inurl:resources
+					- “keyword” + inurl:links
+					- “keyword” + “helpful resources”
+					- “keyword” + “useful links”Going back to our gardening example, here’s a search string that you’d want to use:
+				- In about 5 seconds I found over 150,000 pages that just might want to link to my Wow Content.
+				- Of course, a good chunk of these results won’t make sense for one reason or another (for example, pages that aren’t actually about gardening).
+				- But this number gives you an idea of how many potential resource page links are there for the taking.
+				- Step #2: Evaluate the Page
+				- Click on one of the pages in the results.
+				- Here’s one that I found from my gardening search:
+				- Here are a few questions you want to ask yourself when sizing up a resource page:
+					- Is this on a legit site? Or does it look shady or abandoned?
+					- Is this site relevant to my niche?
+					- Is the site offering up link exchanges (common with resource pages)?
+					- Does the page have dofollowed links out to other sites?
+					- Does the site have decent SEO metrics, especially Domain Authority (you can also look at Page Authority)?
+					- Would a link to your Wow Content add value to that page?In the case of the page above, it looks great. It’s a super-niche relevant, DA51 site.And a link to my awesome gardening resource would fit that page like a glove.
+				- Now it’s time for step #3…
+				- Step #3: Ask For Your Link
+				- Once you’ve found a page that seems like a good fit, it’s time to reach out and ask for a link.
+				- Here’s the script that I recommend:
+				- Subject: Your resource page
+				- Hi NAME,
+				- I stumbled on your awesome TOPIC resource page today. Awesome work!
+				- I actually just put the finishing touches on a BRIEF DESCRIPTION OF WOW CONTENT:URL.
+				- It might make a nice addition to your page. Either way, keep up the great work you’re doing with SITE.
+				- I’ve found that this approach and script convert at 5-10% (depending on the niche).
+				- Trust me: in the world of email outreach link building, 5-10% is AWESOME.
+				- Plus, these are Grade-A white hat backlinks. The type of links that actually make a long-term difference in your site’s rankings.
+				- Strategy #2: Broken Link Building
+				- Want to take resource page link building to the next level?
+				- Then broken link building is one strategy you want to start leveraging today.
+				- What is it?
+				- Instead of begging for links from site owners…
+				- …you find broken links on their site first.
+				- And then beg for your link
+				- When you point out a broken link to someone — and offer your Wow Content as a replacement — they’re MUCH more likely to add your link.
+				- Let me break it down for you, step-by-step.
+				- Step #1: Find Broken Links
+				- When you find a broken link on a page you want to get a link from, you’re good as gold.
+				- The only problem is:
+				- Finding broken links can be a HUGE pain.
+				- I’m not going to lie to you: this step in the process does take some work. But the conversion rate you’ll get from BLB vs. straight up link begging is worth the trouble.
+				- Here’s how to find them:
+				- Resource Pages + Check My Links
+				- Remember all those resource pages you found earlier?
+				- Well before you reach out and ask for a link, check to see if there are any broken links on that page.
+				- For example, here’s a PR4 page resource page I found using the search string “gardening” + inurl:links.
+				- I could simply ask for a link on that page…and that would convert pretty well.
+				- But I can easily double or triple my conversion rate by pointing out a broken link or two.
+				- The easiest way to find broken links on a page is to run the free Check My Links extension for Chrome.
+				- As you can see, when I ran Check My Links on that page, it found a broken link:
+				- When I click on that link, sure enough, it’s a 404 page pointing to a page that used to have information about the US Botanical Garden in Washington DC:
+				- Rinse and repeat with all of the resource pages that you come across.
+				- OSE Top Pages
+				- Another awesome way to find broken links is with a little-known feature of Open Site Explorer.
+				- First, grab the homepage URL of a site you’d like to get a link from and pop it into OSE:
+				- Next, click on the “Top Pages” tab. This will sort the pages on that site by Page Authority.
+				- Finally, choose “4xx” from the dropdown menu “Show pages with status…”
+				- This will give you a list of authoritative pages on that site that are broken.
+				- For example, Inc.com has a PA72 404 page that used to contain links to their marketing guides:
+				- So what do you DO with this link?
+				- You find all of the pages that link to this page.
+				- You can use Majestic SEO, Open Site Explorer or Ahrefs for this step.
+				- I prefer ahrefs.
+				- Just enter the 404 page’s URL into the tool…
+				- …and you’ll get a list of pages that link to the broken link you just found.
+				- Now it’s time to get your links.
+				- Step #2: Reach Out and Get Your Links
+				- Finally, email the person that runs the page with the broken link with this script:
+				- Subject: Broken link at SITE
+				- Hi NAME,
+				- I stumbled on your awesome TOPIC resource page today. Awesome work!
+				- Just wanted to let you know that I found a few dead links:URL #1URL #2
+				- Also, I actually just put the finishing touches on a BRIEF DESCRIPTION OF WOW CONTENT:URL.
+				- It might make a nice addition to your page. Either way, keep up the great work you’re doing with SITE.
+				- As you can see, it’s very similar to the resource page link building script. The only difference is that you add a touch of value before your pitch.
+				- Strategy #3: Reverse Engineering
+				- Next, it’s time to tap into an old school link building strategy that never goes out of style: reverse engineering.
+				- Here’s the 3-step process:
+				- Step #1: Identify an Authoritative Page
+				- First, you need to find the right page to reverse engineer.
+				- The “right” page is a relevant page in your industry with lots of white hat links.
+				- Here are a few places to find them:
+				- Google’s Top 20
+				- Just search for keywords that you’d like to rank for and see what shows up. Generally, pages that rank for competitive keywords have some link authority behind them.
+				- BuzzSumo
+				- BuzzSumo shows you content that’s generated a lot of social shares. Generally, content that’s racked up a lot of social shares has also acquired some backlinks to boot.
+				- Open Site Explorer’s “Top Pages”
+				- This is the tab in OSE that I mentioned earlier. Instead of looking for 404 pages, you’re simply looking for pages that have a lot of links pointing to them.
+				- Content You Used to Inspire Your Wow Content
+				- You already did the hard work of finding popular content in your industry. And you made something even better. Sites linking to the content you found in Step #1 from this post make PERFECT link opportunities.
+				- Step #2: Find Their (Quality) Links
+				- Next, it’s time to find the links pointing to the pages that you found.
+				- First, pop the URL into your link analysis tool of choice.
+				- Then identify any of their links that you may also be able to get your hands on (for example, an editorial link on a resource page).
+				- Word of Warning: You want to be super careful that you reverse engineer the right links. Keep in mind that just because a site is ranking above you today, doesn’t mean they’ll be there tomorrow. Use the criteria I outlined under the “First, What Still Works From The Original “THE Backlinking Strategy That Works”?” section of this post to make sure you’re only reverse engineering white hat backlinks.
+				- Step #3: Grab As Many Quality Links as You Can
+				- Now it’s time to grab the links that your competitors have. Your approach will depend on the type of link.
+				- For example, if it’s from a guest post, you’ll need to also write a guest post. If it’s a resource page link, you’ll need a piece of Wow Content that would make sense for that page.
+				- For example, let’s say you wanted to reverse engineer the Wow Content I mentioned earlier: 100+ Ways to Conserve Water.
+				- In about 15 seconds I found a niche-relevant resource page about water conservation linking to that page:
+				- Sure enough, that page has several broken links…making it a prime broken link building opportunity.
+				- Repeat the process until you run out of potential link opportunities.
+				- Strategy #4: Infographics (With a Twist)
+				- Infographic marketing — when done right — is easily one of the most scalable white hat link building strategies on the planet…
+				- …Especially when you add the twist I’m about to share with you.
+				- Now I could write an entire post about how to create and design an infographic (in fact, I did).
+				- But here’s the thing:
+				- Creating a winning infographic isn’t very different than any other piece of Wow Content. The difference is how you promote it.
+				- And now I’m going to show you how to turn an infographic into high-quality links using the 5-step Guestographic Method.
+				- Step #1: Publish an Awesome “Wow Content” Infographic on Your Site
+				- This step is pretty straightforward: just follow steps #1 and #2 from this post. The only difference is that your Wow Content will be an infographic instead of a blog post or article.
+				- Step #2: Find People That Want to See Your Infographic
+				- Don’t overthink this:
+				- Once you have your infographic in hand, it’s time to show it to people that would want to check it out.
+				- Who are those people, exactly?
+				- Bloggers that write about your infographic’s topic.
+				- For example, let’s say you just published an infographic about the paleo diet.
+				- Head over to Google and start typing “paleo diet” into the search field. Grab the top 20 results for the keyword “paleo diet”…and anything else Google Suggest throws at you:
+				- Step #3: Send Your Infographic
+				- Now it’s time to reach out and pitch your infographic to the people you just found.
+				- You’re not asking for anything at this point. You just want to gauge their interest.
+				- Here’s the word-for-word script to send them. I’m going to use an infographic about paleo desserts as an example.
+				- Subject: Paleo desserts
+				- Hey Pat,
+				- I was looking for some paleo recipes this morning when I came across your excellent post about paleo side dishes.
+				- I actually just put together an infographic about paleo desserts last week.
+				- As someone that’s interested in paleo recipes, I thought you might get a kick out of it. Let me know if you want me to send it over.
+				- Step #4: Send Your Infographic (with a bribe)
+				- When they get back to you saying “sure, send it over”, it’s time to send them this script:
+				- Cool. Here’s the infographic:URL
+				- Also, let me know if you ever want to publish this infographic on your site. I’ll be happy to write a unique introduction just for you.
+				- Why the unique intro?
+				- Well when someone wants to publish an infographic on their site, there’s a HUGE barrier that prevents them from pulling the trigger:
+				- The fact that they have to write a unique introduction to go along with the infographic.
+				- After all, they can’t simply copy and paste your infographic into WordPress and call it a day.
+				- But when you offer to write that unique introduction for them, you remove that barrier and make their life easier.
+				- Step #5: Write The Intro and Get Some Awesome Links
+				- Finally, it’s time to write a high-quality 200-300 word introduction to accompany the infographic.
+				- Make sure to add a link to your infographic in the intro.
+				- Here’s an example of a Guestographic backlink that I built a while back:
+				- As you can see, contextual links like that are the type of squeaky clean editorial backlinks that Google likes to see today.
+				- The Next Step: Special Bonus Section (For SPI Readers Only)
+				- I want to make sure you get the most out of today’s post.
+				- That’s why I put together an SPI-exclusive bonus section.
+				- Here are the free bonus resources I’ve got for you today:
+				- First, a step-by-step video case study of how I used the techniques from this post to increase my organic traffic by 110% in 2-weeks.
+				- Second, a step-by-step Guestographic Method checklist (one of the most powerful link building techniques from today’s post).
+				- Third, My personal swipe file of 25 awesome white hat link building tutorials that will take your link building game to the next level.
+				- Sound good?
+				- Sign up here to get access to the bonus resources.
+		- Habit Laboratory
+			- To do
+				- To DO
+				  collapsed:: true
+					- Create a Q&A page for content ideas
+						- Danger & Play example
+							- Before posting your question. subscribe to my newsletter to receive free updates and other
+							- exclusive content, It's free. and I dont spam my list with marketing or other nonsense
+							- (You can subscribe easily by entering your email address into the box below)
+							- SUBSCRIBE
+							- Feel free to post your questions and comments anonymously.
+							- If you read a question and think you can provide a helpful answer, please do so. We are
+							- building a community of like-minded men and it's vital to help one another out
+							- Also, check out the nearly 400 posts that you can read for free.
+							- There are also nearly two Cozen podcasts.
+							- The posts and podcasts cover everything from personal finance to testosterone replacement
+							- therapy to introversion to meeting women.
+							- Once you've subscribed to my newsletter and done some homework post your problem for
+							- me and others to troubleshoot
+					- Create internal affiliate links so I can track where traffic comes
+						- Create internal affiliate links so I can track where traffic comes
+						- track Facebook referrals, twitter etc
+						- Eg one for podcast, another per guest post etc
+						- Homepage - find conversion rates eg >1%
+						- Vary post schedule and frequency (testing)
+					- Finding high quality articles to rewrite/idea seed
+						- Choosing a niche and keyword research --> NOT YOUR USUAL ADWORDS KEYWORD TOOL RE-RE-REPEATED TUTORIAL -->
+						- Go here Alexa Top 500 Global Sites
+						- Alexa has sorted all the sites according to their alexa rank/traffic here.
+						- > By the way this is a free scraper that scrapes the top 100k sites on alexa for whatever keywords that you are looking for.
+						- Alexa Scraper
+						- Now click on "BY CATEGORY" tab i.e. go here--> Alexa - Top Sites by Category: Top
+						- Alexa has sorted all sites by traffic and category i.e in the health section, they have sorted all health sites according to their alexa rank.
+						- Now navigate through those categories (if you already have a niche/existing site in your mind then navigate through your site category).
+						- Now note down sites in notepad/XL... for example, if you went to health section, then keep noting sites in a notepad until you reached to a minimum alexa rank of 150k.
+						- Actually, the trick is finding big sites in your niche those have little content on them.
+						- Now here comes a question.
+						- Quote:
+						- IF I AM INTERESTED IN HEALTH NICHE THEN WHY NOT PICK Webmd.com only? That is the main site.
+						- Answer is -> Content that gets loved by people. Putting 10 thousand articles on a site gets it a hell load of traffic but who wants to spend that much? Why not just put 100 articles on site and get too much traffic?
+						- Take a look at this site --> Life'd
+						- Site has a total of 125 articles and it was sold for $205000
+						- https://flippa.com/2857289-lifestyle...000-revenue-mo
+						- ^^ site had content that was loved by people. Are not there many lifestyle magazines that have over 1000 articles on them? ALSO written by the so called "magazine quality" writers or whatever you say!
+						- If ^^ is true then why LifeD got too much traffic? Because of seo alone? NOPE. Definetely NOT.
+						- Check link profile of LifeD... it doesn't have many links.
+						- The only answer is, because users love the site more than anything. We are trying to do the same.
+						- Anyway, back to Alexa thing
+						- So you noted all sites (none having an alexa bigger than 150k) in your desired niche in notepad (or try with all the niches).
+						- Now fire Market Samurai (I don't know of a good replacement. It comes for free for 7 days and if you have more than 1 laptop then for 7 days more, or if you format the system, then for another 7 days OR fuck shit and buy it for 100$ )
+						- Go to "seo competition" section of market samurai
+						- Now click on "Add custom urls"
+						- When you will click on "Add custom urls", a box will open (as in above image).
+						- Put your all urls there.... Now Market samurai will show many stats about the domains.
+						- Look at the column named as IC.
+						- IC is the index count of a site. It gives us an idea about how many articles are there on a site (it shows results as per bing.com but fulfills our purpose).
+						- If a site has 500 IC then you can assume that the site has about 200 articles (just an idea. I know you can track exact count but who has that much time to check exact count of articles for every site?)
+						- Now keep doing ^^ until and unless you got a site that has an IC of less than 1000 (the lesser you can find, the better).
+						- Suppose you got 2 sites that have IC less than 1000.
+						- BINGO! Great chances that you just hit a jackpot!
+						- If the site is not a service providing site, then high chances that the site gets nice traffic because of nice content only.
+						- What to do now?
+						- 1) Instead of using Scrapebox to find pages with High PR, you can use opensiteexplorer to find pages with maximum number of inbound links. This will give a better understanding of the articles that has been shared and linked more. If you have a PRO account, you can see the fb, tweets and G+ as well.
+						- OR
+						- Here's the tool I made for getting social signals for a list of urls. Grab urls from scrapebox or sitemap.xml if it's available. Paste them in the tool and it will give you likes, tweets, g+, etc for the page. I think it's a better indicator for interest level than total backlinks. You can put as many urls in as you wish.
+						- http://overeatingsolution.com/socialsignals.html
+						- or
+						- OR
+						- 2) Fire Scrapebox.
+						- and do this -->
+						- and now harvest for -->site:domain_which_you_searched_above
+						- Now you will get all urls from the website you finalized from alexa.
+						- Do ^^ for each domain that had less than 150K and less than 1000 IC.
+						- Now you have found almost all of the urls from those sites those were already having nice traffic and low count of articles.
+						- Now what?
+						- Suppose that scrapebox gave you 200 urls from the site.
+						- Now you can do 2 things.
+						- 1. If you can afford, then give all those 200 urls to your writer and tell him to write an article for the same topic as given there (also tell him to use a different title than source url and don't use that url as the only source for writing the article. He should also search for similar topics on the web)
+						- 2. If you can not afford that many articles then -->
+						- check for page PR of all those urls and pick urls that have high PR. Suppose you got
+						- 40 PR4 urls
+						- 60 PR3 urls
+						- 50 PR2 urls
+						- and 50 PR1-0 urls
+						- then pick first 40 PR4 urls or 40 PR4 + 60 PR3 (whatever you can afford) and give those urls to your writer for writing an article for the topic on each url. (The trick is, higher the PR, higher the chances that it is a popular article.)
+						- Next, we dont stop here. We have to get more cool topics. Search for "your_niche magazine" in google OR pick the biggest site for your niche.
+						- Suppose you are interested in WEIGHT LOSS and you went to hxxp://www.fitnessmagazine.com/
+						- then search for --> site:hxxp://www.fitnessmagazine.com/ in scrapebox harvester and get all urls and check for PR of harvested urls and get articles written for urls, those have a high PR.
+						- Actually, higher the PR, higher the chances that it is a popular article.
+						- That is how, we get site_niche/site_topics for our site.
+					- Google Alerts
+						- Google Alerts
+							- Once a day email alerts, at least 100 URL alerts a day
+							- Keywords for
+								- Product reviews - "affiliate product" "affiliate product review"
+								- Niche keywords
+								- Competitor products
+							- Follow-up with an insightful/helpful comment with backlink (anchor text variation too)
+							- The Keywords
+								- Aaron Sollesse
+								- aaron solesse
+								- aaron sollese
+								- Aaron solees
+								- aron sollesse
+								- aron sollese
+								- aron solesse
+								- Habit laboratory
+								- habitlab
+								- habit lab
+								- habit hacker
+								- habit hacking
+						- [https://app.asana.com/0/13939091628542/29626259247652](https://app.asana.com/0/13939091628542/29626259247652)
+						- [https://workflowy.com/#/f1902e88ae44](https://workflowy.com/#/f1902e88ae44)
+					- Claim domain + real name for all social media and popular TLDs
+					- IFTTT recipe for content spreadsheet
+						- Your IF Recipe ID 21466821 has been automatically turned off.
+						- Trigger
+						- WordPress - Any new post
+						- Action
+						- Google Drive - Add row to spreadsheet
+						- Description
+						- If any new post on your blog, then add row to spreadsheet in aaronsollesse@gmail.com’s Google Drive
+					- Resources
+						- Omnidazzle – to draw on your screen (free)
+						- Bamboo Pen and Tablet - This is the pen and tablet I use to make drawing on the screen extremely easy.
+						- [SplashEO (for Awesome Intro and Outro Graphics)](http://www.smartpassiveincome.com/splasheo): If you want professional looking intros and outros for your videos, this is the place to go. Gideon Shalwick, the owner, is a good friend and I was totally blown away from the quality and turnaround time. Check it out!
+						- [Pat’s Step-by-Step How to Start a Podcast Tutorial](http://www.smartpassiveincome.com/how-to-start-a-podcast-podcasting-tutorial/) – My 6 video, FREE step by step tutorial that will help you get your podcast up and running as soon as possible! Several people have used this tutorial to get their first podcasts on iTunes.
+						- Music Radio Creative – This is an AWESOME company (I met them in person) where you can get a high-quality, custom intro and outro for your podcast. You can choose from a whole bunch of different styles and voices. The intro to the AskPat podcast was created by Music Radio Creative.
+					- Thank you for commenting page - redirect for first-time commenters
+						- https://i.imgur.com/KTTwPSo.png
+						- Thank You for Commenting
+							- Thank you for commenting, I really appreciate it.
+							- Most people dont take much initiative, even when it comes to doing a small thing like leaving a
+							- comment. Far less than 1 out of 100 people who read online leave comments or do any kind of
+							- follow-up on what they read.
+							- I'm glad you're not one of those people.
+							- If you're new to the site I recommend that you check out the following pages:
+							- Start by reading some of the most popular posts here.
+							- • Learn what the blog is about
+							- • Check out my self-discipline eBook 30 Days of Discipline.
+							- • Feel free to send me a message by using the GQ.nt@Gt.fQr.m-
+							- Be sure to connect with Bold and Determined on:
+							- • Facebook
+							- Twitter
+							- Thanks for stopping by and have a nice day.
+							- -Victor Pride
+					- Twitter background should show logo, self pic, slogan, CTA and domain
+					- Twitter.com offers owners the ability to keep track of what customers say. Google alerts can notify you when a Web site mentions your company name.
+						- setup rss
+				- Webpages
+				  collapsed:: true
+					- 4) Contact me
+						- 4) contact me
+						- 4) contact me
+						- Contact form
+						- - create contact page with (all questions may be used as a blog post but you will remain anonymous
+						- also welcome are topics to cover - or leave a comment?
+						- I especially welcome:
+						- Compliments (who doesn't like their ego being stroked?)
+						- Criticism (try to be constructive)
+						- Request for covering certain habits or goals
+						- Also be aware that any comments made may become turned into a piece of content (of course I won't reveal your identity unless you specifically tell me you don't mind)
+						- WP-ContactForm which is basically a contact form, really simply plugin that works perfectly. For anyone who has tried to create a contact form on a normal website, you will realize just how hard it can be.
+							- Contact information.
+						- I list my email, Skype ID, Twitter, LinkedIn, Facebook, and Google Plus.
+							- Contact form.
+						- Sometimes people prefer to email you directly from the site. Include a contact form by using the [Contact Form 7](http://wordpress.org/extend/plugins/contact-form-7/) and[Really Simple CAPTCHA](http://wordpress.org/extend/plugins/really-simple-captcha/) plugins.
+		- Employee Management
+		  collapsed:: true
+			- Agile Scrum Development
+			  collapsed:: true
+				- Pros/Cons
+				  collapsed:: true
+					- Pros
+						- Visual Burndown Chart is great for quick daily reporting without a meeting + allows prediction of time til project complete
+						- Daily Scrum 3 questions can be done via feedback survey or Asana
+						- Sprints (2-30 day timeboxing) are a great idea
+					- Cons
+						- Ignores the benefits of SOPs
+						- Good tactic but don't forget it's not strategy
+						- In-person daily meetings only necessary if high colloboration between team (ie software dev)
+				- Hello everyone, we're going to trial doing daily reports as a way to increase feedback and communication between me and yourselves.
+				  collapsed:: true
+					- ontiinually get feedback from customers during development process (Test-driven development / iterative and incremental development)
+					- Sprints (2-30 days) an ends with a shippable product (time boxed)
+						- By only having it be max 30 days, you can easily see where project planning has gone wrong
+						- Also Burndown Chart allows easy measuring of when project will be done
+						- Simply update  at end of the day how many hours left are estimated in the User Story
+					- Manage Product Backlog (wish list for making a great product)
+						- Product Backlog prioritises the features necessary. Move the high priority items into the Release Backlog. Then into Sprint Backlog
+						- Each feature is called a User Story as it's focused on what the user wants. Alter the size of the User Story images to represent the size of project
+							- Written from perspective of customer
+							- As a (role), I want (feature) so that (benefit)
+						- Need a product owner (person with vision for product) to decide the particular User Stories for the Sprint/Release Backlog (and those then get prioritised also
+							- Although the agile PO prioritizes the product backlog during the sprint planning meeting, the team selects the amount of work they believe they can do during each sprint, and how many sprints will be required.
+							- The product owner does not get to say, "We have four sprints left, therefore you must do one-fourth of the product backlog this sprint." The Scrum product owner's job is to motivate the team with a clear, elevating goal. Team members know best what they are capable of, and so they select which user stories from the top of the product backlog they can commit to delivering during any sprint.
+							- In return for the Scrum team's commitment to completing the selected user stories from the top of the product backlog, the product owner makes a reciprocal commitment to not throw new requirements at the team during the sprint
+					- Time required for each item is estimated and they may get broken down into smaller few-hour items
+					- Scrum master (project manager) + scrum team do Sprint planning
+				- During Sprint
+				  collapsed:: true
+					- Record all progress in Sprint Backlog + puts them into Sprint Burndown Graph
+					- Have Testers use the Developers product throughout
+					- https://i.imgur.com/2tQdnOZ.png
+					- End-of-Sprint Review - present the deliverables + get feedback from customers
+					- Retrospective meeting - what went well + what could be improved
+					- https://i.imgur.com/gHRUobl.png
+				- Daily Stand-Up (meeting) / Daily Scrum
+				  collapsed:: true
+					- with 3 questions to each person
+						- What did you do yesterday?
+						- What will you do today
+						- What obstacles are impeding your progress?
+				- Facilitator
+				  collapsed:: true
+					- Purpose
+						- vital for coordination, by keeping everyone up to date and preventing critical knowledge 'falling through the cracks' (very important in high-coordination groups)
+						- Allows self-organisation in teams (this is disrupted if an atendee is the team's boss though) perhaps the most common mistake is to turn the daily meeting into a "status report" with each member reporting progress to the same person (the team's manager, or the appointed Scrum Master) - exchanges in the daily meeting should be on a peer-to-peer basis
+						- During Sprint execution, team members develop an intrinsic interest in shared goals and learn to manage each other to achieve them. The natural human tendency to be accountable to a peer group contradicts years of habit for workers. Allowing a team to become self-propelled, rather than manipulated through extrinsic punishments and rewards, contradicts years of habit for some managers. The Scrum Master’s observation and persuasion skills increase the probability of success, despite the initial discomfort.
+					- A facilitator is a person who chooses or is given the explicit role of conducting a meeting. This role usually entails that the facilitator will take little part in the discussions on the meeting's topic, but will focus primarily on creating the conditions for effective group processes e.g. "We'll discuss this further after the meting
+				- the structure of the meeting is meant to promote follow-up conversation, as well as to identify issues before they become too problematic. The practice also promotes closer working relationships in its frequency, need for follow-up conversations and short structure, which in turn result in a higher rate of knowledge transfer
+				  collapsed:: true
+					- Format either:
+						- Google form one per business
+							- + Simple to just open one sheet for a whole timeline of biz.
+							- - May be more difficult to find an issues that I know happened x days ago. Businesses evolve and split into other businesses which means half of project may be in a different doc. Can get big too fast and require new docs.
+						- Google form - one per employee
+							- + Easy to see and search for past work done by or issues brought up by any employee. Great overview of how useful an employee has been and the conversation. Can use Asana comments to give feedback to report comments
+							- - As time goes on it will get long to scroll to the bottom?
+						- Asana task
+							- + Adapts easily
+							- - No template for writing in comments. Difficult to scroll to even a week back (especially if the manager has given feedback).
+				- Agile manifesto
+				- 1. Customer satisfaction by rapid delivery of useful software
+				- 2. Welcome changing requirements, even late in development
+				- 3. Working software is delivered frequently (weeks rather than months)
+				- 4. Working software is the principal measure of progress
+				- 5. Sustainable development, able to maintain a constant pace
+				- 6. Close, daily cooperation between business people and developers
+				- 7. Face-to-face conversation is the best form of communication (co-location)
+				- 10. Simplicity—the art of maximizing the amount of work not done—is essential
+				- 11. Self-organizing teams
+				- Methods exist on a continuum from adaptive to predictive.[15] Agile methods lie on the adaptive side of this continuum. One key of adaptive development methods is a "[rolling wave](http://en.wikipedia.org/wiki/Rolling_Wave_planning)" approach to schedule planning, which identifies milestones but leaves flexibility in the path to reach them, and also allows for the milestones themselves to change.[16] Adaptive methods focus on adapting quickly to changing realities. When the needs of a project change, an adaptive team changes as well.
+				- An adaptive team will have difficulty describing exactly what will happen in the future. The further away a date is, the more vague an adaptive method will be about what will happen on that date. An adaptive team cannot report exactly what tasks they will do next week, but only which features they plan for next month. When asked about a release six months from now, an adaptive team might be able to report only the mission statement for the release, or a statement of expected value vs. cost.
+				- Predictive methods, in contrast, focus on analysing and planning the future in detail and cater for known risks. In the extremes, a predictive team can report exactly what features and tasks are planned for the entire length of the development process. Predictive methods rely on effective early phase analysis and if this goes very wrong, the project may have difficulty changing direction. Predictive teams will often institute a change control board to ensure that only the most valuable changes are considered.
+				- Rolling Wave Planning is the process of [project planning](https://en.wikipedia.org/wiki/Project_planning) in waves as the project proceeds and later details become clearer.[1] Work to be done in the near term is based on high level assumptions; also, high level milestones are set. As the project progresses, the risks, assumptions, and milestones originally identified become more defined and reliable. One would use Rolling Wave Planning in an instance where there is an extremely tight schedule or timeline to adhere to; whereas more thorough planning would have placed the schedule into an unacceptable negative schedule variance.
+				- [https://en.wikipedia.org/wiki/Scrum_(software_development)](https://en.wikipedia.org/wiki/Scrum_(software_development))
+				- [https://en.wikipedia.org/wiki/Lean_software_development](https://en.wikipedia.org/wiki/Lean_software_development)
+				- Lean development can be summarized by seven principles, very close in concept to lean manufacturing principles:
+					- [Eliminate waste](https://en.wikipedia.org/wiki/Lean_software_development#Eliminate_waste)
+					- [Amplify learning](https://en.wikipedia.org/wiki/Lean_software_development#Amplify_learning)
+					- [Decide as late as possible](https://en.wikipedia.org/wiki/Lean_software_development#Decide_as_late_as_possible)
+					- [Deliver as fast as possible](https://en.wikipedia.org/wiki/Lean_software_development#Deliver_as_fast_as_possible)
+					- [Empower the team](https://en.wikipedia.org/wiki/Lean_software_development#Empower_the_team)
+					- [Build integrity in](https://en.wikipedia.org/wiki/Lean_software_development#Build_integrity_in)
+					- [See the whole](https://en.wikipedia.org/wiki/Lean_software_development#See_the_whole)
+			- Get freelancers from the ground, not freelancer sites
+			  collapsed:: true
+				- business, like lego but for adults.  you don’t need to be good at anything at all.  if you want to create and sell a bike light that starts blinking every time you ride past something you might like on foursquare, you can easily make that happen.
+				- there’s kickstarter for the funding, there are a hundred different sites for freelancers advertising their hardware design skills, you can buy the electronics engineer time, you can get cnc machine time at the factory in china, you can source whatever silicone you might need from alibaba.com.
+				- you can hire the pr guy to pimp your stuff on engadget reviews, or better even, you can just buy the reviews and social media attention.
+				- and since there are several sites to give you the money before you even have to build it, you really truly just need one thing:  an idea.
+				- maybe an idea for a thing people want to buy.
+				- of course, failure.  but now there is such an amazingly large web of support options, that your failure can be so much more epic, so much more learning experience intensive.  you can fuck up your first few rounds, and come out knowing more about manufacturing, distribution, offshore sourcing, than a major manufacturer rep could have gotten in a lifetime – even just ten years back.
+				- not that there was ever an excuse to be broke (if you’re not in the process of learning by failing).  but today, that excuse is lamer than ever, when with just an internet connection and an idea, you can make anything you could dream up.
+				- and that’s great starter stuff.  highly recommended.
+				- eventually though, you probably want to end up going to the places, instead of just buying resource time online.  at least, if you’re looking for quality, long term, committed help.  a quick schematic or database thing, yes.  buy online.  but for ongoing help …
+				- it’s like online dating, those freelancer sites.  with all the benefits and downsides.
+				- benefits.  online dating, good for boosting your b-list, get some quick booty.  maybe, very rarely, find a new one, and lock it down.
+				- but generally, online dating, it’s addictive for girl things.  there’s always a new thing, always a better offer.  it’s like browsing an endless candy store (with a lot of shit candy, but still).  and for you, you’re just one of a zillion dudes.
+				- basically, you’ve got very little high quality talent, with a ton of idiots vying for it.
+				- it’s still an option, i’m not saying forget those sites.  but once you made it past the first round of learning about your big picture strategy, once you got some cash … you’re best off just going to the phils or indonesia yourself, and find  your own minions.
+				- so for all that, keep thinking online dating.  online dating is for amateurs, for vegetarian dudes who’ll jump for the first whore ready to settle down (right, k?), for guys without game.
+				- odesk, freelancer, same bits.  nothing wrong with it, but it’s the amateur round.
+				- ***
+				- keep in mind too, that we’re not talking about millionaire lifestyle stuff, here.  a ticket even to fancyface bangkok is 500 usd.  a month apartment is 100 usd.  a full time minion in bkk might be 300 usd, or half of that anywhere else in the region.
+				- and how much more internets stuffs can you get done, with an extra couple hundred a month, with somebody working solid eight hours for you, every damn day?
+				- my favorite so far are vietnamese – for all around admin stuff. girls, in particular. there’s something about them, culturally, that always struck me as no-nonsense and productive. much in counter to the thais, that i find lazy and ready to cut corners every chance they get. if you look at some of the more successful entrepreneurs in the region, vietnamese women make the list quite a bit.
+					-
+						- i’ve had more russians actually sort out math related complex problems for me, consistently (or programming related) than anyone else. marketing brains, americans hands down. finding ways to wiggle money out of people’s pockets is an american phenomenon.
+				- [Reply](http://cedonulli.com/why-i-dont-like-freelancer-sites-like-odesk-and-elance/?replytocom=2620#respond)
+					- Anthony in Tokyo
+				- June 8, 2014 at 9:27 am
+				- Thanks for the useful info on Vietnam vs. Thailand workers. Could you add some more detail about your Vietnamese staff? Are you footing the bill for the office, internet, PCs, phones, printers,bag of rice for the staff then hiring each worker for $100+?Thx, great site.
+				- [Reply](http://cedonulli.com/why-i-dont-like-freelancer-sites-like-odesk-and-elance/?replytocom=4431#respond)
+					- Arowana
+				- December 16, 2013 at 10:55 am
+				- It really is a shitshow on those sites. But then. Hiring folks on the ground is a bit tricky as well. Full on retards abound for $150/month. But then you’re basically programming a human. Will send you an email.
+				- [Reply](http://cedonulli.com/why-i-dont-like-freelancer-sites-like-odesk-and-elance/?replytocom=1208#respond)
+					- jakeface
+				- December 16, 2013 at 11:55 am
+				- sure, pain in the ass regardless. right now got a few for about 100 usd a month, but looking to upgrade. somebody with a marketing brain and artistic skills … going to have to put out job ads at the design school.
+				- [Reply](http://cedonulli.com/why-i-dont-like-freelancer-sites-like-odesk-and-elance/?replytocom=1210#respond)
+					- andrew
+				- December 22, 2013 at 12:35 am
+				- That’s one advantage to having spent my life in Texas. I got a crew around me. Minions with different skills, who can learn quickly. They’re not around for the money. They’re around for ME. They’re my tribe, and they know I’ll take care of them (which is my definition of alpha, hence why I don’t get along with the PUAs anymore).
+				- I might need one of those cute Viet VA’s pretty soon actually. And a PR guy.
+				- Send me some deets, and that password for the protected bits.
+				- [Reply](http://cedonulli.com/why-i-dont-like-freelancer-sites-like-odesk-and-elance/?replytocom=1318#respond)
+					- Michael
+				- February 28, 2014 at 5:22 pm
+				- Corollary to your experiences you share in this article (that if you want talent it is not worth sifting through the millions of idiots on outsourcing sites), for someone who wants to make a living off these sites, by creating a sense of confidence in the mind of a job poster you can straight away go a long way towards winning a good number of the higher priced bids. Merely by being a native english speaker and being able to put together a half decent sales copy to accompany your high priced bid you’d be winning good paying work. Thoughts? By the way what’s the deal with the password, I haven’t been here in a while, but I remember there used to be an odds of returning to Asia bar at the top, and no password. Would you mind sharing it?
+				- [Reply](http://cedonulli.com/why-i-dont-like-freelancer-sites-like-odesk-and-elance/?replytocom=2284#respond)
+					- Pingback: outsourced: my seven nation minion army - cedonulli | cedonulli
+					- Wojciech Majda
+				- August 6, 2014 at 4:24 am
+				- Thanks or advice. I’m still in minor league, as I use fiverr… But I agree – the quality is not that high… And it’s usually at least 5$ for a simple work as proofreading etc.. A high quality minion working for 8 hours will cost the same and she she/he can do 15x more work.
+				- When I go to Vietnam in about a month, I will hire someone.
+				- I’m wondering how do you get to know those people? Do you do some sort of casting and interview a lot of potential employees, or it’s referral through friends?
+				- [Reply](http://cedonulli.com/why-i-dont-like-freelancer-sites-like-odesk-and-elance/?replytocom=8158#respond)
+				- LEAVE A REPLY
+				- Your email address will not be published. Required fields are marked *
+				- Name *
+				- Email *
+				- Website
+				- Comment
+				- Optionally add an image (JPEG only)
+				- Notify me when new comments are added.
+			- Hiring Employees SOP
+			  collapsed:: true
+				- Overview
+					- What task [Potential Tasks notebook]
+					- Where from [see below]
+					- The Proposal
+					- Evaluation
+				- 1) What Task
+					- Could I hire someone to do it for less than £10.80/hour?
+					- YES = Then hire someone to do it for me as then it's basically free time I'm getting back
+					- My Real Hourly Wage (including commute, leisure etc) = £10.80/hour
+						- Anything task that costs less than £10.80 an hour could potentially be outsourced to others
+						- BUT take into account how many hours it will take them vs how long it would take you
+					- Real wage is Â£10, that could get probably 3 hours of excel date entry (ROI multiple x3). This is my most important next purchase - not any fucking pebble watch or anything. Free up my time for most important tasks - at that rate I could get 55 hours of data entry outsourced, which would give me more time to produce content and make money.
+					- $400-700/mo
+					- What's my Target Monthly Income til first employee? Second?
+					- How can I get an employee involved? This will save me time in long run
+					- Realize that the only way I was able to move this forward was because the implementer was working full-time for me and ONLY for me. I could never have done this relying on ten different contract workers along the way.
+				- 3) The Proposal
+					- Pay Brackets
+						- General VA
+							- General administrative tasks like email filtering, transcription, research,
+							- data entry, blog management, calendar management, flight bookings,
+							- social media management (e.g. Twitter, Facebook, LinkedIn, etc.)
+						- Article/content writers
+							- Expertise in Article / Content writing, directory submission, article
+							- spinning and article marketing, video blog posting and transcription.
+						- SEO specialist
+						- Web developers
+					- Salary Guidelines (filipinos)
+						- General Virtual Assistant – Full-time, $350-$500 a month
+						- Article / Content Writers - Full-time, $400-$550 a month
+						- SEO Specialist – Full-time, $450-$550 a month
+						- Web Developer, etc. – Full-time, $550-$750 a month
+						- I hired my first part-time VA for $200 a month to work 5 hours a day. (25hr/wk *4 = 100hrs)
+				- 4) Evaluation
+					- Proposal
+						- Set clear guidelines
+						- Deadline
+					- Always look for the most enthusiastic person, not
+						- necessarily the most qualified
+			- How to Outsource Your Business to the Philippines
+			  collapsed:: true
+				- How to Outsource Your Business to the Philippines For as Little as $2.50 per Hour
+				- by John Jonas [www.getreplacemyself.com](http://www.getreplacemyself.com/)
+				- pg31?
+			- How To Outsource Your Traffic Generation - ShoeMoney
+			  collapsed:: true
+				- [http://www.shoemoney.com/2009/04/16/outsourcing-your-traffic-generation-to-the-philippines#.](http://www.shoemoney.com/2009/04/16/outsourcing-your-traffic-generation-to-the-philippines#.)
+			- Cedo thoughts
+			  collapsed:: true
+				- [archived] http://cedonulli.com/why-i-dont-like-freelancer-sites-like-odesk-and-elance/
+				- [archived] http://cedonulli.com/outsourced-seven-nation-minion-army/
+					- spend your time finding the right questions to ask – and let somebody else worry about the answers.
+					- what, kitthehs, is the question?  that’s where it’s at.
+					- there’s an answer, a fix, a solution for everything already out there.  people engaged in regular sheeple life are busy with menial answer-type employment.  the answer might be drilling speaker grill holes, or telling people what kind of pill to pop.  somebody else figured out the question, and now the sheeple are there all day every day, pressing the button.
+					- interesting way to spend a single, short life.
+					- i say not so much.  the question figuring people are the ones pulling the strings.  that’s where the real challenge lies, and where you can sit back and reap the rewards once you figure it out.
+					- answer-sheeple like to ask “so jake, how do you make money?”  the encounter is already over in my mind, before that sentence even finishes.  somebody looking to find out what kind of buttons jakes pushes.  none, bro-dude.  nones buttons pushed, and nones buttons for bro-sheeple-dude to copy pushing, to live this way.
+					- it’s the innuendo that offends me, the very idea that button pushing is the basis of my existence.  that button pushing mindsets got me to roam the earf.  that i’d want to compare notes on button pushing.
+					- point is, looking for real questions.  and eventually, you’ve got your santa-wish-list, and now you need to get to actual doing.  button pushing.  work.  which isn’t what you want to spend time with.
+					- that button step though, is really a question in disguise:
+					- “how do i find somebody else that can do this for me, do it well, and do it cheap enough that i don’t want to do it myself?”
+					- the answer, of course, minions.
+					- hordes of minions.  scores.  gaggles?
+					- and here’s how jakes recruits trusty minions:
+					- odesk.  elance.  freelancer.com.  whatever-minion-site.
+					- create profile, set up, stuff and stuff.
+					- and you might know that i don’t like freelancer sites.  but then i don’t really like airport taxies either.  or talking to strangers.  some things don’t need to be liked, to be done.
+					- whenever you read these freelancer tutorials, most of their advice is gag-worthy.  bogus.  thin.  lite.  read-only.  probably written by minions, to funnel sheeple to some ebook make-money-on-the-internets website.  tim ferris and his sheeple friendly promises of the moon.
+					- i theorize that serious minion farmers don’t write guides.
+					- and yet … jake the minion farmer’s steps:
+					- 1. one-dollah-h0llah
+					- i want somebody with excellent english skills, ideally native.  that’s my main requirement.  70% of my hiring thoughts.  15% is feedback, the other 15% is how many hours they logged.
+					- my initial post offers pay up to 1 USD per hour.
+					- that’s it.  so much of the mewling and hand-wringing in tutorials talks about how much a good outsourced person is worth, bla bla bla.
+					- bullshit.
+					- one. dallah.
+					- 2. personal assistant category
+					- there’s only so much you can ask for.  native english, and one dollar an hour?  that’s about the max.
+					- so looking for some seo genius, or some brilliant 3d cad designer, maybe that’s not the place.  most of the answers i need sorted though, the buttons pushed, i’ll train them.  all i want is somebody who will follow instructions, do what they say they will do, have perfect english skills, and take payments in single-dollar-bills.
+					- 3. hire and fire
+					- this should also apply to booty vetting and life in general:
+					- hire at least two to three of the applicants.  fuck interviewing, it’s a total waste of time.  engrish rook gooo?  have some hours logged, no shitty feedback?  willing to work for one buck?  perfect.  you’re hired.
+					- send detailed instructions for the gauntlet-of-job.
+					- this is where stuff gets real.  it’s time to make the minion jump through hoops.
+					- i’ve got a whole set of things to do.  nothing difficult, but super task oriented.  do a) then do b), then send me c), then update d), then create e).  on and on.
+					- it’s 8 hours worth of stuff.  it’ll cost me eight bucks to see what’s what.
+					- next, fire two of the three minions.
+					- yes, they always think they got a job.  i don’t tell them the score before hand.  just ask them to do the job, no bigger picture info given.  every time, two of the three get fired after a day.  keep whoever did the best job.  that it sounds evil is just a side bonus.
+					- ABF – always be firing.
+					- repeat the process by adding two new minions.  three go in, one comes out.
+					- the best performer is doing the real tasks.  new minions who pass the test, get added to the easier part of the task list.  and there’s always the least quality one who’s about to get axed, from the pool of new candidates.
+					- 4.  training
+					- training is key.
+					- i always do the job first, then lay out the exact steps it took me to do, then create a document that outlines those steps, then a shared control document where the minion can check off and provide details on the steps completed.
+					- i always, always, always train the key minion of any task.  later, they may train new minions in replicating what they themselves are doing perfectly.
+					- 5.  iterate, quantify, build
+					- there’s always some flaw in the process.  find while doing, improve on the go.  tweak it to make the minions work like little mechanical rabbits.
+					- always grind.  there’s always a better, younger, sharper, cheaper minion out there, waiting to be added to the process.
+					- quantify value.  my documents show me exactly what a complete process is worth to me, and how much the sub steps are.  if that dollar minion isn’t making me ten, then we’ve got problems.
+					- of course, the best minions get pay raises.
+					- 6.  make minions feel like they’re real people
+					- i know.  silly, right?
+					- but, giving minions “power” over a process, letting them do hiring for sub process, giving them accountability over some tiny part of the bigger picture … that’s powerful stuff.
+					- just like girls like to be abused, minions like to do more for less.
+					- as long as you make them feel like they’re the boss of another minion, growing in their minion-dom, they’ll go way above and beyond what you ask for.  at least some do, the ones worth keeping.  the greatest scam ever invented by business?  the title “manager”.
+					- always be firing, and always be anointing managers.
+					- it’s sort of like when jake tells one girl that it’s just not working out, and the other girl that anal means upgrade to real girlfriend status.
+					- 7. minions can do anything.
+					- you think it’s hard to sort cross-border, multi-currency financing for long term energy projects?
+					- not really.  it’s hard to figure out the questions the first time.
+					- then it all turns into just another spreadsheet, another document with instructions to follow, another task list to complete.  your job isn’t special.  nobody’s job is, since almost all jobs are just the answer part, the repeated button pushing.  a monkey can do it, as long as you train it well.
+					- somebody with excellent english, living in god-knows-where-zimbabwe, can use her sultry perfect english, with just a tiny hint of a sexy accent, to call stupid fat white bankers in europe, all day long.  she’s probably living in a dusty hut somewhere, walking 20 kilometers to the only internet shop every day, three villages and two rivers away.  and lions.
+					- voip, a task list, a few scripts, done.
+					- so many dudes i know, think they’re special, because of their skill.  it’s fucking task list.  the only value is in not having anybody else being able to replicate it.  if monkey boy has a boss, then he’s replaceable.  jakes had a bank job, right out of school, where the management didn’t even provide training at all.  “just ask your co-workers”.
+					- yea.  that’s really all it takes.
+					- some minion could probably finish the limo book, have it done next week, and have it be 10x more awesome than actual jake-reality.
+				- - also using Mechanical Turk for SOP execution - pay per execution
+				- change AS much as possible of the explaining the business style and personality suitability from telling to questions in order to ascertain more accurately. (start with changing to easy either/or type questions, then work to morph them into open-ending questions. the goal is to not give them any hints as to what responses are "ideal"
+			- James Wedmore Outsourcing process
+			  collapsed:: true
+				- What to look for - young, passionate, eagerness to learn
+				- Hire
+					- Start with a probationary period
+					- Give them the orientation
+						- Require daily reports
+						- Weekly payday reminder (friday
+						- Use following software
+							- xoom money transfer, agent guardian
+			- Learn how to be a manager
+			  collapsed:: true
+				- For the entrepreneur, the goal is to grant as much information and independent decision-making ability to employees or contractors as possible.
+				- 3. Set or request autonomous rules and guidelines with occasional review of results. Eliminate the decision bottleneck for all things that are nonfatal if misperformed .
+				- Hi All, I would like to establish a new policy for my account that overrides all others. Keep the customer happy. If it is a problem that takes less than $ 100 to fix, use your judgment and fix it yourself. This is official written permission and a request to fix all problems that cost under $ 100 without contacting me. I am no longer your customer; my customers are your customer. Don’t ask me for permission. Do what you think is right, and we’ll make adjustments as we go along. Thank you, Tim
+				- The first month cost perhaps $ 200 more than if I had been micromanaging. In the meantime, I saved more than 100 hours of my own time per month , customers received faster service,
+			- Mixergy: How To Systemize & Automate Your Business To Replace Yourself – with Jas Panesar
+			  collapsed:: true
+				- when you and I were setting up to do this interview, I saw an e-mail come in from a guest whose going to be doing an interview in the future, he self.
+				- Jas: OK.
+				- Andrew: He self-booked. All we do now is, we give guests a URL, they click on it and they can pick the date that they want from a calendar. They can give us their Skype name so that we know exactly where to call them. They give us their web address so that we know whoever blogs it, Ari, will know exactly what link to go in there. B
+				- Make things centralized, let me book interviews from a website. That’s a huge leap forward because your centralizing a lot of what you are doing.
+				- Jas: Eventually, but I think the first thing is the [??] test I use, I walk in and say does everyone do the work of your business as well as you? What if you left tomorrow? What if someone else that’s critical left tomorrow?What would it get done?
+				- Andrew: What would not get done if Andrew or the CEO who’s listening to me right now did not show up tomorrow? That’s what we need to write down.
+				- Where you have to really focus on making a list of what your typical day, week and month might look like. And make a list of those gaping holes that wont get done without you or someone else on your team and this is really a high level list.
+				- taking a list of all the things that I dthat wouldn’t get done without me and someone leaves then there would be a problem, well, why is that a problem if I’m the person who’s doing this?
+				- Jas: You have taken the time to transfer the intellectual capital of your business to someone. And so they’ve taken what you have done and tried to do it as well as you or maybe better because if you hire someone that’s better than you at something you’re actually relying on them more than what you have in yourself.
+				- Andrew: I see, you’re saying there’s more of a problem than what’s just in my head. It collectively, everyone in the company, has stuff that’s only in their head. They only know how to do it. In this case maybe only one other person might know how to book a guest or one other person from my audience knows how to write sales pages or do AB tests.
+				- everything has to be indexed and organized right from the get go so I can search on it later. One item per email, gets a case number, and we’ll get more into the details of that later on, I hope, but basically, I have a search engine now that, the last five years of my life, every problem that I’ve solved, it’s organized.
+				- Jas: OK. I’ve given up using, for the most part, an email client. If someone’s calling me just to chat, such as do this, do that, read this, fine. As soon as it requires any attention from me beyond 30 seconds or 1 minute that I can’t reply or do something, I forward it to my case manager as an email. I use FogBugz. It’s a project management and software tracking tool, but it’s kind of generalized. I went through a lot of attempts to build one myself, and tried out a lot of different ones, and this is the one that I have landed on.
+				- Jas: Well, what you would send in, what I would get is an email saying just that. That, hey, this system you had, it was supposed to only do one, and it’s happening twice. My whole life’s a mess.
+				- Andrew: Oh, I see, ’cause I would come to use as a client and I would say, Jas, I hired you, people are getting double booked. What would you tell me to do?
+				- Jas: Well then what I would do is I would take the essence of your problem, your issue, or your feature request, and that’s really all businesses are, requests. Different kinds of requests, tracking the, scheduling them, making sure we understand them, doing them, and then saying we did them. That’s all people want to know, where is everything at. In your case, I would say, you’ve got this problem, here’s how you replicate it, here’s how you build it, it’s kind of borrowing it from the software world a bit but generalizing it for business in general.
+				- It’s now one problem, it has a case number, and in my life, if it doesn’t have a case number, it doesn’t exist.
+				- Jas: What happens then, it gets scheduled. I can hand it off to someone saying, here’s a problem, here’s who logged in, here’s where they logged in, here’s what they did, here’s what happened, here’s what should happen, here’s what it needs to be, here’s what needs to happen. I’m not needed anymore, unless there’s something that only I can fix.
+				- I can say hey, wait a minute, I did this a couple of years ago, where is this. I’ll type it in and say oh yeah, and there was this little weird thing I had to do, and there was a bug, and I have to work around it. I solve problems, instead of revisiting and relearning, I just go look it up.
+				- Systemizing your business and automating it are two different steps. Systemization is the process of collecting the details of your business in one place so you can organize them.
+				- Working software over comprehensive documentation - if the process is intuitive (or automated) then it wont need extensive written SOPs
+				- I could see using multiple programs for it. I’m thinking Evernote right now, because that’s what I happen to use. You just take that one problem, email it into Evernote, where it becomes its own note in Evernote. What is the next step, then? What do we do once we’ve got them all bucketed like that?
+				- if cash flow is the blood-line of your company, you have to keep that moving and to keep it moving, everything that’s attached to you being able to send a bill, go upstream from that.
+				- So then, right away you can see, how close is this to that stream of me being able to send a bill? I have an invoice, I got to put items on it, to put items on it I got to complete something, to complete something, I got to get a sign off. To get a sign off, I got to get, you know, a specification that they agreed to let me do. To get that specification, I have to have an initial discussion of the problem. And that really creates you kind of, I guess it would be your critical path maybe.
+				- What you do, this big list that you made, this big brain dump or this, get it all out, so it’s just in front of you. You can now pick those things and focus on them and rank them. If you can prioritize them, let’s say one to fifty on a sheet of paper. If you turn around that sheet of paper, you now have a time line of here’s what I’m going to do now, next week, the week after.
+				- Andrew: OK, so all these things that people do individually within a company, maybe the guy is programming his web page, maybe he is creating a sales page, maybe we have another person who is buying ads, maybe it’s all the same person who is doing all those tasks, but these are tasks that we have now identified within a company. You’re saying, put them in buckets, each one individually, each step of those processes in a different bucket, is that right? Then prioritize them based on how close they are to putting money into the company’s bank account.
+				- So this is why I say, you have to systematize your own life because when we started a business you generally do it because you can do it better than someone else. You have generally, your way of doing things that are better than other ways of interviewing. I have my ways of solving problems. So our system is going to be, it should reflect and enhance our competitive advantage. If it doesn’t, if an off the shelf product can really help us that much, we probably need to innovate a bit more.
+				- you’re done when everything’s tedious, repetitive, time consuming Andrew: When things get repetitive that means stop systematizing?Jas: Yes. Start automating
+				- Jas: Well, when you have one source to track and see everything, it allows you to manage at a glance So by the time you’re pretty well systematized, you’ll be seeing these things like, ‘Oh, I have to go create something in three systems so it’s all synched up,’ or whatever. You want to be in the school of getting more done with less effort. You want to save tons of time
+				- If you prematurely automate anything, you’re going to fail because if you don’t understand your system and how it works it’s not going to handle all of your scenarios and you’re going to be doing stuff on the side or in your manual . . .
+				- Andrew: Give me an example of something that you’ve automated before it was ready. Help me understand this by seeing it through one of your experiences. You automated something, you did it too soon and because of that you failed.
+				- Jas: I’ll give you an example. I use to really suck at billing. My billing was like this where I did all of this work and it was tied to request and just getting it onto an invoice with all the details attached of here’s what I did on what time, what date. It was really detailed. I was trying to use different pieces of software to do it or write my own every time because I get so frustrated. OK, I’ve been trying to use excel sheets or this or that, just to trying to [cobble] it together. This isn’t really about [cobbling]. There’s triggers. There’s things that happens when something else happens. I had to figure out what that is. What I ended up doing, I build probably four web based systems for myself from scratch.
+				- he work, if they didn’t agree on what we had to do, we couldn’t talk about how we were going to build it. We couldn’t even talk about a blueprint. So, by creating these stages in my own world the software kind of designed itself. Then [Frog Bug] entered my life and I was like, ‘Oh, this is really easy.’ My personal process is agree on what you do, how you’re going to do it, plan when so, plan who and what’s needed, do it, test it, launch it, support it.
+				- Every step of the way I will get the sign offs and if we don’t have an agreement, it doesn’t move forward. If it’s not moving forward, it gets flagged and triggers. This software is really nice, it’s simple, it just works and it’s something that I actually use. I feel there were probably a good seven or eight years for sure until the day I brought Block Bugs. I think it was one of the best purchases I made.
+				- Put it all down on a list, all the things that you do.Then sort that list. Then put the steps involved in each big item down, so that anyone can essentially do it. Then keep systemizing and documenting, and systemizing and documenting, until you get sick of doing it manually. At that point you take it and you automate it. You now have a system that’s just mindless, that you’re repeating over and over, and it’s time to automate it.
+				- Jas: It’s a long list. [laughs] I guess the first that I always want to do is remove myself from everything. I try to replace myself. So whether I’m working for someone, or myself, I want to make myself redundant and only do the things that I really add value for. Whether it’s understanding a problem, solving a problem, or figuring out how to grow or increase my sales, or those kinds of things, that’s my goal in my life. I want to work on my business, not in my business.
+				- I use just straight tactics, like, when my customers deal with me, and I deal with them, whether it’s a new relationship or an old relationship, I have to kind of educate them on, a lot of companies out there are trying to solve problems that aren’t technology problems; they have business problems. They will buy a computer, put it on their desk, and then will be, like, ‘Now what? This was supposed to make my life easier’.
+				- We all got into business to have a better life and it doesn’t always work out like that in the beginning, until we understand ourselves.
+				- So keeping those two things in mind, I move forward and say, OK, well the business of doing our job. Everything that comes into your life, you have to organize it automatically. You must use a case manager of some kind. You know there’s a big debate whether you should use something free or not. To me anything that’s using up my time is costing me way more than what it costs. Get a project manager. Digitize everything you can. Get your voicemails coming to you as an .mp3, because guess what, when it’s a case number, you can just forward it to someone. Say, ‘Hey, I got a voicemail. Here’s the voicemail, click play’. There’s no interpretation. That’s one of the things I do. My faxes, if I still get faxes here and there, they come in as a .pdf, and email right into a case. That key thing is something I try to do in everything I do every day; how can I possibly link this to Fog Bugs.
+				- Or use Jira (Eman's suggestion). Made for issue tracking with software, but could work with my intended use - keeping a easily searchable archive of all problems and solutions
+				- - Is open-source so can be self-hosted and modified too
+				- Because [??] -
+				- Andrew: Why does it have to be a case, and not, say, email. I could have all of my pdf’s end up in email, and all of my voicemail end up as .mp3 and text messages in my email inbox. You’re saying, no, email isn’t the place to put it. You’re saying, put it as a case in a case manager. Why? I know that’s an important part of your process; I want to make sure I understand it.
+				- Jas: Right. Right now, let’s say you want to go find out something you did a while back. Yeah, OK, we can lean on Gmail search, we can lean on our searches, but sometimes you have to go search first on your file system, through all of your faxes, and then through your emails, and maybe ‘Oh, do I have this voicemail still saved, or did I make notes of it in my notebook’. That whole idea of accessing the past, which we do non-stop, really has to stop. You know, I went from a lot of paper to very little paper, to the point now where I really, really push myself to do everything digitally, because if I create it in a digital form, I don’t have to spend the time typing it up, locating it. If it’s got a case number, it’s already got its little Dewey Decimal System; it’s already in my library. I can instantly find it and say, ‘Andrew, case 1-2-3-4′. I don’t have to say anything else, that’s everything you need. It’s not like, ‘Oh, I’ve got this email and here’s the seven emails we [??]‘. No, that case number, it has the entire design documentation- what we did, the problems we ran into. Usually when we find a problem we have one problem, not a bunch of problems. If you have everything really indexed, it’s the nicest thing you can do for yourself.
+				- I mean if you get to the point of having automated reminders of, ‘Please be here for a test’. ‘Please do this’. It is so critical, if you really want to be free of your business, you have to leave your intelligence in that business. You can’t be the system. You have to create the system. As soon as people are the system of a business, all they’re doing is being the computer. They’re not having the computer work for them.
+				- They can go there, see all my screen shots, yeah, I can make it perfect, I can do training videos. But just the fact that they can get started, and figure, maybe stumble their way through it, just like I did the first time. That’s really, really important.
+				- My idea capture - For what I do now, is I send an email right to FogBugz, a one sentence, in the subject I say, make sure I do this. Or when I see something wrong like, ‘Oh, we didn’t test that properly, while I’m talking to someone I open up my phone and I start typing in the subject, I write a really descriptive searchable subject of what the problem is and what needs to be solved. Creating that search engine of your life, you’re going to use your own words to find that later on.
+				- One of the things that I really use is my phone a lot to send one sentence emails straight to FogBugz, and they go into this long, big, huge, ugly pile that I go to every so often. Those brilliant insights that we have right at the moment that we can do nothing about it, that’s when you need to capture them. What I do for myself is I try to write stuff down as I go for everything I work on, or just write an email as I go. Instead of using something like Evernote, Evernote’s awesome for attaching and organizing lots of different media and documents, but what I found is that the search feature, for me, is really valuable. If I can search and organize my thoughts, and say, oh this is something for this project that came up, or I got to fix this bug or look into this feature, my thoughts go directly into the subject of an email. That’s like 100, 200 characters. I might write a little bit more, I might not, but I send it, and it’s indexed there. It’s piled away, making sure it’s not in my face all the time, and when I feel like sitting down and saying, oh, how can I improve this month? What did I screw up in my processes? What did I learn? Oh, OK, here’s seven things I need to do. Oh, great, let’s write the solution to these seven problems, grab these seven issues, these seven cases, assign them to someone and say, I need these done or added to the system, or added to the process. It’s kind of how I-
+				- Andrew: I’d love to see it now. Is there one other thing you want to talk about before you show, ’cause I think we should do a show and tell and see how you use FogBugz? [tape interruption] OK. Jas and I are now back on Skype.
+				- He showed me FogBugz, he showed me how he would use it to organize his notes on an interview like this, and you can watch it by just downloading the video that he and I recorded. Somewhere on the post with this video you can click and see Jas’ desktop as he explains the process to you.
+				- Jas: I have a humble blog that I run at PANESAR.net.
+				- Jas: Oh, I’m swearing, oh well. It’s amazing, when someone calls you and goes, “This isn’t working, or this happened”, you’ll spend two or three hours just trying to figure out what do you mean it doesn’t work, what do you mean it’s not working? When I just say record a video of what’s happening, talk me through it, send me the video, that works really good. And the thing about it is.
+				- Andrew: Jing is a screen capturing program, right? It’s a website, you use it to capture what you’re doing on the screen and talk it through.
+				- Jas: Totally, well the best part of the Jing videos, that I love, is that I bought the pro one, but I still use the free one because it limits me to five minutes and it’s hard to pay attention, it’s like a game, I want to explain all of this in five minutes. But, the neat thing is, if I had to send someone instructions really quick, I load up Jing, talk my way through it. Click, click, click. When I’m done, I click upload to their screencasting, I don’t have to upload, manage, massage a video, create a link. They upload the link and the next thing I do is I go paste in an e-mail, into FogBugz or even my e-mail client, and they just get a nice shortened link to a video of me just telling them how to do something, or vice-versa.
+				- Andrew: I should use that, I’ve been using Screenflow, and I love Screenflow, but I think when I need to show someone like a one minute video of how to add an extra calendar to Google calendar, that just takes, it takes too long to shoot into Screenflow, to export it and to find a place to put it online at Wistia and then to give people a link. You’re saying to just go to Jing and you can do the whole thing, one step.
+				- Jas: You’ve actually given me an idea that I want to try now, instead of documenting something by typing, which is horrible, create a video, link it into your document and just send it away to a virtual assistant to get it transcribed so that it’s searchable. Why not? If you’re going to take two minutes over Skype, to teach me something, Jas, this is how you turn a Mixergy thing to premium, or this is how you launch a course, just record yourself doing it and send it away from transcription. I want to go do this, like in an hour.
+				- Andrew: I said, “Can you do it and do screen captures of each one of the steps, and put notes next to each one of them so that we have it in a scannable way so that we now have one Evernote document with each step. And anyone who wants to follow it can follow it step-by-step. If they’ve made a mistake they could look for where they’ve screwed up by just scrolling down the Evernote note.
+				- Jas: One thing you run into is that, when that procedure changes, you literally have to redo all of it or part of it.  If that’s what you’re trying to do you really have to look into Adobe Captivate. What they do is, they take a screenshot, they record your mouse and you’re clicking on top of it separately, and you can export that as slides with notes, or a video that runs straight as a little Flash video. Or, you could record it in training demonstration mode, where it’s like, ‘Click here to do this’ and you’re clicking on this little demo video, learning how to do it. So, if I forget six months later how to upload a video, I just go take the little Andrew one minute course on how to upload a video. Literally, you’re just using the same screen capture tool but it just records your clicks a little bit differently like, you know, I show you HD does some of the mouse and key recording.
+				- Andrew: Right.
+				- Jas: But, I found Adobe Captivate is probably one of their most underrated and unknown pieces of software that is…
+				- Andrew: I didn’t even know about it.
+				- Jas: Unbelievable, yeah. If you want to do a screen share of that separately I’ll totally take you through it. I’m in E-Learning, it’s one of the things I work on, so I’ve totally been spending a lot of time on that site.
+				- Andrew: You know what actually, I do kind of wish, I don’t think we should record another screen capture because it’s going to be a pain in my butt to go and edit it, but I do wish that instead of doing this as an interview, maybe we should’ve done it the way that I do courses. Where, you just show your desktop. And, if there was anything you wanted to show, we just magnify your desktop so you can show it. And, if we’re just having a conversation about a topic, I could remove your desktop.
+			- Mixergy: Systemizing Will Liberate You – with Harold Mann
+			  collapsed:: true
+				- I enable people who are not particularly experienced in terms of business to do pretty sophisticated business techniques, whether it’s marketing, administration or customer service.
+				- marketing to new prospects.
+				- finding companies, sending them something, figuring out who to send to, what to send them, #
+				- Key metric - can this brand run without me? work on the business rather than in the business
+				- anytime I did something or something needed to be done, I would always ask myself, do I have to be the one that does this? Is there anybody else who could do this? Or am I the only one who can do this? And every time I asked myself that question, usually the answer is someone else can do it, if dot, dot, do
+				- I found myself saying, no one else can do a pre-interview but me. It’s, Mixergy, is me essentially, and if I’m inviting somebody here to do an interview, I need to do a pre-interview. No one else can do it. No one else can edit the interviews but me, because I know what part needs to get cut out and an editor might not know it, and so I was doing the editing. I said, ‘nobody can communicate with a guest before and after because it might seem rude and they might not do it right’, and so on. The courses, I said to myself, ‘it takes maybe five times going back and forth with a course instructor to shape the course’, and I said, ‘I know what my audience needs. Nobody else can get it right. I better do it.’
+				- > Now he has a pre-interviewer etc
+					- warning signs, how you identify signs of what needs to be systematized?
+					- - When you do the same action repeatedly, when you stop enjoying what you're doing, where the bottleneck is that stops your business, where you're spending most of your time, what you're bothered with when on vacation/sleeping, The word remember is another key thing. That’s the warning sign. That’s the thing you want to get rid of with your system.
+					- Another tactic for identifying these issues that could be systematized, as you’ve mentioned we don’t notice them, is you say give bonuses to employees for identifying things that suck.I will give you a bonus if you can come up with a system in office that sucks and if you can make a recommendation on how to make it better. But they’ve got to say. Anybody can complain about their office. You don’t get paid on that. What you get a bonus for is if you can come up with a way to make it better.
+					- MINIMISE DECISIONS by employees to save their willpower. Automate as much as possible
+					- Use keyboard shortcuts to link to SOPs or just for common phrases. Also teach employees how to use it, and set it up for FAQs eg androplus
+					- Jing - Have people to screencasts of SOPs to save time rather than writing it down? Much faster and less anxiety to write it down perfectly
+					- For any issues that arise, always ask WHY until you get to the root of the problem
+					- Tasks that only I do - CURRENTLY: Feedback and setting tasks,
+					- Start using Asana calendar so I can see when everyone is in the office
+					- We had this system for creating a new blog post. We’d say – and we documented it – we said, ‘Go and hit the new blog post button, you’ll end up with a blank field. Go to the HTML and then type in this, or copy and paste that in, and then check this other box over there. And then you also need a new template, so you check the template.’ And we thought about it; once we got into the excitement of creating systems, we said, ‘Oh wait – there’s a plug-in that allows you to duplicate a blog post. What if we install that and then we create a template blog post that basically says ‘put header here’ or ‘put the interviewee’s name here;’ put the Wistia video there; put the MP3 there,’ and so on. We create just that template and we take the link that says ‘duplicate that blog post’ that the plug-in enables us to do, and that’s all we tell the person who has to create a new blog post to click on! So now we took 20 steps (or however many it was) and we made it one. Just click this and you have a brand-new blog post based on the template that has everything in it that you need to do
+					- Here’s the thing you want to do when you’re working on that process, because it’s an iterative process. You want to make a Google Doc called ‘That Checklist’ or ‘That Process.’ And then every time – you want to watch carefully the next blog post entry. Everything that is wrong about it, or everything that is problematic about it, you want to go into this checklist and add these line items to it to figure out how can you avoid that decision or that decision from recurring.
+					- Employees need to be creating SOPs often
+					- Create a dashboard with numbers with conditional formatting for colours e.g. completed tasks today = 1 (red)
+					- Andrew: What do you keep all your tutorials in? I’ve had a past, actually several past guests say that they use Google Sites to organize all the tutorials.
+						- Harold: Yeah, we use Google Sites. We like that. We use some of them built into our FileMaker database. We use just contextual buttons. If you have a tool that you are using that authors things, put buttons in right on the screen. You know, Amazon is really great about this. They’ve got this, “What does this mean” link. And the minute you’re using their site and you think what does this mean, you see the line that says, “what does this mean” and you click on it. It’s perfectly contextual and you can do the same thing in your own systems. I have a-, I have question marks in my Google Docs that says, “What does this mean?” And so a new person using it can click on it, and it’ll play a video either from the Google site or from our file server.
+						- Andrew: All right. Let’s talk about other tools. First you talked about FileMaker Pro. How do you use FileMaker Pro? What do you use it for?
+						- Harold: So we use FileMaker Pro for almost every operational function in our business, it’s just an easy to use product, it’s very mature. It’s got a web interface if you want. So we basically use it to organize things so that we’re not dealing with a bunch of disparate Excel files. A lot of people use Excel, but they don’t link things together. We use FileMaker to then connect everything up and then it also has these great triggers. It has these triggers that are built into it so that if something happens, something can then happen as a result of that. Suppose the interviewee for you has now reached 100% of their template. You could use FileMaker to then trigger an email that would automatically email you saying, “The interview for Joe Acme is now 100% complete.” At which point you might say, “Joe, thanks so much for filling that out. I’m excited, I appreciate your giving us that information.” And it would automatically CC your assistant, and it would just be a nice personal touch. Those kind of triggers are why we use FileMaker.
+					- LEARN - Inbox Zero by Merlin Mann, The Ultimate Sales Machine
+					- hmann@mann.com
+			- OUTSOURCING
+			  collapsed:: true
+				- OUTSOURCING
+				- (DONE RIGHT this will always make you more money than it costs)
+				- -create a step by step checklist - operations manual AFTER fully understanding task Eg building an ebook
+				- - Outsource anything that can be completed by less hourly than you. i.e. £10/hr
+				- Reducing energy/decision making through systems and automation
+				- (Delegate, Eliminate are last 2)
+				- - Work on your business, not in it
+				- > I should focus on new product strategising (but not all parts of creation)
+				- day 1000 - You could make money, but instead you think you'll hire someone.
+				- You will not do it on your own - hire people better than you eg coding. You will pay some people more than yourself
+				- How does the business function if you want to take a vacation or get sick/hurt and can't work for a week/month?
+				- Time shouldn't be wasted on Functional activities
+					- it's not about working harder, or smarter. Build a system to replace yourself.
+				- Focus on your core competency. If you`re an author, write all day long.
+				- If you're procrastinating on a task that you've been doing for 4+ months, you may need to delegate or streamline it. Entrepreneurial mindset is the vision, you planning out the next step not stuckin daily tasks eg newsletter management.
+				- Employees should bring you more value than they cost.
+				- [Mynemo.com](http://mynemo.com/) (Cebu VAs) + job street
+				- Break down time spent on activities based on passion and skill/results level eg high medium low: to outsource and focus on best things.
+				- Identify those areas where you are repeatably successful, and see how you can scale and automate them in 2013.
+					- What do you outsource
+						- Things you are currently doing that drain you
+						- Things you NEED to be doing but have been neglecting e.g. SEO, programming, research, video, design, writing, marketing etc
+						- What to look for - young, passionate, eagerness to learn
+					- Hire
+						- Start with a probationary period
+						- Give them the orientation
+							- Require daily reports
+							- Weekly payday reminder (friday
+							- Use following software
+								- xoom money transfer, agent guardian
+				- 3 stages of growth
+				- 1) The Technician’s boundary is determined by how much he can do himself.
+				- 2) The Manager’s boundary is defined by how many technicians he can supervise effectively.
+				- 3( The Entrepreneur’s boundary is a function of how many managers he can engage in pursuit of his vision.
+				- A business that depends on the ability of the employee will ultimately not deliver consistently excellent results
+				- - requires systems and procedural manuals
+				- If you can't delegate something, you may have a failing as a manager at:
+					- a) Choosing talent
+					- b) Codifying knowledge and establishing standardized procedures such that others can do them.
+					- c) Emotional attachment to being the center of attention and/or inability to trust.
+					- d) Establishing incentives to motivate behavior -bonuses for performance etc.
+				- Here are the two most important rules:
+				- 1. ONLY OUTSOURCE TASKS THAT WILL MAKE YOU MORE THAN THEY COST
+				- - or tasks that take up time you could otherwise use to make money with?2. TRAIN THEM SO THEY'RE NOT TIME-CONSUMING
+				- There's no way to know how good people are until you give them a chance to succeed or screw up.
+				- I've got a document I've written up with detailed instructions that explains how to create a post in Wordpress. It takes a person through the process step-by-step, so they can get to the point they can post a document as a draft. It explains how to find and insert images, how to link out to outside sources.
+				- 4. Slowly and carefully evaluate and select writers. Take your big list of applicants and throw out the people who are obviously unqualified. Ask for writing samples, check out their websites, read their resumes, etc. You're going to shorten the list, but not by a huge amount, since none of this actually tells you if these writers are any good and if they have the right personality to do what you're asking of them.
+				- Once you've got your shortlist - this could be 5 people or 30 people - give them a task that they should be able to accomplish within your expectations. In the case of content, this is easy. You give them a keyword and ask them to write a single article, fully prepared in Wordpress. And you need to commit to pay them, no matter how much their work sucks.
+				- Evaluate the workers. Is their content really good, or did you need to edit a lot. Did they struggle with Wordpress or find inappropriate images? Did they copy large swaths of text from Wikipedia? One single article should tell you right away who's completely terrible, and who you can work with.
+				- Fire the people who suck. Don't waffle on this, just pay them for their work, thank them for their time, and tell them that you're choosing to work with other people.
+				- Teach the people who aren't there yet, but you think they have potential. But they need to get to the point that you're not managing them. You shouldn't be editing their work every time, or finding better images, or reminding them to put in tags. If they're not improving, fire them too.
+				- You should end up with a core group of writers who write good content, and are able to manage their own time. They can go from zero to published in Wordpress without your involvement at all. All you have to do is give them a list of keywords and come back a few days later and your website has more content.
+				- Interview VAs on Skype
+				- How To Share Secure Logins With Your Virtual Assistant David Risley
+				- [http://www.youtube.com/watch?v=4zYTI9tcYh4&buffer_share=8b256&utm_source=buffer](http://www.youtube.com/watch?v=4zYTI9tcYh4&amp;buffer_share=8b256&amp;utm_source=buffer)
+				- Outsource blog posts, bookkeeping, other day to day tactical tasks. I deal with strategy and marketing. Give them full trust and resources they need, at start will fail and be inefficient but will soon be better at it than you
+				- Learn how to effectively break down your tasks and manage your assistants by reading[ David Walsh](http://www.thrillingheroics.com/smart-outsourcing-business-process-automation/)’s [must-have ebook Source Control](http://www.thrillingheroics.com/go/sourcecontrol), and check John Jonas’ [Replace Myself program](http://www.thrillingheroics.com/go/replacemyself) to get quality trainings for your new VAs.
+				- Virtual Assistants & Outsourcing
+				- Virtual Staff Training Academy – Created and put together by my personal VA’s, for your VA’s. This is a 75+ video, 15-hour video training course that will get your General VA (GVA) up and running, right out of the box. No need to do the training yourself. The course covers everything for you.
+				- Hubstaff – Easy to use time tracking and remote team management dashboard. Also has the ability to grab screenshots, and to create time-sheets and other reports.
+				- Outsourcing Strategy #1: Hire bloggers - If you don't have time to write blog posts, you can go to [http://jobs.problogger.net](http://jobs.problogger.net/) and post that you're looking for ghostwriters.
+				- You'll get anywhere from 20 to 30 applicants and you should be able to find at least 2 or 3 awesome ones. Offer them 15 to 25 dollars to research and ghostwrite blog posts for you... and then publish them on your blog under your name.
+				- Within days you'll notice your traffic going up, especially if you use my content-promotion strategies covered previously. This is an immediate and HUGE time saving strategy.
+				- Outsourcing Strategy #2: Hire undergrads - Go to your local college and look for marketing interns. (Most colleges have internship departments and you can ask them for a student who is studying marketing as their major.)
+				- Once you have them on board, teach them about your industry and have them read all of the blogs within your market (or at least the big ones).
+				- Then have them start commenting on any new blog post that competitors are releasing or news sites publish about the sector you are in. When doing so they shouldn't be mentioning your company name, but instead adding value to the conversation.
+				- Also, when doing this, they should put your name as the person leaving the comment and your company's website URL.
+				- Over time this will build relevant traffic to your website. You should be able to pay the intern minimum wage for this.
+				- How can I automate more?  Owner not employee mindset - exponential as 30 mins can be used to produce 16 hrs of work. Choose right things which it's WORTH outsourcing as I focus spending MY TIME on tasks with high ROI
+			- Peter Thiel’s Unorthodox Management Philosophy of Extreme Focus
+			  collapsed:: true
+				- “What are your top five priorities for this week?”  “What are the top three objectives and key results you’re using to measure how you’re doing for the quarter?”
+				- These are questions that get thrown around by managers at work to help their teams prioritize and focus on achieving the most important accomplishments.
+				- In Peter Thiel’s view, this doesn’t go far enough. As the founder of PayPal, Thiel developed an unorthodox, extreme philosophy on focus and prioritization. Instead of focusing on five things, or three things, the magic number is one. You only focus on one singular thing.
+				- As PayPal executive Keith Rabois recalls , Thiel “would refuse to discuss virtually anything else with you except what was currently assigned as your #1 initiative.” Every employee, for instance, had to identify their “single most valuable contribution to the company” on PayPal’s 2001 annual review forms.
+				- Extreme focus worked, because Thiel gave it teeth. With distractions cleared away , Thiel empowered every person in the company to pursue their only priority “with extreme dispatch and vigor.” Giving each individual in the organization a singular focus drives people to work on only those goals that will help achieve true excellence.
+				- As Rabois explains:
+				- The most important benefit of this approach is that it impels the organization to solve the challenges with the highest impact. Without this discipline, there is a consistent tendency of employees to address the easier to conquer, albeit less valuable, imperatives. As a specific example, if you have 3 priorities and the most difficult one lacks a clear solution, most people will gravitate towards the 2d order task with a clearer path to an answer.As a result, the organization collectively performs at a B+ or A- level, but misses many of the opportunities for a step-function in value creation.(via Is Peter Thiel’s “one thing” management philosophy a good model for startups? - Quora )To Thiel, if you allow yourself to have more than one focus, you’ve already blinked.You’ve determined that mediocrity is an acceptable outcome. With Thiel’s singular focus philosophy, the solutions may not be clearer but the paths to excellence and value are.
+			- Project Management Plan
+			  collapsed:: true
+				- List all activities that you need to do in order to get your business ready to launch.
+				- For each activity you identified choose the month that you need to do the activity in
+				- For each activity in each of the months, choose the week that you need to do it in
+				- Once you have the activities by month, and by week, you now need to identify an estimated time to complete the activity, and a target date within the week you nominated
+				- Next you will need to identify the milestones, or key activities where you think that it will be a real accomplishment when you have achieved it
+				- On your project plan, highlight your milestones so that they stand out, and now the important bit….
+				- Beside each of your milestone, write what your reward is, for example it might be a manicure, walk on the beach, indulgent food, dinner out etc etc
+				- Next is planning for contingency in your project management plan.  For each activity you need to identify if a contingency plan is required in the event that the activity is not able to be delivered.
+				- A good way to do contingency planning is to go through each activity and ask yourself for each one “What would happen if this [your activity] didn’t happen“, and then rate your answer according to “nothing”, “I could live without it” or “I can’t launch my business without it”.  Anything that will prevent you from launching your business needs a contingency plan.  A contingency plan, is basically an alternative to what you were previously going to do – a back up plan.
+			- Strategic Operating Document (SOD) for Habit Laboratory
+			  collapsed:: true
+				- Goals:
+				- Fulfillment/Purpose - what do you want to do in this job? How can your goals fit into ours
+				- Freedom - money, location, female pipeline
+					- Projects
+					- Procedures
+					- Principles
+					- Mission
+				- Standard Operating Procedures (SOP)
+					- By having a step-by-step process you can figure out exactly how much it costs to execute an action (via time it takes)
+			- Systems
+			  collapsed:: true
+				- Systems
+				- Checklist manifesto eg checking audio quality before podcasts
+				- Record the step by step systems you use for making money eg content marketing
+				- Strategic Operating Document
+				- General operating principles (for all business employees and me) - working on business not in business
+				- Eg respond to emails within 48 hrs
+				- Focus on next action unless there's a system improvement or monthly goal related task
+				- Kindle books after 2hr next action
+				- Processes
+				- Eg copywriting and editing processes which are sequential and or checklists. I can then update SODs over time and hand them to employees to take care of
+				- - promotional process eg getting guest posts process, creating a podcast, uploading it
+				- - process for responding to emails and comments, schedule for creation vs promotion
+				- - pinging sites and social bookmarking
+				- (These can then be outsourced to others because it's so clear)
+				- - emailing process (sandwich method so it ends on a positive. Have a question so conversation is continued sync
+				- Sam carpenter - on mister g?
+			- The E-Myth Book Review
+			  collapsed:: true
+				- The E-Myth Manager Book Review
+				- According to Gerber, organizations become dysfunctional for two primary reasons.
+					- First, the individuals within the organization are pursuing someone else's vision or goals. They have sold their souls to the organization.
+						- The solution for the first problem starts with a self-examination by the individuals.
+						- What do I want from life? How will working within this organization contribute to my life?
+						- Managers should be mentors to their workers in helping them formulate and reach their personal goals within the framework of the organization.
+					- Second, managers are trying to accomplish an impossible task - to manage other people.
+						- The solution to the second problem is to focus on managing systems instead of people.
+						- As much as possible, the processes of the organization need to systematized and measured, so the organization isn't dependent on individual people but on the systems of how work is to be done.
+						- The systems of the organization should be designed around delivering the organization's marketing promise -- delivering the product or service -- and how the product or service will be delivered (the customer's experience) every single time.
+			- The Four Step Process For Building a Scalable Sales Machine
+			  collapsed:: true
+				- The Four-Step Process For Building a Scalable Sales Machine
+				- Mark Roberge has helped Hubspot become one of the real darlings of the SaaS industry.
+				- He’s one of the first employees, and currently serves as the Chief Revenue Officer. With this role, he’s created the revenue (over $100 million ARR) and customer acquisition (10,000+ customers) machine that has gotten Hubspot where they are today. If you’re a startup in the SaaS business, it’s hard not to admire what they’ve done.
+				- Luckily for us, Roberge recently gave a talk where he outlined the system he used to produce one of the top-notch sales teams in the SaaS industry. And in this post, we’re going to examine that system.
+				- The Four-Step Process
+				- When he started at Hubspot, he had the mission of creating predictable, scalable revenue growth. What helps get him there is this process:
+					- Hire the same type of salesperson.
+					- Put them through the same sales training, so you have similar output.
+					- Provide them with the same quality and quantity of leads.
+					- Hold them accountable to the same sales process.If this machine works, Roberge knew he’d be successful. Below are each of his steps, in specific detail.
+				- 1. What to Look For When Hiring a Salesperson
+				- Buyer context is different for each company. Therefore, the ideal salesperson for each company is slightly different. The process to figuring it out is the interesting part. Here’s the system Roberge used:
+				- When he was first hired, he wrote down about 10 criteria that he could interview for. These criteria are things he believed correlated with success as a salesperson. He then developed a 10-point scoring system, where he wrote down how important each criteria point was.
+				- He interviewed thousands of salespeople – only hiring a couple dozen.
+				- After a year, he looked his top 40% of salespeople and went back and looked their interview scores, looking for patterns. Then he looked at his bottom 20%, and saw the patterns with these people. He also reflected on what was missing – what wasn’t on his criteria?
+				- As more data came in, he eventually hired a data scientist to run a regression analysis to see if anything was predictable. Turns out it was:
+				- 4 of 21     One criterion he found to correlate with success was coach-ability. This became a big part of his interview process for future hires. They do role-play, where the interviewee has to sell a product to Roberge and his team. After the interviewee finishes his sales pitch (usually 5-10 minutes), Roberge asks how he/she thinks they did. This provides insights into how they self-assess. Then Roberge beings coaching them – telling them one thing they did well and one thing they can improve. He watches them as he teaches. Are they glassy eyed, or are they taking notes? Then they redo it, and depending on how much they improve, that tells Roberge a lot about their coach-ability. If he can improve them in just an interview, there’s a good chance they’ll improve a lot in one day or more of coaching.
+				- In a separate article, Roberge lists prior success, intelligence, and work ethic as other criteria that are correlated with success.
+				- Finding Quality Salespeople
+				- A good salesperson never has to create a resume. They never have to interview, and are always being recruited. You’ll never be successful in going after active sales candidates – the good ones are always passive.
+				- So how do you recruit these top-notch sales folks?
+				- Roberge has built a recruiting agency within Hubspot. He tried hiring outside agencies, but ended up just hiring those people and bringing them into Hubspot.
+				- The best channel they’ve found is called the force referral. Here’s how it works:
+				- About a month or two of a new sales hire, a recruiter for Hubspot will schedule a 15-minute meeting. The recruiter will be a connection on LinkedIn. The night before the interview, they recruiter will go through the new hires connections, and look for the few people that match a criteria – live in Boston (where Hubspot is located), work in sales, come from good schools, and might be a good fit.
+				- They’ll come to the meeting with the list of people and ask the new hire about each person on the list. They’ll get feedback on each and the new hire will intro them to the recruiter.
+				- 2. Training Salespeople
+				- Most sales training work by partnering a new hire with the best salesperson on the team. This shadowing is not effective for most companies. Top performing salespeople perform in their own unique way, and forcing a new hire to shadow with a salesperson with different strengths is a bad match. People are great at different things, so no one can teach them the whole package.
+				- Roberge has created a “predictable factory”. New hires first go through classroom style training. This takes a month, and at the end of it they take a 150-question exam, and become certified in areas like the Hubspot product, the sales methodology, and inbound marketing. This exposes them to the blueprint, and gives them the flexibility to add their art.
+				- The other thing Roberge pushes in the training is making his hires think about how much sales has changed since the internet. People can now try products for free, so what is the point of sales?
+				- Salespeople need to be a trusted adviser, a consultant, and be able to understand the unique pains and challenges of the buyers, and associate them with the marketing message that your company puts out.
+				- The more you can put salespeople in the seat of your prospects and feel the pain that they go through, the better chance you’re giving them of becoming a consultant.
+				- There are no sales calls during a new hire’s first three weeks. During this time they work in the Hubspot product, creating the things you can do with the tool. This makes them prepared to handle a call and empathize with the client, because they know more about solving pain points with Hubspot, because they’ve done it themselves.
+				- 3. Generating the Same Quality and Quantity of Leads
+				- Most companies take too long on demand gen. The get to it after the product has launched.
+				- The Hubspot blog launched nine months before the product. By the time they launched, they had 700 subscribers to their blog, which helped funnel people into the funnel. They ranked #2 (behind Wikipedia) for the search term internet marketing software. This helped them secure their Series A funding.
+				- Roberge recommends a similar tactic for startups:
+				- Find a 20-something year old studying journalism or english. Don’t look for someone that knows your space, blogging or social media. They can tap into your head and learn it.
+				- Look for someone who can sit down with a person totally unrelated to them (i.e. a PhD in Chemical Engineering) for an hour and be able to crank out great content. Find them, and reward them. Pay them, give them school credit, etc. Keep them on a part time basis. Something like every Friday from 9AM-1PM.
+				- From 9-10AM they sit down with a thought leader in your company. The thought leader can come from any department, doesn’t matter if it’s engineering, sales, product, marketing, etc. They pick the thought leader’s brain on a niche topic. Then they go and write a 3-5 page eBook, a couple short blog posts, and create a few tweets containing stats or quotes that were mentioned. The tweets point back to the blog posts, and at the end of the post there is a CTA linking to the eBook. They click the CTA and are brought to a landing page, which asks for the name, title, phone number, and email address.
+				- The posts and tweets should be spread out over a month.
+				- 15 of 21     This process will help create leads, bring a social following, and improve rankings. It provides a great start to your demand generation efforts.
+				- 4. Holding the Salespeople Accountable to the Same Process
+				- Here’s the basic sales process Hubspot started with:
+				- 17 of 21     Sales has changed a lot in the past decade, and this process is more adapted to the modern world. It focuses on “Always Be Helping” instead of the old adage “Always Be Closing”. Roberge breaks down the first three steps:
+					- Research: Stats show that prospects are [57% of the way through the buying process](http://www.executiveboard.com/exbd-resources/content/digital-evolution/index.html?hs=mnc) by the time they talk to a salesperson. Take the time to do research on them. Look them up on LinkedIn. What department do they work in? How long have they been at the company? Are they a VP or intern? Who is their boss? Do they know anyone at your company? Do you know anyone at his or her company? Spend this time to learn about them.
+					- Prospecting: This is about the context that the prospects are coming to you from. Equip your sales team with the information on how the prospects are engaging with you. How and when did they first hear about you? What pages on your site did they visit? Do they receive email from you? Do they open it? This context can help set the sales messages. The other important part is to listen. If the prospect is sending buying signals (i.e. opening email, visiting website, mentioning the product on social media, etc) you need to know about them and react.
+					- Connect: This is not leading with the elevator pitch; it’s leveraging lead intelligence and advising. Did they just download your Facebook marketing guide? Call them up, tell them who you are, and give them additional tips on Facebook marketing. They may not like to talk to salesperson, but when they realize that you’re helping them and not reading off a script, they’ll be much more engaged. A good signal of engagement is a real conversation – where they’re asking questions. Eventually the call may get into the prospects product. From there you can set up a meeting to see how your product will work for them. It’s important to train salespeople to live their prospects life, and advise them. They downloaded the Facebook marketing guide because they wanted more leads/engagement on Facebook. The company helped them by providing an eBook, and the salesperson goes further by providing more tips. When done correctly, it feels more like a doctor and patient than a salesperson and a patient.Metrics-Driven Sales Coaching
+				- Roberge likes his managers to maximize the time they spend coaching. Yes, they tasks like forecasting, but the time spent doing that should be limited.
+				- New managers often struggle with coaching. They’re overwhelmed with the gap of where the rep is today and where they want them to be. Great sales coaching relies on finding the one thing will make the biggest difference in bringing the salesperson to the next level.
+				- Roberge uses metrics to help give him guidance:
+				- 18 of 21     This is basically a funnel for salespeople. It shows how many leads they got, how many of those they worked, how many got to the demo stage, and how many of them closed. He looks at the conversion rates for step, and that helps him isolate how the new hires that are struggling are different from the top salespeople. Based on where they’re struggling in the funnel, they can prescribe the right coaching for that skill.
+				- The more Roberge can isolate the data, the better he’ll be able to diagnose and provide better coaching. For example, if Roberge finds that they’re working a lot of leads but not getting any demos, then he’ll try to learn more from the data. Is the problem that they’re not getting any connects? Or is it that they’re getting on the phone, but not getting a demo? The coaching depends on the answer.
+				- Video & Slides
+				- Q&A begins at 25 minutes, 20 seconds.
+				- 1 of 21     2013 10-17 sales hacker conference from HubSpotRelated Posts
+					- [How to Build a Thriving Culture – An Interview with Dharmesh Shah, Co-founder of HubSpot](https://blog.kissmetrics.com/culture-at-hubspot/)
+					- [How HubSpot Approaches Inbound Marketing, Culture and Sales](https://blog.kissmetrics.com/hubspot-marketing-culture-sales/)
+				- How to Optimize Your Growth with KISSmetrics
+				- Learn how to optimize your conversions and acquire more customers with KISSmetrics!
+				- [Get Free Download Now](http://grow.kissmetrics.com/optimize-growth-with-km)
+			- Trainining + Becoming a Good Manager
+			  collapsed:: true
+				-
+					- [http://www.chrisducker.com/getting-started-with-outsourcing/](http://www.chrisducker.com/getting-started-with-outsourcing/)
+					- How-to teach your assistant to do X [http://www.chrisducker.com/category/going-virtual/](http://www.chrisducker.com/category/going-virtual/)
+				- [http://www.vsfacademy.com/](http://www.vsfacademy.com/)
+				- #1 Video Screen Capture – Visual Delegation
+				- Head over to http://www.techsmith.com/jing/ and download Jing. Jing is a FREE
+				- application that you download onto your MAC or PC, which will allow you to take
+				- really short screen capture video’s like this one.
+				- You can then write down the lists of tasks you have for your virtual assistant, open up
+				- Jing and create FREE short video tutorials that visually explain what you would like
+				- done. This is great when you need to delegate any creative work, or website updates.
+				- They can be up to 5 minutes long, and when finished, you simply upload them
+				- directly to Screencast and send your VA the link to the video — it’s as simple as that.
+				- #2 MP3 – Audio Delegation
+				- MP3 is fantastic for delegating your daily administrative tasks, just use the same
+				- principle as the screen capture and make a list of tasks that you would like your VA to
+				- do. This works great at the end of the work day, as you can simply make your list, and
+				- create an audio file link like this one:
+				- It’s important to always start your audio’s off with a date and time for reference. Once
+				- you have reeled off all of the tasks you would like your VA to do the following day,
+				- simply send them the audio file on an email before you leave the office. This is a
+				- really simple yet effective way to delegate – FAST!
+				- #3 Templates – Written Delegation
+				- If you would like to delegate via text, then you can still make this just as productive
+				- by using a delegation template. This is a standard layout which you use to delegate a
+				- task or project to your VA, as you can simply fill in the gaps each time you would like
+				- to make a new request – just like this one:
+				- REF:
+				- Try to apply a reference to the tasks – especially if you have a large team, or a lot of
+				- tasks to complete.
+				- Task Summary:
+				- This will be a short description for the task you are assigning.
+				- Assigned To:
+				- The name of your team member who will be doing the task.
+				- Priority:
+				- Low / High / Normal
+				- Start Date:
+				- When you would like the task started by.
+				- Due Date:
+				- When you would like the task completed by.
+				- Full Description:
+				- A description of what you would like them to do.
+				- Applicable Links:
+				- Add any applicable links relevant to your request, such as websites or email
+				- addresses.
+				- Require Notification:
+				- Yes/No – Tell your VA whether you require notification when the task has been
+				- completed.
+				- Find a template that works for you, and create different ones for different tasks
+				- and projects. If you have a lot of tasks which are similar, keep records of the
+				- templates so you can quickly pull the ones out that you need on a regular basis for
+				- even easier delegation!
+			- Virtual Freedom: How to Work with Virtual Staff to Buy More Time, Become More Productive, and Build Your Dream Business
+			  collapsed:: true
+				- Welcome, my friend, to superhero syndrome. Your symptoms will no doubt include the following: • If there’s any money to be saved in doing something yourself, you’ll do it. • If you don’t know how to do something, you’ll teach yourself. • You may have the inability to take criticism of any kind. • You’ll believe that your ideas and concepts are far greater than anyone else’s. • The word “recharge” will only apply to your cell phone.
+				- With the extra time and more efficient systems I had created, I was able to launch another endeavor—Virtual Staff Finder, a professional VA matchmaking service.
+				- First, take a moment to think about all of the activities your business needs just to maintain itself—these are the day-to-day tasks such as customer service. Next, consider all of the activities needed to grow your business; this might include content creation, for example. Then, go through and highlight the items that you enjoy doing personally. Now you’re ready to create your 3 Lists to Freedom.
+				- If you’d like to see a video version of this exercise, head over to ChrisDucker.com/3Lists
+				- easy trap to fall into when you find a VA who works exceptionally well for you. You may think your VA will always be with you and start building around his or her strengths instead of focusing on building a team. I truly value the longevity of my staff, but I would never put my company in a position where it would be completely destroyed if I lost someone. Each role within your organization should be clearly defined, and you should know exactly what you would do if someone decided to quit or if you needed to let someone go.
+				- You’ll learn how to handle this part of the journey in Section 2 of this book.
+				- think of outsourcing as falling into two different categories: project-based outsourcing and role-based outsourcing. • Project-based outsourcing is used when a business needs just one task or one project completed. This might be a simple task like creating a logo or installing an auto-responder form on a website, or it could be a more detailed project like creating an e-commerce site or a mobile app. • Role-based outsourcing involves finding someone to fill a particular rol
+				- • Project-based outsourcing is used when a business needs just one task or one project completed.
+				- In order for this to make financial sense, you’ll need to have enough work to justify paying someone regularly to perform these tasks.
+				- The upside to having a full-time or part-time employee on your team is the speed at which you’ll be able to implement everything you want to do. But what if you don’t have enough work or revenue to support a full-time or part-time virtual employee? Great question. For now, you’ll need to work with a project-based mindset but keep a long-term perspective
+				- Jared realized that although he was certainly not short on staff, he was short on projects and tasks for them to work on. Even with the support that he had in place, Jared was operating his business on what he now calls the “just in time” model, where he would stress himself out trying to come up with tasks for his staff to do—
+				- He now operates his business using what he calls the “just in case” model. This model entails hiring several part-time VAs to do the necessary work but only when it needs to be done. For example, he has hired VAs to aid in the design and development of a new tactic—hiring simply “just in case” he needs to
+				- Just imagine what it would be like to have more time to work on your business instead of constantly working in the business. In order to get there, you must first begin by defining the roles your business needs to fill.
+				- Examples of Typical Duties • Install and customize blog and website themes. • Install shopping cart and “buy now” buttons. • Create e-commerce sites. • Create membership sites. • Maintain backups and make sure software and plug-ins are all up to date. • Work with PHP and other scary programming languages.
+				- 3. Graphic Designer
+				- Examples of Typical Duties • Create logos and business cards. • Design product images and retail packaging. • Make 3-D images for video. • Customize web icons and buttons. • Design original websites and create new concepts.
+				- Examples of Typical Duties • Write 500- to 1,200-word blog posts. • Create descriptions of podcasts (also known as “show notes”). • Write press releases. • Research, outline, and write e-books and white-papers. • Write website content. However, I suggest that you never outsource the writing of your “About” page. The owner of the blog or business should always write this page. • Read through articles and books you recommend to come up with similar content ideas. • Upload articles to blogs. Not all writers will be able to do this initially, but it is an easy skill you can train your writer to do, particularly if your site runs on an easy-to-use platform like WordPress.
+				- 6. Video Editor
+				- Examples of Typical Duties • Splice and edit raw video files. • Integrate different clips and transitions to keep your audience entertained. • Add music and other audio effects, such as zingers. • Incorporate special effects, such as animated text. This is only necessary if it helps enhance your story or move it along. Using effects just for the heck of it will only serve as a distraction. • Upload videos. Once edited and approved, your editor can make sure your video is properly uploaded to YouTube and other video-sharing sites.
+				- 7. App Developer
+				- Examples of Typical Duties • Create initial design and layout options for the app. • Build an app wireframe to show how the app will work. • Program in various languages such as JavaScript, PHP, jQuery, Node.js, MySQL, and many more. • Test app on various devices, such as iOS, Android, and BlackBerry, to confirm compatibility. • Submit the app and manage it through the iTunes Store and other directories.
+				- Hiring a VA is a process. You’re looking for a good fit—not the perfect fit. Don’t settle on anyone, but also understand that the only way to truly know if someone will work out is to give him or her a chance. This whole thing is a learning process that will get easier for you as time goes on. • Listen to your gut
+				- Pay attention to response time. If you’re going back and forth with a potential VA and you’re not happy with his or her response time—or if the candidate continues to miss specific questions in your e-mails—then expect the same type of interaction in your day-to-day workflow. Then ask yourself, “Can I live with this?”
+				- Finding the Right Virtual Staff
+				- Staffing companies allow you to rent employees from them to perform the various tasks you need completed. I can’t think of a good reason why anyone would want to take this route. Allow me to explain why. Things to Consider • These services are expensive because the outsourcing companies profit by marking up the cost of each VA’s work. • The VAs are not part of your team—they’re paid by the outsourcing company and not by you. • There’s little opportunity to create loyalty and trust because the worker is employed by the outsourcing company and not directly by you. • If the outsourcing company goes out of business, all of your help will be lost overnight.
+				- Job-Posting Sites
+				- 2. Job-Posting Sites
+				- 4. Award a freelancer the job. 5. Set project milestones and begin!
+				- Between keyword research, backlinking, and writing 500-word articles on random topics like train models and Christmas lights, Tom’s days quickly turned into a nonstop grind.
+				- time and lessons allowed Tom to build two companies—an SEO company and a publishing company—that he now runs with VAs he can depend on.
+				- Here are two other assumptions that I’ve seen rear their ugly heads over and over again: • If a VA doesn’t know how to do something, he or she will immediately ask for help. Across the board, most VAs would rather try and figure something out themselves
+				- The VA will understand your definition of “a reasonable amount of time.”
+				- Instead, try saying: “Please (insert task here), but don’t take any more than two hours on it. If you’ve reached the end of the two hours and haven’t finished, let me know and we can talk about it.”
+			- Work the System
+			  collapsed:: true
+				- better than e-myth
+					- [http://www.tropicalmba.com/a-framework-for-hiring-and-and-managing-employees/](http://www.tropicalmba.com/a-framework-for-hiring-and-and-managing-employees/)
+					- Why are we doing this? When are we doing this? What precisely do we do? How much does it cost us?
+					- If it makes you money, there's a process behind it. Write down that process so you can teach someone how to make that money for you. Those processes helped us to look at a small bundle of standard operating procedures (SOPs), figure out about how much they cost us to execute, and then say (for example): we should hire somebody to execute SOPs #1, 2, and 3, assuming their salary is in x range. We felt empowered to step back and take an objective look at our business. Should we automate this with software? Should we hire a consultant to do this stuff? Should we be doing it at all?
+				- If you don’t give the job to somebody else, it’ll be yours.
+					- Use Google Docs with SOD
+						- Links to Projects > Procedures > Principles > Mission (highest)
+						- Principles may change monthly, procedures weekly, projects daily
+						- Projects 1st
+					- 4) Mission - fundamental purpose, vision
+					- 3) Principles - General Operating Principles
+						- Our business focuses on [this one key problem]. We use this as litmus test for all of our actions and resulting procedures
+						- We aim to respond to customers within 2 hours on business days
+						- We go out of our way to delight our customers
+						- We greet everyone with a positive
+					- 2) SOP Documents
+						- e.g. step-by-step for customer service; podcast production; newsletter; pillar content; content moderation
+						- E.g. podcast - note any memorable/high-impact phrases or the main topics to use in the "What this is about". When editing the main track, write down anything mentioned that you need to link to in teh show notes. Also cut and save any funny stuff to use as tags in the future and save to Dropbox.
+						- > If there's ever a problem with the result (e.g. finished podcast) you can look at what needs to be changed about the process, not the people
+					- 1) Projects
+						- Weekly basis (rather than tasks)
+						- @DISCUSS - used to reduce emails + length of skype calls
+							- Basically the issues which need to be discussed, the subject line
+							- These should be deleted after emails/skype calls
+					- Notes
+						- Can highlight parts of document and add comments
+						- Setup email alerts as to how/when SOD is updated
+				- Work the System
+				- It’s a one- to three-month program (the time necessary to complete it depends on the complexity of the business and the owner’s availability to make changes). It’s called the Work the System Academy (see appendix D and go to work- _ thesystemacademy.com for the most up-to-date information).
+				- My website is workthesystem.com, _________ and I post when I feel inspired. Please join me there. Also take a look at my list of suggested reading at workthesystem.com/reading.
+				- Fixing anything of complexity requires proceed- ing one step at a time, one component at a time—a decidedly nonholistic approach. I don’t care for the term holistic solution. Instead, I like the term holistic result, which suggests that each component system within the organism is functioning at peak efficiency, resulting in an entity that is superb in fulfilling its purpose.
+				- Documentation: Creating written goals, principles, and pro- cesses that are guidelines for action and decision making for you and for the people who work with you.
+				- 2. Documentation: Creating written goals, principles, and pro- cesses that are guidelines for action and decision making for you and for the people who work with you.
+				- 3. Ongoing maintenance of systems: Greasing the wheels. This is easy. The positive tangible results of the work the system method are motivating because it’s obvious the systems you’ve created are carrying the ball. You’ll happily oversee your systems in order to keep them operating at peak efficiency.
+				- General Operating Principles: The second of the three primary work the system documents; a two- to four-page collection of guidelines for decision making that is congruent with the Strategic Objective. Essen- tial for the work environment and in a simplified and shorter format, useful in one’s personal life (see chapter 10).
+				- Linear: This is how most systems execute, in a 1-2-3-step progression. A linear process is not chaotic. Within its context it is logical, reliable, and simple to understand.
+				- Project engineer: The role of a business owner or manager who adopts an outside, system-improvement posture rather than an inside, doing- the-work role. For personal life, it’s in-the-moment positioning in which one’s systems are contemplated, analyzed, adjusted, and maintained.
+				- Strategic objective: The first of three primary work the system docu- ments. It’s a single page that defines goals, describes methodology, lists strengths, and prescribes action (see chapter 10).
+				- Working Procedures: The third of the three primary work the system controlling documents. These are written instructions that describe how individual systems of the workplace are to operate. They are the end products of the system-improvement process. Written Working Procedures are not often necessary for personal life (see chapter 11).
+				- Conversely, while we’re focusing on those factors that are in our control, we must lighten up about those that are not in our control. If we attempt to influence events that are out of our reach, we are in for disappointment. Is it difficult to determine what we can and cannot control? No, it’s not.
+				- what’s happening now is the most important thing. But I also know that the satisfaction I feel in any particular moment has much to do with the details I’ve carefully managed in days past. Yes, I try hard to be here now, but I spend some of that here-time focusing on actions that will ensure future moments will be what I want them to be.
+				- Through it all I balked at everything that didn’t align itself with my idea of rightness, chafing at the unfairness of it all. It was the system, I thought. It’s stacked against me. I ranted that too many narrow-minded, selfish people were manipulating things, conspiring to ruin my life.
+				- “I’m not living like this anymore. Until now my point of view has been wrong. No longer will I try to change the world by whining about it. There is very little outside myself I can direct, so I will stop agonizing over events outside my reach. I will arrange to go back to school this fall to learn something that can be used to create a future for us. From now on there will be no more complaining, no more blaming. Rather than rejecting the world as it’s presented to me, I will get inside it—as it is—and see what I can do with the parts of it that are within my grasp.
+				- I was improving my life—and the lives of the two people who were depending on me—by expending my energy only on details that I could control.
+				- she’s laughing as she whirls with her arms stretched above her head in a casual way. Her thin, handsome, ponytailed boyfriend is dancing, too. They share a peaceful ecstasy, and anyone who sees that photo would, at least for a moment, want to be one of those two young people. The image is a declaration of pure bliss with the clear message that unrestrained happiness is attainable, and the path to it requires no more than an unrestrained persona, hip music, and an unlimited supply of drugs. With a broad metaphorical brushstroke, the message that photo paints is that freedom will arrive as soon as we drop our uptight preoccupations and dance in the meadow. Let it all hang out. Stay loose. Go with the flow. Chapter 1: Control Is a Good Thing 19 Back to the real world. The photo is an enticement for a state of mind that exists only for brief moments. Its message on how to live is a sham. One can’t just lighten up and expect ongoing happiness. Life isn’t that way. But many of us who evolved from that era think it should be that way, and so we live from day to day in perpetual disappointment within a world that refuses to conform to our expectations.
+				- happiness would not be found in the control we have over others or in complaining about world conditions or in finding the perfect drug. It would be found in the firm grasp of the moment-to-moment trajectory of our own lives.
+				- We were college-dropout party guys and proud of our chaotic lifestyles. We never thought of the relationship between our undirected lives and our unhappiness.
+				- The lure of dancing in the meadow is an invitation to illusionary bliss. Truth is, orderliness and attention to detail are the roots of peace.
+				- Consider the indisputable reverse logic: in any setting, the opposite of peace—disorder—always leads to desperation. It’s this way for any out-of- hand situation: a natural disaster, riot, war, car accident, or family argu- ment. The outcome is never a pretty sight. Too many of us are paralyzed in the static picture of how we think the world should be instead of working with the fluid mechanics of how 22 Work the System it actually is. Life is not a snapshot. It’s a real-time, streaming video—and the video plays on whether we understand it or not.
+				- an unfounded assumption smolders. It whispers there is chaos all around, that systems and organization are bad and that Big Brother is right there behind the curtain, always steering things in the wrong direction. This thread of paranoia leaves too many of us obsessing about condi- tions that are not in our control, and the obsessing distracts us from taking the actions that would truly make us free! It’s not the system that holds people back. It’s a flaw in individual perception.
+				- Yes, focused attention, terrific staff, targeted marketing, and a consistently high-quality product went a long way, but they were not the cause of the turnaround. Instead, these were by-products of the cause. The reason for the turnaround was the discovery and application of the principle that leadership must focus on improving processes, not on performing the work or on repeatedly snuffing out brushfires.
+				- Since these businesses can’t cover their phones 24/7, they must employ an answering service to screen and process their after-hours calls. And, a significant number of businesses use an answering service during daytime hours when incoming phone traffic is more than can be handled in-house, or if the company is tiny and has no physical office.
+				- First, it intrigued me that it was all about people and communication. Second, revenues would be passive. If managed properly, I would not have to be physically present in order to receive income. I was new to busi- ness, but it seemed to me that making money without having to show up to do the work would beat being a doctor, attorney, teacher, psychologist, working man, or any number of occupations where a specific individual is the centerpiece of the endeavor. Third, revenues would be recurring—clients would continuously use our services and pay us over and over again. If clients paid monthly, gener- ating new income would not be a full-time daily challenge. I reasoned that if the product was superior and our clients were happy, the money would constantly flow.
+				- Installing a Preventative System Sometimes we install a system that doesn’t do much. We achieve the desired effect by the mere existence of it. At Centratel, we knew that a few of our TSRs spent time cruising the Net while on duty. For security and focus reasons, that’s not a good thing.
+				- So we installed special software that tracks and logs all Internet activ- ity. The software solved the problem instantly and completely.
+				- Yes, when we fi rst installed the software without announcing what we had done, the expected suspects emerged. Did we say anything to them? No, it wasn’t necessary because we knew that once we announced the installation and noted it in our Employee Handbook, the people who were violating the rules would change their behavior. Did they? Yes. In routinely checking the monthly logs, have we had subsequent abuses? No.
+				- Yes, when we fi rst installed the software without announcing what we had done, the expected suspects emerged. Did we say anything to them? No, it wasn’t necessary because we knew that once we announced the installation and noted it in our Employee Handbook, the people who were violating the rules would change their behavior. Did they? Yes. In routinely checking the monthly logs, have we had subsequent abuses? No. In our society, other examples of preventative systems include drug testing, the police, the military, and laws. These mechanisms provide consequences for bad behavior but are mostly intended to halt problems before they occur.
+				- Think of preventative systems and mechanisms in your personal life: the seat belt in your car that doesn’t just protect you from injury but reminds you that a defensive driving posture is paramount; the routine backups on your computer; the small courtesies you show to loved ones and strangers alike. As you go through your day, think of systems you can implement that will prevent problems down the line while they keep things smooth in the present.
+				- Within moments I could move from scheduling staff to handling customer complaints to solving telephone company problems. I could interview a job applicant for a TSR position one minute, and in the next put together a plan for adding a computer. I could prepare payroll while I signed up a new account and then head to the bank to plead my case for yet another small loan.
+				- We would run out of critical office supplies and not have the time to leave the premises in order to replace them. Turnover among TSRs was incessant, and scheduling was haphazard, put together at the last moment.
+				- But despite the heroics, the mole whacking was distracting me from seeing what was necessary to fi x my business and my life. The incessant disaster control was blinding me from the reality that I was playing a game I could never win.
+				- with each protocol executed in an orderly, linear fashion whereby one step follows another step until the sequence for that particular process is complete. I knew instinctively that the rest of my life operated in the same way: as a collection of separate and indepen- dent processes, each functioning in a predictable, reliable 1-2-3 sequence according to its own construction.
+				- my leadership in the business had been reactionary and therefore horribly inefficient.
+				- my leadership in the business had been reactionary and therefore horribly inefficient. I had taken the wrong stance because the mechanics had been invisible to me! All I did was kill fires, unaware that those fires were the products of dysfunctional subsystems.
+				- The primary system that was my business was out of control because it was composed of uncontrolled subsystems!
+				- Few people think their problems are a result of personal process fail- ure. Most see their troubles as isolated events, blaming fate,
+				- I now float through the day in fascination. Instead of wallowing in a hodgepodge of unpredictability and fire killing, I see events and objects as part of one structured system or another. This real-time, outside-and- slightly-elevated perspective has channeled peace and prosperity into my life and into the lives of those who depend on me. I call it semi-enlightenment.
+				- Instead of wallowing in a hodgepodge of unpredictability and fire killing, I see events and objects as part of one structured system or another. This real-time, outside-and- slightly-elevated perspective has channeled peace and prosperity into my life and into the lives of those who depend on me. I call it semi-enlightenment.
+				- By perfecting your life’s individual systems—by identifying them and then rebuilding them one by one—order and peace accumulate incrementally.
+				- In the workplace, permanence happens first by creating written descriptions of how systems are to operate, and second, by making sure responsible parties follow the steps described in the documentation.
+				- I had to put aside the hammer and dig down into those tunnels to find out exactly where those moles hid. When I found them, I would ruthlessly strangle them one by one.
+				- And while I was down there taking care of mole extermination, I would find a way to prevent any mole relatives from returning later.
+				- I just needed to identify individual subsystems and then, one by one, optimize them.
+				- I would no longer deal with the bad outcomes of inef- ficient systems. Instead, I would expend my energies on perfecting those systems— and good outcomes would come along naturally.
+				- Unhappy people are not in con- trol of their lives because they spend their days coping with the random bad results of unmanaged systems. Happy people are in control of their lives, spending their days enjoying the intentional good results of managed systems.
+				- 1. We would exactly define the overall goals and strategies. It would be done on paper by creating the Strategic Objective and the General Operating Principles. 2. We would break down Centratel’s workings into subsystems we could understand:
+				- 3. Once isolated, exposed, and understood, we would refine and per- fect those systems—one by one—so each would contribute 100 percent toward the stated goals of the Strategic Objective. As needed, we would create new ones from scratch. We would dis- card useless ones. We would document each process into a Work- ing Procedure, thus making the perfected system permanent. The execution of the perfected systems would be automated so they would recur without prompting. 4. We would implement fail-safe, recurring maintenance schedules for all processes. 5. “Replacements” would be identified and trained. Every employee, including me, would have someone in the wings who could instantly take over, should that become necessary.
+				- The doctor’s recommendations had a strong theme, reduction of stress, and this led me to the subsystems of yoga, more sensible exercise, and meditation. Also, I would substantially reduce my intake of caffeine, alco- hol, and sugar. There were other subsystems to modify, including chang- ing the layout of my bedroom, removing the clock from the nightstand, and going to sleep at the same time every night. I would adopt a more con- sistent routine for preparing for bed. Another thing: testing indicated my requirements for sleep were less than average—six hours was enough— and so I should avoid tossing and turning in bed expecting to get eight or nine hours. Waiting to drift off was stressful in itself, so instead of lying there mentally churning away, I should get up and read, work, or even exercise. With the help of my regular doctor, I found my blood chemicals were out of balance. Those chemical imbalances affected my sleep pattern, and with my doctor’s guidance, I began to fi x those subsystem imbalances with supplements.
+				- Now if I fi nd that my sleep is less than what it should be, I can trace the problem back to a violation of one of the dozen or so sleep-system guidelines I listed initially.
+				- First, I would create the Strategic Objective, which would define us and set goals. Second, I would put together the General Operating Principles document, which would serve as our guideline for making decisions. Third, we would begin to write out our Working Procedures, which would exactly define every recurring process of the business. These Working Procedures were the end result and the tangible evidence of our system-improvement quest.
+				- Today, I spend just a couple of hours a week working on Centratel business. One of those hours is for our weekly staff meeting, and the other is for paying bills and attending to various R&D efforts with my staff.
+				- One plus one always equals two, and with the same utter reliability, a drunken night out on the town equals days of subpar physical and mental performance as the human body works overtime to repair itself from the chemical assault. We make our worlds worse in the long term by violating bodily systems in the short term, as we ignore the simple truth that disruption of an efficient process always has its price. One could say that substance abuse is a criminal attack against one’s self.
+				- My physical being was not a jumble of random happenings to which I could only react; it was a logical collection of processes, and some of those processes could be adjusted or altogether elim- inated. And I could add others. So I modified or removed a num- ber of external stress-inducing systems in order to prevent stress events from occurring. The biggest relief was in cutting back my office hours through the rebuilding of Centratel.
+				- 2. I created a personal written plan. I wrote a simple one-page man- agement document in which I described my goals and guide- lines—a personal Strategic Objective. I also created a personal Operating Principles document that included a series of stress- reducing action items.
+				- learn and practice meditation and yoga.
+				- Get a blood test every three months and per those tests, take supplements until my blood chemicals come into balance. See friends at least once a week.
+				- The solution: our bank’s online bill-payer feature. It’s a perfect illus- tration of systems thinking and methodology. Now, writing a hard-copy check seldom happens. Ninety percent of recurring monthly bills are the same amount each month, and the bank software is programmed to pay these bills automatically. QuickBooks automatically logs these monthly payments too, so there is literally nothing to do in order to pay these bills.
+				- Your day can be under your command. Chronic shortages of time and money, emergency decision making, and dealing with less-than-amusing people can be history.
+				- The pathway to control is to discover, examine, optimize, and then oversee your mechanical and biological processes.
+				- and then what you must do to keep this person for the long term while maximizing his or her contribution.
+				- and then what you must do to keep this person for the long term while maximizing his or her contribution. Think about nurturing a relationship with a spouse, coping with the terminal illness of a parent,
+				- system management
+				- Notes: 1) spend a set time every week on systems management
+				- how sUccessFUL PeoPLe negotiate their days If you are like most people, you have not consciously considered the involvement of systems in your daily life.
+				- Notes: 1) create a night routine - invisible council or best self day or private sanctuary
+				- Fifth, maintain them.
+				- Notes: 1) note down all lif goals then carry out regular reviews for maintenance and enhancement
+				- Having your protocols written down is as important as what you think or say.
+				- it—the next prosaic task would be to ensure that my staff precisely followed the documentation.
+				- Yes, the one-time heavy lifting of creating your documentation will be intensive at first, but once in place, your ongoing workload will dramati- cally decrease. In my case, I transformed one-hundred-hour workweeks into two-hour workweeks.
+				- 1. Strategic Objective. The one-page Strategic Objective will pro- vide overall direction. You will create it yourself. Spread out over several sessions, it won’t take more than six to eight hours to com- plete. (Caution: This is not a job for a committee. It’s a job for the leader, you.) Once it’s completed, you will get feedback from your staff (and superiors, if any). Over time, you will adjust it as neces- sary. As the years pass, it won’t change much. Create a separate one for your personal life. (In appendix A you will find Centratel’s Strategic Objective.) 2. General Operating Principles. Upon completion of the Strategic Objective, you will begin to put together a list of General Operat- ing Principles. Just two or three pages long, this condensed guide- lines for decision making document requires ten to twenty hours to complete, but these hours will be spread over a period of a month or two as Principles come to light. (Yes, the creation of this docu- ment is also a job for you, although you will want to get input from others.) You will extract these principles from your everyday expe- rience while formulating them from the perspective of your new systems mindset. These principles are what you believe.
+				- 3. Working Procedures. Instead of killing fires, you will spend your time creating a fireproof environment. Your Working Proce- dures will be the on-the-job, blue-collar tools of this effort. This documentation will be a collection of protocols that outline exactly how the systems of your business or your job will operate. (Working Procedures are not often necessary for your personal life, although the concept should travel with you everywhere.)
+				- “If I don’t enjoy what I’m doing, then what I’m doing is incorrect.” Bad presumption.
+				- The documents you will create are mechanical aids. However, there is something else that is important about them. They are tangible. Their physicality makes what you are doing and where you are going real. With written guidelines, you can put your hands on your work and your future. Every day you will see your goals and methodology, and this will be a reminder to stay on the path.
+				- When you realize you are watching your temporary depression from the outside, you will know you have reached a higher level of control. This is cognitive self-command, the ability to examine and adjust your own thinking from an external vantage point. You see your thoughts as inde- pendent of you, mechanisms unto themselves: singular, tangible entities, just like any of the other system-mechanisms under your direction.
+				- the criminal works the system, as he or she strips away the niceties, examines the raw mechanics, and without concern for others, manipulates those mechanisms to selfish benefit. Yes, the criminal approaches life with a malefic bent, but one can’t deny that it’s a systems approach.
+				- As project engineer I watch over it from a distance, nudging here and there to keep it traveling in a straight line and at full speed.
+				- in order to really see the hard and cold reality of any given situation. Ask, “Without regard for my personal preference, what exactly is going on here?”
+				- The day’s tasks will be one- time, creative efforts, each aimed at carrying you closer to the objectives outlined in your two Strategic Objective documents—one for your busi- ness, one for your personal life.
+				- And at the end of the day, you feel satisfi ed because there has been tan- gible advancement toward your prime objectives.
+				- Management works in the system; leadership works on the system. —Stephen Covey
+				- 2. Pinpoint and describe goals for your business, job, and life. Briefly define the general methods you will use to achieve those goals. This is your Strategic Objective.
+				- 3. Create your collection of General Operating Principles, your guidelines to decision making. 4. Identify specific processes for improvement, including the ones that exist and the ones you must create. Be ready to discard others. Deal with the most problematic ones first.
+				- Put the new Working Procedures into play and tend to them on a regular basis, inspecting and tweaking as necessary. Later, this is where you’ll spend most of your time.
+				- the antidote to a too-busy day, a day that ruthlessly attempts to divert your attention from the enhancement process to wasteful acts of fire killing.
+				- you are a project engineer who creates and maintains efficient systems, not a fire killer who responds to crisis after crisis.
+				- An especially satisfying personal maintenance system is the daily half hour I spend at home working my reorganizing system. This is perhaps my simplest system, nothing more than an allocated daily time period dedicated to a narrow purpose: thirty minutes spent reorganizing. It’s free- form time used to clean things up—straighten out my office, my closet, the garage, my e-mail in-box. Sometimes it’s going outside and pruning 106 Work the System the shrubs. It’s about putting my individual life-facets in order, and it’s the antidote to insidious, looming clutter, both physical and mental.
+				- Another one of my free-form maintenance systems is reading (prefer- ably a book or magazine, not a computer screen). I read daily for at least an hour, usually more. It’s therapy, as it removes the mental frenzy that can develop through the day.
+				- Then, deciding overall what you want them to accomplish, iden- tify defects as well as outside changing situations.
+				- sys- tems to stay fi t, keep in touch with extended family, invest money, main- tain computers, and even climb mountains.
+				- invest money, main- tain computers, and even climb mountains.
+				- In the beginning of my new life posture, I would constantly visualize my electric system analogy and its dictate that I be a project engineer. Now I don’t think about it too often because the systems mindset is per- manently hard-wired inside my being. In every aspect of my life, I am a project engineer. What’s your analogy? A car, a human body, an airplane, a ship?
+				- Boring but true: to end workplace chaos, get the elements of it down on paper.
+				- First, put together the Strategic Objective.
+				- Limit it to one single-spaced printed page.
+				- Per verifiable statistics, we would become the best among 112 Work the System the two thousand competitors in our industry. This was our first concrete objective.
+				- use of the present tense in the first line: “We are the highest-quality telephone answering service in the United States.” (See appendix A for the complete text of Centratel’s Strategic Objective.)
+				- Without syrupy excess, it includes a brief narration of what the company does, where it’s headed, and how management and staff will get there.
+				- note that Centratel’s Thirty Principles document is a Working Procedure in itself. (And note that it is a nonlinear Working Procedure—a set of components that are not sequentially related, but each of which must be considered across a wide spectrum of decision-making possibilities.)
+				- You will find your personal principles resemble the set you put together for your work because they reflect your character and your preferred way of approaching the workings of the world. For whatever roles you’re playing, these principles will remain constant in your life.
+				- Centratel’s Principle #8: “Just a few services implemented in superb fashion.” Ten years ago, this tenet mandated that we stop selling cellular telephones as an add-on service.
+				- Principle #30: “We strive for a social climate that is serious and quiet yet pleasant, serene, light, and friendly.” Because this principle is written down, our offi ce is like that: the principle is a hoop through which all decisions must pass. The openness of the physical lay- out, abundance of live decorative plants, the special full-spectrum lighting, the orderliness and quietness of it all, make Centratel a comfortable place to work.
+				- The Strategic Objective keeps us focused; the Principles document guides our decision making so we are in keeping with the Strategic Objec- tive.
+				- (Centratel’s Thirty Principles are listed in appendix B. Feel free to plagiarize.)
+				- If one digs a bit, it becomes clear why we have problems finding job applicants— and the good fortune of having high staff stability. It’s our drug-testing policy, as posted in the Employee Handbook. Before we instituted drug testing, we had plenty of job applicants, but there was high staff turnover. A staff that uses drugs is flighty, and a flighty staff means call-handling expertise achieved through long-term experience and unhampered focus won’t happen. People come and go, physically and mentally. Our brutal judgment is that only a limited number of service-industry job candidates are drug free. It’s a painful, almost unbelievable conclu- sion, but we operate on that basis because the statistics bear it out. The choice seems to be, “I’d rather smoke dope at a minimum wage/no ben- efits menial job than not smoke dope at a job where I could earn more than double the minimum wage and receive full benefits.” Ouch. Many business owners understand the truth of this so they don’t require drug testing.
+				- Per our Strategic Objective, we looked down on our business and decided we couldn’t reach our goals without a stable, clear-thinking workforce.
+				- Per our Strategic Objective, we looked down on our business and decided we couldn’t reach our goals without a stable, clear-thinking workforce. We made the decision to trade the chaos of high staff turnover for the staid challenge of finding drug-free people who are steady, superb performers.
+				- I occasionally remind my employees that it is my personal moral obligation to provide them with the tools to do their jobs. Expecting an employee to be able to read the boss’s mind is not just an absurd expecta- tion, it’s unfair. I tell them that.
+				- We also have a number of nonlinear Working Procedures that are better explained in either a narrative or bullet-point format.
+				- Key point number one: Create a formal “bottom-up” corporate expecta- tion whereby line staff is encouraged, and expected, to pass recommenda- tions up to managers. And managers will do the same with their managers, and so on, right on up to the top of the management chain.
+				- procedure documentation is not limited to just the obvious problem areas. It applies to all internal sys- tems. Documenting a seemingly flawless system will often reveal small imperfections.
+				- Key point number four is to create your Working Procedure docu- ments for anyone off-the-street. This means that someone who doesn’t even work for your organization could perform the process.
+				- the Procedure is to be executed exactly as described. For staff or even outsiders, this intense regimentation can be off-putting at first. However, there is a critical counterbalance to that regimentation. If a staff member recommends a change, and affiliated staff and direct management concurs, the change will be made instantly.
+				- the litmus test for simplicity is that anyone from outside the company, off-the-street, would be able to perform the procedure.
+				- the key is to keep the uncompleted task front and center, and to have the person who delegates the task be the same person who confirms the task is completed.
+				- Whatever the method, the key is to keep the uncompleted task front and center, and to have the person who delegates the task be the same person who confirms the task is completed.
+				- This master Working Procedure lays out the format and tone you want staff to use in creating everyday Working Procedures! Once complete, you will train your people to use it exactly. (Centratel’s Procedure for Procedures is listed in appendix
+				- (Centratel’s Procedure for Procedures is listed in appendix
+				- Note: A quiz for testing comprehension of the work the system principles is available at workth- ___ esystem.com/quiz.
+				- the centratel staff is Paid to tweak We pay TSRs a bonus of up to 30 percent of their previous months’ wages based on their personal performance in the current month. However, in order to qualify for the bonus, each month a TSR must submit at least twelve recommendations for improvement of the main customer Chapter 11: Your Working Procedures 129 information database—the same database TSRs use to process client calls.
+				- TSR submissions may be as minor as a missing comma or as large as a recommendation for a new message relay protocol. Via e-mail, each suggested revision is submitted by a TSR to a supervisor. The supervisor examines the suggestion, and if it’s viable, instantly makes the database revision. This is how we keep the information system that is the heart of our operation superbly accurate: by paying our people to aggressively search out imperfections and then eliminate them. your competitors don’t do this
+				- “We’re building a (expletive) power line, not a (expletive) clock!” Well, the pole was out of alignment, and his crew did go back to reset it properly, but his power line/clock analogy has stuck with me through the years. That cut-to-the-bone comment, however off-target in that par- ticular circumstance, is an enduring reminder that the quality of work must not exceed the required result.
+				- “In descending order of impact, what have been the top five mistakes of my life?” When I propose this question to friends, they chide me about dwelling on the past and focusing on the negative. Yes, I understand all that, but if one spends some time summarizing, a commonality will surface, one that can be use- ful for future decision making. It’s important to approach the task with an objective and detached persona.
+				- On my list—and I’ll bet yours, too—the largest errors were not the result of overt mistakes; they were the outcome of failing to take steps that should have been taken. These are errors of omission. The large errors of omission are bad enough, but numerous small ones will add up to an equally dire end. Is there a primary cause for errors of omission? Yes. Too often it’s pro- crastination, or what I call a lack of quiet courage.
+				- Failure to • exercise leads to a lethargic energy level and an unhealthy mind/body; • recognize birthdays, anniversaries, and holidays contributes to the transformation of a friendship into an acquaintance;
+				- “What am I not doing right now that is holding me back?”
+				- Centratel’s internal battery backup mechanism automatically took over, keeping all telephone answering service computers operational. But the backup system has only a three-hour capacity,
+				- Principle #7 of our Thirty Principles document says: “Problems are gifts that inspire us to action. A problem prompts the act of creating or improving a system or procedure. We don’t want setbacks, but when one occurs, we think, ‘thank you for this wake-up call,’ and take assertive system-improvement action to prevent the setback from happening again.”
+				- We had to be able to process calls without interruption, with or without externally supplied electricity. The system solution? We purchased an on-site generator. The instal- lation was a long, drawn-out, and expensive process with numerous com- plications, including structural challenges, permits from city government, and finding the right people to do the work. But the new generator, which operates on either natural gas or propane, ensures that should a cata- strophic power outage occur, we will be able to continue to process calls
+				- Quiet courage is unadorned action and is the opposite of procrastination. A lack of quiet courage incites an error of omission. Quiet courage resides deep inside and causes one to buck up to do what needs to be done whether one wants to or not.
+				- visualize laziness as an object, something tangible that is outside of you and perched on your shoulder, like a small bird. Once the mechanical laziness is observed— most often it is temporary indolence cloaked by some lame excuse, such as “I’m too busy right now” or “I’m too tired”—just brush off the external seduction and get moving without a second thought. As the excuses line themselves up, the second approach is to ask, “Why am I being cowardly in this moment? Why am I being a sissy?” It’s a bit of twisted psychology that rattles the cage and inspires passionate reaction. Of all human failures, cowardice is perhaps the most abhorred. Procrasti- nation—that is, the lack of quiet courage—will ruin your life if you let it.
+				- Let your Mac or PC do the multitasking. In fact, a tenet of Centratel’s philosophy is that our staff members do not multitask. Rather, they “give full attention . . . to the detail at hand” (Principle #27). This means proceeding in a single sequential, linear format.
+				- (See appendix I for an overview of Centratel’s communication strategy.)
+				- In your business or job, or in your personal life, how much of what you do really matters?
+				- Start with good people, lay out the rules, communicate with your employees, motivate them and reward them. If you do all those things effectively, you can’t miss.
+				- Tell them it’s better to make mistakes than to hem and haw or wait for approval.
+				- they should be encouraged to make suggestions about improving existing ones.
+				- In our search for system-oriented personalities at Centratel, here are a few hoops that job applicants must negotiate. Note that clear-headedness and self-discipline are common threads. Did the applicant: 1. Show up for the interview on time? 2. Achieve the minimum required score on the aptitude test? 3. Know about the business? Did he or she check out the website before applying for the position? Are there questions about what goes on, or is the applicant just looking for any job? Is advance- ment important? 164 Work the System 4. Smile? Seem happy? Generally, did he or she seem to be self- disciplined? 5. Listen to you, or were your words sliding by unheard as he or she waited for the next opportunity to pitch his or her expertise? 6. Carry on a reasonable conversation? Did he or she look you in the eye when speaking? 7. Appear to be literate? How does the resume and any written work performed as part of the interview process look? How did the applicant verbally express himself/herself (too many “yeahs” and “ya knows”)? 8. Convey taking care of herself or himself? If not, the raw truth is that in most cases of personal neglect, there is a corresponding lack of self-discipline. 9. Previously bounce from job to job? 10. Pass the drug test? 11. Pass the criminal background check? 12. Have solid references? By breaking down the subjective interview process into bite-sized component parts, we transform it into an objective, black-and-white test.
+				- Use gut feelings to disqualify rather than to qualify people.
+				- Centratel, it is critical the job applicant passes through all of the aforementioned hoops. If he or she fails just one, we won’t offer the posi- tion because that one negative indicator probably points to a problem that can’t be neutralized even by all the other positive attributes added together.
+				- Centratel’s Latte Monday drinks (we buy coffee or cocoa drinks for everyone on busy Monday mornings)
+				- We bombard the unhappy customer with tender loving care to the point where he or she is happier after the error than before it. (Via our Complaint Procedure, we call the customer back a minimum of four times, at prescribed intervals of one day, three days, ten days, and thirty days, to make sure the error has not repeated itself.) Also, two staff members call customers on a regular basis, just to see if everything is OK and to update their account information. 172 Work the System Our Complaint Procedure doesn’t end there. We also inform the entire staff of every complaint, as well as the steps taken to remedy less-than-perfect situations.
+				- in a prosperous business the leader spends most of his or her time supervising the adjustment and maintenance of subsystems.
+				- Do some organizing every day, even if it’s just for fifteen minutes each time.
+				- Five years ago we had problems with two Centratel employees. The fi rst one’s work was very good, but he failed a random drug test. The sec- ond one’s work quality was also exceptional, but she violated our computer privacy policy. Both instances were serious breaches of the company’s written guidelines.
+				- The system solution? We spell out rules, regulations, and guidelines in our Employee Handbook, viewing this collection of policies as a pri- mary system in itself—a giant Working Procedure. (You can fi nd the entire thirty-fi ve-thousand-word document at centratel.com, ___ under Resources.) All employees are required to understand the company’s policies and sign a statement showing that they accept them as a condition of employment. Per the handbook, these serious violations were cause for employment termination. And that’s what happened. We ended their employment on the spot.
+				- The quality of your communication equals the quality of your life. —Anthony Robbins
+				- quantity of communication is a direct determinant of the quality of communication.
+				- More communication leads to better efficiency, stronger cooperation, and deeper trust. Between two people—or between two nations—if silence reigns, problems will arise in the relationship or there will be no relationship at all.
+				- If lots of communication occurs, the quality will take care of itself. Because our regular communication at Centratel is hyperthorough, I am sometimes at a loss for agenda topics for our weekly staff meetings. Nevertheless, we meet once each week even if it’s just to chat about an upcoming wedding or someone’s birthday. It keeps us in touch and we feel like a team. We laugh, and that alone is worth it. But we keep the meetings short because we have work to do.
+				- Don’t distinguish between large promises and small promises. Keep them all. Keep them to everybody you make them to, including yourself.
+				- If there is a problem with someone, have a meeting immediately. Talk it out one-on-one. If silence ensues, do something to promote dia- logue. But be careful. If emotions are running high, put point-of-sale aside and wait for the situation to calm down.
+				- Be accessible. Give people an opportunity to leave a private message if you are not available. Can the people who are important to you reach you readily, or are there mechanical, bureaucratic, and/or psychologi- cal barriers?
+				- Promote fluid discourse by making communication tools available to your staff and by providing various meeting opportunities for one-on- one conversation. Scheduled group meetings are prime tools that pro- vide everyone a forum for communicating. But keep meetings brief.
+				- Speak authoritatively and clearly to the people you supervise. What they want from you is concise direction, respect, and paychecks that arrive on time.
+				- our physical office is part of our communications strategy. Burning up time looking for each other is utterly wasteful so we provide a subsystem to prevent it: glass walls between offices. Each admin- istrative office has them on three sides so staff can always see one another. To determine the availability of another manager, all we do is raise our heads to see whether the person we need is busy talking to another staff member or whether he or she is on the phone. There is no need to call or get up in order to investigate availability.
+				- and we can videoconference with our iPads. With no fuss, I’ve led staff meetings from all over the world.
+				- The early- to mid-afternoon hours are low key (which is the reason much of the world takes a nap after lunch).
+				- In a real business, the owner is not the one physically generating the product or service. This can be a bitter pill to swallow, but it is difficult to dispute that if you are the one doing the work of creating the actual prod- uct or service, you’re working a job.
+				- The key indicator of a job is that one has to show up. Not so with a business.
+				- If you are a professional and have other professionals working for you—and without your direct moment-to-moment input they are accom- plishing goals you have set out for them—this portion of your life is a business, and the cursory time you spend dealing with it is MPT. In con- trast, the ongoing time spent with patients or clients is production work, so that part of what you do is a job, not MPT.
+				- Since you are the employee, who will perform the production work when you are out of commission? Your time on the roof is not MPT. Your time up there is a job, and a dangerous job at that. MPT is the time you spend finding someone else to climb up there on those roofs to clean chimneys; it’s the time you spend thinking about how to extricate yourself from the mechanism so you have time to build it and make it self-sufficient.
+				- executing production is a distraction from what must be done to achieve freedom and
+				- for the efforts required to create my product or do my job, how can I delegate or automate those efforts so they are still performed with maximum efficiency?
+				- gain—MPT tasks—which include reviewing and suggesting refinements, occasional brief meetings with staff to provide whatever guidance or input they need, and envisioning and planning.
+				- gain—MPT tasks—which include reviewing and suggesting refinements, occasional brief meetings with staff to provide whatever guidance or input they need, and envisioning and planning. My non-MPT tasks include handling payables (because overseeing expenditures is the smart thing for me to do) and maintaining our website and blog (because I enjoy doing it and because I am the best one to keep the marketing message congruent with what I think and believe).
+				- Sometimes we say to each other, “This is it!” It’s a simple, happy way to remind ourselves this is the existence we’ve envisioned, and there is no need to pine for anything different. Life is as tangible as it can be when we just acknowledge it in the moment and agree it is good. No matter where we are or what we’re doing, this instant in time—this right now— is it! Any other time is not real; either memory or conjecture. For fl eeting moments in the middle of working our systems, we with- draw a bit in order to celebrate the only true reality there is—this right now—and we’re grateful.
+				- paid time off (PTO) is an employee ben- efi t intended to help keep staff satisfi ed and happy, but most of all it’s a perk that will encourage them to continue working for Centratel—and working means showing up for work!
+				- Second, our people used PTO hours in ways we did not intend. We had designed it for employees to get away from work once or twice a year in a way we could plan and schedule around. And our intent was that it would also be available to use for occasional sick days or appointments. But for many staff members, PTO was used as soon as it was accumulated and with short notice—a few hours here, a few hours there. Many times, it was an excuse to be absent from work under the pre- tense of “I don’t feel good today and I think I have accumulated enough PTO to take the day off, so I am going to call in sick.” It turned out that too often the hourly-paid TSR did not have enough PTO accumulated to take a full day off and so did not work the usual weekly forty hours.
+				- we stopped the long-term accumulation of PTO. Instead, on each paycheck, we pay it as it is earned. Based on the number of hours worked in a given pay period, our accounting system automatically determines the paycheck’s PTO amount and includes it as a line item disbursement.
+				- Can employees take vacations? Yes, they can take time off as they wish, but they know the time off has been paid in advance and there will be no money earned while they are gone. Now, since employees earn their pay only when they work, unwar- ranted absenteeism has been reduced by literally 90 percent,
+				- framework that is a safe harbor for later, off-the-wall new ideas that will further propel you into the life you want. Today, slow down and begin to create order and structure. Later, from this framework, take your risks.
+				- you will construct a life that is unencumbered with fire killing, and seldom dictated by urgency.
+				- You examine the mechanics of the subsystems that make up your business, job, health, and relationships. You analyze them one by one, looking for opportunities for enhancement. Sometimes you add new ones. Sometimes you discard useless ones.
+				- Centratel’s Strategic Objective Note to staff: The Centratel Strategic Objective is the basis for all corporate and individual decision making. Trite mission statements that declare “We want to be the best and we want our customers to be happy” don’t provide meaningful direction and do little more than make company stockholders feel good for the moment. And voluminous multiyear work plans can’t account for the day-by-day changes in our industry. Instead, the Strategic Objective precisely describes our market and direction, as well as who we are and how we function. It reminds us of what is most impor- tant and it gives us an overview of general strategy. By following its guidelines, growth and success will take care of themselves. In the spirit of simplicity, we limit the length of the Strategic Objective to one page. We’ve modified it through the years, but the fundamentals have never changed. We are the highest-quality telephone answering service in the United States. Our fundamental strategy is to relentlessly “work” the systems of the business to perfection. Our guiding documents are the Strategic Objective, Thirty Princi- ples, and the collection of Working Procedures. Centratel’s primary offering is 24/7/365 telephone answering service for business and professional offices throughout the United States. Periph- eral services are voice mail and paging for the Central Oregon region only. Through intense commitment to our employees, we will contribute to the success of our clients. The consequence of having loyal, smart, hard- working, long-term, and well-compensated staff is superb quality service to customers. Appendix A: Centratel’s Strategic Objective 207 Our business is complex, with many human, mechanical, and computer systems in simultaneous motion. Success depends on refined communica- tion and organizational processes, dedicated staff, documented point-of- sale procedures, first-class office space and equipment, rigorous quality assurance with continuous measurement, assertive innovation, intense planned maintenance/system improvement, aggressive and measured mar- keting, and relentless attention to detail in every nook and cranny. Competitive advantages include a near-flawless level of message processing accuracy, products designed around the unique needs of the customer, thoughtful customer service that is immediate and consistent, the latest high-tech equipment, and personal/corporate integrity. We use extraordinarily efficient communication tools and protocols. We con- stantly refine and improve all internal systems and mechanisms. To grow, we proceed with an “if we build it, they will come” philoso- phy, juxtaposed with assertive marketing efforts. Although we tightly direct Centratel’s operation through guiding documentation, we will modify that documentation immediately if an enhancement can be made: “Our operational framework is rigid, but that framework can be modified instantly.” We segment responsibilities into specialized “expert compartments” with appropriate cross-training among departments. We have backup per- sonnel for all positions. Primary vertical markets include medical, veterinary, home health/ hospice, funeral home, HVAC, property management, hi-tech, 24/7 on- call, front office/virtual receptionist, and utility.
+				- Centratel’s Thirty Principles 1. Company decisions must conform to the Strategic Objective, Thirty Principles, and Working Procedures documents. 2. We are the highest-quality answering service in the United States. We do whatever it takes to ensure the quality of service to our clients is unmatched anywhere. 3. We draw solid lines, thus providing an exact status of where things stand. Documented procedures are the main defense against gray- area problems. 4. “Get the job done.” Can the employee do his or her job, or is there always a complication of one kind or another? This ability to “get the job done quickly and accurately without excuses or complica- tions” is the most valuable trait an employee can possess. 5. Employees come first. We employ people who have an innate desire to perform at 100 percent. We reward them accordingly. The natural outcome is we serve our clients well. 6. We are not fire killers. We are fire prevention specialists. We don’t manage problems; we work on system enhancement and system maintenance in order to prevent problems from happening in the first place. 7. Problems are gifts that inspire us to action. A problem prompts the act of creating or improving a system or procedure. We don’t want setbacks, but when one occurs, we think, “thank you for this wake-up call,” and take system-improvement action to prevent the setback from happening again. Appendix B: Centratel’s Thirty Principles 209 8. We focus on just a few manageable services. Although we watch for new opportunities, in the end we provide “just a few services implemented in superb fashion,” rather than a complex array of average-quality offerings. 9. We find the simplest solution. Ockham’s Law, also called the Law of Economy, states, “Entities are not to be multiplied beyond neces- sity . . . the simplest solution is invariably the correct solution.” 10. The money we save or waste is not Monopoly money! We are careful not to devalue the worth of a dollar just because it has to do with the business. 11. We operate the company via documented procedures and systems. “Any recurring problem can be solved with a system.” We take the necessary time to create and implement systems and procedures, and in the end, it is well worth it. If there is a recurring problem, a written procedure is created in order to prevent the problem from happening again. On the other hand, we don’t bog down the organization with processes and procedures that target once-in-a- while situations. Sometimes we elect to not create a procedure. 12. “Just don’t do it.” Eliminate the unnecessary. Many times, elimi- nation of a system, protocol, or potential project is a very good thing. Think simplicity. Automate. Refine to the smallest amount of steps or discard altogether. Would a simple “no” save time, energy, and/or money? 13. Our documented systems, procedures, and functions are “off- the-street.” This means anyone with normal intelligence can perform procedures unassisted. The real-world evidence of this is we can hire an individual “off-the-street” who has good typing skills and have him or her processing calls within three days. For this result, protocols have to be efficient, simple, and thoroughly documented. (Before we implemented our systemized training protocol, it would take six weeks to train a TSR.) 14. Do it NOW. All actions build on “point-of-sale” theory. We don’t delay an action if it can be done immediately. Just like any major retail outlet, we “update inventories and databases at the exact 210 Work the System time the transaction takes place.” There is no paperwork floating around the office after a physical transaction. We ask, “How can we perform the task NOW without creating lingering details that we must clean up later?” 15. We glean the Centratel mindset from Stephen Covey’s books, including The 7 Habits of Highly Successful People, First Things First, and The 8th Habit. As well, we consider Good to Great by Jim Col- lins; The E-Myth Revisited by Michael Gerber; and Awaken the Giant Within by Anthony Robbins. 16. We pattern individual organization upon Franklin-Covey theory. We use organizing mechanisms that are always at hand. We priori- tize, schedule, and document. The system is always up-to-date and we use it all the time. (For Centratel, this is Microsoft Outlook.) 17. Sequence and priority are critical. We work on the most impor- tant tasks first. We spend maximum time on “non-urgent/ important” tasks via Stephen Covey’s time-matrix philosophy. 18. We double-check everything before release. If a penchant for double-checking is not an innate personal habit, then it must be cultivated. Double-checking is a conscious step in every task, performed either by the individual managing the task, or some- one else. 19. Our environment is spotless: clean and ordered, simple, efficient, functional. No “rat’s nests,” literally or figuratively. 20. Employee training is structured, scheduled, and thorough. Asser- tive client contact is also structured, scheduled, and thorough. 21. We are deadline-obsessed. If someone in the organization says he/she will be finished with a task or project by a certain date and time, then he or she commits to finishing by that deadline (or, if legitimate delays intrude, he or she advises coworkers well in advance the deadline is impossible). 22. We maintain equipment and keep it 100 percent functional at all times. If something is not working as it should, fix it now—fix it now even if it’s not necessary to fix it now. It’s a matter of good Appendix B: Centratel’s Thirty Principles 211 housekeeping and of maintaining good habits. This is just the way we do things. 23. Mastery of the English language is critical. We are aware of how we sound and what we write. We do whatever we can to improve. We are patient as a coworker corrects us. 24. We study to increase our skills. A steady diet of reading and con- templation is vital to personal development. It is a matter of self- discipline. 25. As opposed to “doing the work,” the department manager’s job is to create, monitor, and document systems (which consist of peo- ple, equipment, procedures, and maintenance schedules). 26. The CEO/GM oversees department heads and overall systems. It is the CEO/GM’s job to direct, coordinate, and monitor managers. 27. We avoid multitasking activities. When communicating with someone else, we are 100 percent present. We give full attention to the person in front of us (or to the task at hand). We focus on listening and understanding. Read the classic Treating Type A Behavior and Your Heart by Meyer Friedman. “Mindfulness” is paying complete attention to one thing at a time: read Full Catas- trophe Living by Jon Kabat-Zinn. 28. When in the office, we work hard on Centratel business. We keep our heads down; we focus, and in turn the company pays very well. That’s “the deal.” The workweek rarely exceeds forty hours. 29. Complete means “complete.” Almost or tomorrow is not “com- plete.” In particular, this is germane to administration staff’s use of Outlook task functions. 30. We strive for a social climate that is serious and quiet yet pleasant, serene, light, and friendly. Centratel is a nice place to work.
+				- Filming an interview Note to reader: Here is a working procedure that we created just before publication of the third edition. It’s rough, as I put it together in a matter of just a few minutes as we began to create marketing elements for our new Work the System Academy product. Clearly there is more work to do to make this procedure more comprehensive and understandable. I add this rough-hewn draft to show that it is not necessary to be an experienced professional in a given endeavor in order to produce a procedure that will be entirely useful. 218 Work the System three cameras: basic setup GUEST HOST CAMERA 2 CAMERA 3 CAMERA 1 1. At the site, allow at least one hour for setting up. 2. Camera 2 has host audio. Camera 3 has guest audio. 3. Use two light umbrellas: one between camera 1 and camera 2, and the other between camera 1 and camera 3. 4. Cameras are to be set up out of harm’s way so they can be easily monitored from behind. 5. Host framing (camera 2): vertical second button down/slight space overhead, with horizontal spacing at 60 percent left/40 percent right. Can be framed to shoot slightly upward. 6. Guest framing (camera 3): vertical second button down/slight space overhead, with horizontal spacing at 60 percent right/40 per- cent left. Can be framed to shoot slightly downward. 7. Camera 3 option: include back shoulder of host. 8. Carefully gauge backdrop so there is no vertical line converging with the host’s or guest’s heads. Is anything else distracting in the background? Appendix C: Sample Working Procedures 219 9. Do the cameras have fresh batteries (transceiver and receiver for each camera)? It is the director’s job to make sure all batteries are fresh. The major danger is losing audio. 10. Do a sound check. 11. All cameras should be connected to AC power, if available. 12. All cameras operate unattended. Do not adjust zoom. Do not touch. Do not walk in front of running cameras. 13. The guest and host should remain in the same position in their chairs for the duration of the interview. 14. The guest and host should not slump back in their chairs. They should stay upright or slightly forward. (A fish-eye lens makes whatever is closer look bigger.) 15. Turn all cell phones off (if there are any landlines, their ringers should also be turned off). 16. All three people must start the cameras at the same time. 17. Use 1-2-3 countdown to simultaneously start cameras. 18. Each operator must confirm that camera startup was successful. 19. The director steps between the host and guest and does a single hand clap to sync the audio. 20. The host and guest must not speak (make sounds of agreement, laughing, etc.) while the other is talking. 21. In an informal setting, the production people are not to drink alco- hol. (Perhaps it is OK for the guest.) 22. The production people are not to do anything that interrupts the flow of the host/guest dialog. They should keep their movements and chatter to a minimum; each should sit down, relax, and quietly monitor their own camera.
+				- No paid sick days. Why? Because paying people when they are not at work is a reward for not being at work! We provide PTO, but it is a cash payment that shows up as TSRs earn it, as a separate line item on their biweekly paychecks. TSRs can take time off—two to three weeks each year, depending on length of employment—but because PTO is paid in advance, there is no pay while they are gone.
+				- If an employee does a good job, say so publicly. If an employee does a poor job, also say so, but privately.
+				- Implement “pay by performance,” with an objective method of measurement. At Centratel, we have a full-time independent qual- ity specialist who rates call quality and reviews performance weekly with each TSR. TSRs can boost their take-home pay by up to 30 percent with this plan. For the TSR, that additional 30 percent is the fun money and/or get-ahead money that lies beyond the neces- sary money.
+				- ProcedUre For ProcedUres Overview to staff: We base Centratel’s mechanical functioning on Work- ing Procedures (or simply, “Procedures”). With hundreds of human and mechanical operating processes in action at any one time, keeping Centra- tel organized in any other way would be impossible. Working Procedures guide everything from an emergency relay for a TAS account, to how we deposit payments in the bank, to job descriptions for staff members, to greeting customers at the door. Strict adherence to written procedure is critical, but we counterbal- ance this strictness with our eagerness to make instant adjustments should the environment change or should someone come up with a better idea. Whatever your job description, if you have a suggestion for making things 234 Work the System better, pass it on. If it’s good, we’ll change the written procedure and implement it now! Strict yet easy-to-modify procedures provide a huge degree of free- dom to the individual staff member because the guidelines eliminate guesswork. Answers and instructions are right there. Working Procedures are the heart of Centratel’s operational model: “Freedom and responsibil- ity within a structured yet flexible business system.” oVeraLL gUideLines Is there a recurring problem or task? Then a Working Procedure is nec- essary. Or if there is already a procedure and a problem arises, we will modify the existing procedure to eliminate the problem. If there is no problem, let’s streamline the procedure to make it as efficient as possible. In the earliest stage of creating a procedure, get feedback from those peo- ple affected. It is mandatory the creator of the procedure and the relevant department manager be advised of any changes before they are made. In fact, they must be intimately involved with the revision, and each must give final approval to changes. Create the procedure with an “off-the-street” simplicity. Be simple, concise, and thorough. Remember the overall goal: “Freedom and respon- sibility within a highly developed system.” How much information should be included? For narrative procedures: Add as much information as possible, but do it in a way so that the information is easily found. Use alphabetical listings, logical subheadings, numbering and bullet formats, simple and concise sentence structure, etc. For charts and graph procedures: Design it to be simple, concise, and fast to read. Often it will be necessary to leave out information in order to make it more readable. Limit the typefaces and sizes, special formats, etc. Per point-of-sale strategy, we will change a procedure instantly. Bet- terment of a procedure by modification, addition, deletion, or outright elimination is quick and without hesitation. We operate within a strict framework, but that framework can be quickly changed by group consent. Appendix H: Centratel’s Procedure for Procedures 235 Do not assume anything. Every step must be obvious and logical. Especially do not assume the user of the procedure will be knowledgeable regarding the subject or can read your mind: remember the “off-the-street” methodology! General layout: After the title, if necessary, start the procedure with a concise narrative that provides a quick overall description of the what, why, how, who, and when of the procedure. Follow this, if applicable to the particular procedure, with bulleted or numbered instructions. Never title a procedure “Procedure for . . .” The title must be concise yet descriptive and make sense to an “off-the-street” staff member. The title must be logical so the subject can be found quickly. Start the title with the subject. For example: “Sales Call Procedure,” not “Procedure for Sales Calls.” Then start with a brief narrative of what the procedure accomplishes. Critical: Test the procedure before release! Use an “off-the-street” subject (a staff member who is not involved with the procedure). Post all new or modified procedures on the procedures drive. In the modified procedure, date the change, and show the new information in blue type. Hard copies are immediately printed and placed in alphabetical order in either the Administrative Procedures Folder or the Operations Procedures Folder. Each affected staff member will review the new procedure. Upon understanding it, the staff member initials and dates the hard copy. The staff member directs questions and suggestions back to the per- son who created the procedure. (If there is a question, it is evidence that the procedure itself should be further modified so questions will not have to be asked in the future.) Before release, all new or significantly modified procedures must be OK’d by the general manager. The staff member follows the new procedure exactly. Hear this: IF A PROBLEM ARISES WITH A PROCEDURE, WE INSTANTLY ADJUST THE PROCEDURE. WE DO NOT CIRCUMVENT IT!
+				- internaL commUnications: ProcedUre and FUndamentaLs the tools of active communications: 1. Voice Mail (VM) 2. E-mail (EM) 3. Instant Messenger (IM) 4. One-on-one via phone 5. One-on-one in person 6. Hard copy memo/procedure 238 Work the System what method of communication should i use? 1. Routine, not time sensitive: EM, VM 2. Time sensitive: IM, one-on-one in person or via phone 3. “Getting all my thoughts in order,” detailed explanations: VM, EM 4. Personal and sensitive issues: one-on-one in person or via phone 5. Documentation is necessary: EM or hard copy 6. Information is complex/detailed: EM, hard copy, one-on-one in person or via phone 7. Procedures: Soft copy on Procedures drive and hard copy Point-of-sale Point-of-sale protocol for our internal communications means, most of all, that when someone asks a question, the response is immediate. For instance, avoid saving a voice mail message for a future response. If you must delay your reply, immediately take the time to answer the message sender to say you will get back with a detailed answer later (and be sure to provide an approximate time he or she can expect your response). Under- stand this approach is just as applicable to e-mail: the most basic rule is to keep your inbox empty by dealing with the issue now, via our point-of-sale mandate. microsoft outlook The Centratel Microsoft Outlook information system is the heart of our administration’s internal communications. The task list, contact list, and calendar are critical to staying organized and maximizing efficiency. Have the program open all day and use it often. Use the task list to remind your- self both of your own tasks and of tasks delegated to others. Instant Messenger: If you are on the job, it must be active. Be sure to configure it to turn on automatically when you log in. E-mail: Thoroughly read messages you receive. Reread and double- check each outgoing message before you send it. Is your outgoing e-mail Appendix I: Centratel’s System for Communication 239 clear, concise, and brief? Are there grammatical errors? Does your mes- sage make sense, or are you presuming you are communicating with a mind reader, or maybe someone who is fond of deciphering puzzles? giving (delivering) a message via any medium Consider quantity before quality. In fact, Centratel’s definition of quality communication emphasizes high quantity. But note, the quantity aspect has more to do with frequency than with volume of content. Generally, if there is enough communication, quality will evolve. If in doubt about whether to communicate or not, you should communicate. Rambling dispatches that contain more information than necessary, or messages that keep repeating the same detail, are a waste of two peo- ple’s time. The voice mail medium is particularly susceptible to fatiguing, inefficient messages. But then, sometimes a voice mail message is faster and more meaningful than an e-mail message. Sometimes a thirty-second voice mail will deliver the same message as a fifteen-minute e-mail. Whatever the communication method, remember this when sending a message: “A great message is a short message.” Not many people think about the quality of their communications. At Centratel, since our entire purpose is to provide the very best com- munication services, we have to be good at it! We are “the highest-quality telephone answering service in the United States” because we unceasingly refine and improve the communication services we provide, as well as our own internal communications. We think about communications all the time. It is a primary system that we relentlessly analyze and refine. We have many communication tools. At any given time, is the best method being used? Before leaving a message for someone, what prepara- tion is necessary for the message to be complete, clear, and concise? While leaving the message, is too much being said, or too little? An effective training process is to record and review conversations with callers and clients. For most of us, there is incongruity between how we think we sound and how we actually sound. This self-analysis can elim- inate “yeahs” and “ya knows,” deepen one’s voice, promote conciseness, and point out annoying flaws that otherwise go unnoticed.
+		- Products
+	- [[Inbox-business-learning]]
+	- [[Inbox-business-coaching]]
+	- [[Inbox-business-expansion]]
+	- Exposing the Myths and Realities of the Self-Publishing Fastlane by MJ DeMarco
+	  collapsed:: true
+		-
+			- [www.lulu.com](http://www.lulu.com/) [www.smashwords.com](http://www.smashwords.com/) Baker and Taylor as distributor to bookstores in USA
+			-
+		- 5 Ps of Publishing
+		  collapsed:: true
+			-
+				- Process
+					- Print on demand > offset (until you have an audience). CreateSpace, lightning source, etc for print on demand
+					- Need an ISPN to get into a bookstore [www.ispn.org](http://www.ispn.org/) $300 for 10 ? Don't let others register it e.g. Lulu
+				- Product - is it awesome? How many are going to be compelled to write a review and share it with others?
+				-
+					- Be so good you can't be ignored. Don't push it on others, let others pull you into opportunities.
+					- You won't need advertising - customers will be your ambassadors
+					- Writing Tools by . Writing by Larouq
+				- Promotion -
+				-
+					- He went on every podcast and did every interview as you never know if a A-class influencer is listening
+					- [www.bookbub.com](http://www.bookbub.com/) is the best paid promotion for books
+					- Podcasts - legacy content which stays there. Radio stations and tweets are extremely short-lived in comparison. Blog posts longer but still needs intralinking and updates
+					- Send out advance review copies. Approach bloggers and influencers.
+				- Platform
+					- Philosophy, identity, community, culture e.g. fastlaners
+					- This gets Control back e.g. by getting their email address. Essential.
+				- Sample material
+					- Have the most edited 1-3 chapters (first 3) available for download
+				- Engage readers + Capture Reviews
+					- [www.nook.com](http://www.nook.com/)
+					- Reply to as many as humanely possible. As otherwise they won't buy from you if you don't
+					- "P.S. If you enjoyed my book, could you write an Review for it on Amazon *link*
+	- How To Test Your Online Product Before It’s Even Made – Part 1 | Making Sure a Market Exists
+	  collapsed:: true
+		- [2](null)[inShare](null)The purpose of this 3 or 4 post series is to save you time and money. I’ll take you though the steps you can use to determine if your new idea or product that you want to create will be worth your time and effort.
+		- Which guy would you rather be?
+		- Jim, who spends a year creating a membership website for a certain niche that he believes would love his product;
+		- Or Jeff, who spends a month testing his niche market, only to find out his idea for a product would have totally bombed.
+		- I choose Jeff. Why?
+		- Because when doing any kind of business, there’s a HUGE difference between what you believe, and what you know. And here’s the ugly truth – what you believe means nothing. Your gut feeling can only take you so far. Jim’s beliefs may or may not turn out to be profitable for him. Jeff knows his idea is not going to work, so he’ll move on to the next until he finds one that does.
+		- So how do you know for sure if your idea will be successful or not, before you begin investing a significant amount of time creating your product?
+		- Step 1: Make Sure a Market Exists
+		- The first thing you have to do is make sure a market for your product exists. That means there are people who are interested in what you have to say, and on top of that, willing to pay for the kind of information you have to offer. If you end up finding out that a market does not exist, you’ve already saved yourself a lot of time.
+		- “But Pat! My idea is totally revolutionary, and nothing like it has ever been done before!!!”
+		- Here’s my two-part response to that:
+		- 1) Is that what you know, or just what you believe? And,
+		- 2) Are you sure you want to create the first kind of something?  As Seth Godin says in Free Prize Inside, “version 1.0″ of most things end up failing. Think about Napster, Friendster, and even the Segway. Innovate and be remarkable in a proven niche, and you’ll be more predictably successful.
+		- Moving on. Here are the key indicators you should look at to determine if your ideas have a market or not:
+		- Google Advertisements
+		- Type in keywords related to your idea into Google Search. If you see paid advertisements on the results page (see below), then that’s a good sign there is a market for that particular niche. Read each one carefully to see exactly what they are about.
+		- Competition
+		- If there are other websites doing something similar to what you had in mind, then a market for your product idea obviously exists. You may have even noticed some of your potential future competitors in the paid ads that showed up in your Google Keyword Search. Don’t Worry! This is a good thing. We can later use information from the websites and products of our competitors to our advantage, but we’ll save that for a later blog post. Just remember – competition is good, both for you and for the consumer.
+		- Amazon
+		- Do a quick search at Amazon.com for any books or other items related to your product idea. If you end up with results in your search, again – don’t worry. Like I mentioned before, this just confirms that there is a market for your product.
+		- Check out the top books and read the reviews. The more reviews there are, the better, because this confirms that people are actually paying money for this kind of information. After reading through the negative reviews, is there anything you should make sure you include in your product so that you don’t get the same responses from your future customers?
+		- Forums
+		- Here’s a cool trick.
+		- For whatever niche you’re looking into, type into Google Search: “Forum:Niche“, where Nicheis the name of your particular niche, or a related keyword. For the example below, we’re going to use “mountain biking tips”.
+		- You’ll end up with a list of all of the most popular online forums related to that niche. Click on the first few and browse around a little. Here are a few questions to ask yourself as you do this:
+		-
+			- Is there a lot of conversation going on? How many posts or threads exist within the forum?
+			- When was the latest post? This will help you determine how active people are in the forum.
+			- What are people talking about? Are there any sections within the forum related to your idea or product?
+				- Ninja Tip: Do a search within the forum itself for certain keywords that relate to your idea and see what you come up with. You may need to register for the forum in order to perform a search, depending on the admin’s settings.
+			- Is there anything you may want to add to your product or idea that you see in the forum? Please make note for future reference.Quantcast
+		- Here’s a cooler trick.
+		- In the search field at Quantcast.com, type in the url of one of the forums that you visited. Here’s our result for bikeforums.net:
+		- You now have an exact profile of the kinds of people who are interested in your niche. In less than 10 seconds, we know their:
+		-
+			- Gender
+			- Age
+			- Ethnicity
+			- Number of Children
+			- Income Level; and
+			- Education LevelTake note of the income level that comes up from your search. If most are in the $0-3ok range, you might want to think about a different market. In the mountain biking market, it’s no surprise that most are in the $60-100k range – some of those bikes are really expensive! We know these people have money to spend.
+		- On the left hand side of your Quantcast results page, click on “Geographic” to see exactly where they are located (this feature is not available for some sites):
+		- Would you benefit from geo-targeting your product? Are there specific things you have to learn about a certain region in order to make your product successful?
+		- Next, on the right hand side of Quantcast, you can see what other sites these people have been to as well:
+		- Not only does this information help us confirm that there is a number of people who may be interested in our product, but it will help us in the future when we start advertising and writing copy.
+		- Online Commercial Intention
+		- Lastly, I’d like to cover something called Online Commercial Intention, or OCI. According toMarket Samurai, “OCI is an indicator of the chances that someone searching for a keyword is looking to buy as opposed to browsing for information.”
+		- Market Samurai, a paid tool, is an excellent keyword research device which actually spits out the OCI as one of the results for each keyword that you analyze. You can, however, enter keywords one-by-one into the tool at the Microsoft AdCenter Labs here.
+		- Enter your niche keywords (try as many as you’d like), and you’ll get an idea of how many people are “just looking”, vs. how many people are “looking to buy”. I wouldn’t base my decision to move ahead with a niche or not based on this tool alone, but it is a somewhat reliable indicator for commercial intent which may play a role in the later steps in this series.
+		- Coming up…
+		- Of course, there’s a lot more than just knowing there’s a market out there for your product. In the next post, we’ll discover how we can get closer to knowing exactly how your target audience will react to your idea or product.
+		- Cheers!
+		- For Part 2 of this Series, Click Here.
+		-
+			-
+	- Choose careers that push you towards Ownership ideally, or next best is Performance
+	  collapsed:: true
+		- Ownership = programming?,
+		- Performance = sales, wall street,
+	- Find the Valuable Resources No One Else is Reading
+	  collapsed:: true
+		-
+		- In Zero to One⁴, Peter Thiel asks: “What secret do you know to be true that no one else believes?”
+		-
+		- In CryptoLand, you could ask: “What resources are valuable that nobody else is reading?”
+		-
+		- The best resources are “long-term” knowledge, not “expiring” knowledge⁵.
+		-
+		- The daily price change of Bitcoin is an example expiring knowledge. Anyone can instantly access it. It’s not valuable to you in 2 days let alone 2 years.
+		-
+		- Long-term knowledge comes from Primary Sources: White Papers, Books, Canonical blog posts, and [gulp] actually using the technology. There’s just enough friction that most people are too lazy to wrestle with them.
+		-
+		- So next time you have 30 minutes to kill, spend it with a Primary Source instead of cruising through crypto-trading twitter.
+		-
+		- If you read what everyone else reads, you’ll think what everyone else thinks.
+	- AI copywriting?
+	  collapsed:: true
+		- General AI effect on economy/jobs
+			- Article
+				- Almost every human job requires us to perform some combination of the following four basic types of tasks:
+					- Manual repetitive (predictable)
+					- Manual nonrepetitive (not predictable)
+					- Cognitive repetitive (predictable)
+					- Cognitive nonrepetitive (not predictable)
+				- For example, an assembly line worker performs mostly manual repetitive tasks which, depending on complexity and a cost/benefit analysis, can be automated. A CEO of a major multinational conglomerate performs mostly cognitive nonrepetitive tasks which are much harder to automate. So, the trucking and taxi industries are in for a big shakeup; c-suite corporate management, not so much.
+			- jobs that are most at risk are those which “are on some level routine, repetitive and predictable”
+			- Jobs that AI could replace
+				- Most likely
+					- Logistics
+					- Transport
+					- Retail
+				- Less likely
+					- Entrepreneurship
+					- Creative intelligence: These include creative writing, entrepreneurship, and scientific discovery. These can be highly paid and rewarding jobs. There is no better time to be an entrepreneur with an insight than today, because you can use technology to leverage your invention.
+					- Social intelligence: Robots do not have the kinds of emotional intelligence that humans have. Motivated people who are sensitive to the needs of others make great managers, leaders, salespeople, negotiators, caretakers, nurses, and teachers. Consider, for example, the idea of a robot giving a half-time pep talk to a high school football team. That would not be inspiring. Recent research makes clear that social skills are increasingly in demand.
+					- Physical dexterity and mobility: If you have ever seen a robot try to pick up a pencil you see how clumsy and slow they are, compared to a human child. Humans have millennia of experience hiking mountains, swimming lakes, and dancing—practice that gives them extraordinary agility and physical dexterity
+					- Managers at all levels
+					- 7) Writers - mainly long-form e.g. blog posts, scripts, etc
+						- Likelihood: 3.8%
+						- Why Not: (I breathed a sigh of relief on this one.) Writers have to ideate, create, and produce original written material. AIs can do some of this with title suggestions, writing prompts, and automated social media messages, but blog posts, books, movies, and plays will likely be written by humans for the foreseeable future.
+					- Software Developers
+						- Likelihood: 4.2%
+						- Why Not: Software engineering and development is hard enough for human beings to do, and the time and skill investment needed to create applications, software, and websites will be tough to replicate -- especially since developers need to execute perfectly to create great products for customers. The field is expected to grow by 19% by 2024, so if you're a software developer, you're sitting pretty for now.
+					- Technological management
+					- Professional sports
+					- Empathy - Therapy, life coach
+					- Judgement - judge, business negotiator,
+		- Evidence on AI copywriting?
+			- McKinsey and Company estimates that about 30% of the activities in 60% of all occupations could be automated)
+			    source:: https://www.mckinsey.com/featured-insights/digital-disruption/whats-now-and-next-in-analytics-ai-and-automation
+			- According to an Oxford University study, all developed nations can expect to see job loss rates of up to 47% within the next 25 years
+			- oldman Sachs may have invested tens of millions of dollars in automated copywriting startup Persado last year, but Persado is a long way from killing off any form of business writing. Persado focuses primarily on content for online advertising campaigns.
+			    http://www.campaignlive.co.uk/article/goldman-sachs-leads-financing-automated-copywriting-startup/1390084
+				- Co-founder Assaf Baciu tells TechCrunch, “We’ve run 4,000 campaigns and our average uplift on conversion rates is 49.5%.”
+				    https://richardgouldewriting-my.sharepoint.com/personal/richard_richardgoulde_com/Documents/Clients%20RGW-ODB/Hurley%20Write/PaHu1708B%20-%20Aug%20Blog/
+				- https://www.persado.com/
+				- This is like short ad copy for Facebook ads, which is quite different from a white paper or technical report
+			- AI copy enhancing tools
+			    https://nybookeditors.com/2016/02/instantly-improve-your-writing-with-these-11-editing-tools/
+			- 1 in 5 UK AI startups are focusing on marketing
+			    https://medium.com/mmc-writes/artificial-intelligence-in-the-uk-landscape-and-learnings-from-226-startups-70b9551f3e4c
+		- Analysis
+			- I can see that Firefox and Android are developed slowly and used by millions, yet the core technologies which run on it (Javascript and Java respectively) take years to change fundamentally
+				- Thus, a career can be made by just focusing on a particular programming language
+				- e.g. building web apps like Todoist or Asana

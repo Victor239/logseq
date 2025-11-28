@@ -1,0 +1,17 @@
+- create a technology table with all the "X as my Y app". Have one factor being Room for Improvement. KDE being 3 as my DE, Ubuntu being 5 as my ?
+- ((6918d012-e2ab-4d39-bbc5-19331e450a2a))
+- [GitHub - Joemnewton/logseq-reminder-notifications-db: Desktop and in-app notifications for scheduled blocks in Logseq Database DB version.](https://github.com/Joemnewton/logseq-reminder-notifications-db)
+- ### Git issues I follow
+	- Meta
+		- [Created by me](https://github.com/issues/created)
+		- [Issues I'm following](https://github.com/notifications/subscriptions)
+	- Calibre - IronFox / Fennec stopping
+	- ((679f816f-38d2-4544-a0b0-91fbe1e533c9)) :
+	- ((66390660-37dd-4f25-892e-becd3c0c8a1b)) : ((6921d634-b1ea-4dc2-80da-797949fb104e))
+		- Then I can remove Dolphin startup window that is open to various locations, and instead use TagSpaces to sort it
+	- ((68737102-44f2-43ee-abc6-d0a87ca5fc42))
+	- [[BUG] Prevent IronFox aggressively stopping whenever it's in the background (#120) · Issues · IronFox OSS / IronFox · GitLab](https://gitlab.com/ironfox-oss/IronFox/-/issues/120)
+		- Related:
+			- [Error 403 (Forbidden)!!1](https://issuetracker.google.com/issues/385073598?pli=1)
+			- [Android 15 natively kills backgrounded apps automatically (regression from Android 14) · Issue #1539 · urbandroid-team/dont-kill-my-app · GitHub](https://github.com/urbandroid-team/dont-kill-my-app/issues/1539#issuecomment-2913395423)
+- Related: [[Logseq]]

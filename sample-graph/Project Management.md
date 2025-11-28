@@ -1,0 +1,5 @@
+- [[Software]] : ((64098f11-95d7-41d2-9465-17500ddeec24))
+- [Learning Resources]
+	- 5 Dysfunctions of a Team - Patrick M. Lencioni
+		- Pyramid that shows you need Trust > in order to prevent the next stage (Fear of Conflict)
+		- It's about getting you to think less Machiavellian and individualistic, and more collectivist/team/corporate-focused

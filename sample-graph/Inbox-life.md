@@ -1,0 +1,4562 @@
+- Fashion
+    collapsed:: true
+	- Suit buying guide [https://www.rooshvforum.com/thread-49213.html](https://www.rooshvforum.com/thread-49213.html)
+	- Bracelets
+		- https://www.rooshvforum.com/thread-57959-post-1383242.html#pid1383242
+	- Remove jumper piling
+		- http://snarkynomad.com/how-to-remove-pilling-from-an-old-sweater/
+	- ((63ce849b-bcb8-445f-b26e-14183ad154f3))'s style in many interviews looks great
+	- How to remove lint balls and fuzz from sweaters
+		- https://www.iamalpham.com/index.php/topics/how-to-remove-lint-balls-and-fuzz-from-sweaters/
+	- https://www.amazon.co.uk/Color-Men-Carole-Jackson/dp/0345345460
+	- Boots
+		- Highly recommended by Harry.
+		- Mrsaunders review on page
+		- https://www.rufflander.co.uk/shop/heritage-footwear/78tc-traditional-work-boot/
+	- Tips for being more frugal but having a great lifestyle
+		- A 25lb bag of rice from a warehouse store or an "ethnic" grocery store should run $10-15. Even if you eat 2 cups of rice (measured dry) everyday (unlikely) it will last you months. Get yourself a $20 rice cooker to avoid stove-top messes.Get a water filter and bottle your own in glass bottles. Buying bottled water everyday is ignorant. Or let tap water sit out in the sun with some lemon. Oxidation will filter out the bad stuff from the tap.Use people. Or to put in a better way, make your presence worth something. People will pay for you to be around if you make them happy. I get a lot of things for free. I go a lot of places on the arm. I smoke weed whenever I want and never pay for it. I drink at places where bartenders hook me up. Or I drink around people who get bottle service or buy me drinks.I go over people's houses who always have food and don't mind when I eat it.I visit friends in other states and countries and stay at their places instead of getting hotels. (Yes I still end up smashing lizards)I don't mind keeping a 7 in the harem if she brings shit to the table. Like rides places, liquor, food, drugs, clothes, connections etc. Shit I've lived off stripper girlfriends for months at a time and gave them nothing but dick in return.Become friends with people who work places where you want discounts. I have a few spots where I can eat for free cause I know the chef or waiter. Studio apartments, central location is key, a studio helps because it is already set up for sex ](null)
+- Productivity
+    collapsed:: true
+	- [How I reclaimed my ability to focus after years of being permanently distracted](https://www.reddit.com/r/productivity/comments/6c2hhq/how_i_reclaimed_my_ability_to_focus_after_years/)
+	  collapsed:: true
+		- As a freelancer, I have to be able to focus and discipline myself when I'm working. I don't have an office, a boss to yell at me, a calendar, or a regular paycheck each month. If I don't plant my butt in a chair and write, I don't get paid. Since beginning to do this work, I have been taking serious steps to improve my attention span and my capacity for completing deep work.
+		- Of course, this is still a work in progress for me and I plan to continue improving over time. Even so, I am impressed by the difference I have been able to make to my attention span. In this post, I am going to cover the techniques I have been using to improve my ability to focus. Here is what has been working for me. Full post with more details, pictures, links etc here
+		- Start small - then get serious
+			- Going from a distracted way of living to a focused one is difficult. Our ability to focus is like a muscle, we can strengthen through meticulous practice. Think about it. Only an idiot would walk into a gym for the first time and try to lift the heaviest dumbells. Overexerting ourselves at the beginning of an endeavour leads to dwindling motivation and the assumption that we are not cut out for this. If you find you cannot focus for more than a few minutes at the moment, do not be surprised. The modern world trains us to be in a constant state of distraction.
+			- When I first began to get serious about improving my attention span, I found that I struggled to work on one thing for more than 5-15 minutes at a time. By increasing the length of my work sessions, minute by minute, over several months that has become 45-60 minutes. For extremely demanding work (such as reading academic papers) 30-minute blocks are necessary. If I had jumped straight into hour long work sessions I would have ended up spending most of that time staring into space, getting precious little done.
+			- However small we start, a point comes when the actual hard stuff (in this case, the long uninterrupted sessions) has to be done. Let's acknowledge that. When I wrote about how I read 200 books a year, I emphasised that there is no secret speed reading technique - I sit and read the damn books. No shortcuts, no summaries, no sped up audio books. Even so, people still ask me for 'hacks' and 'tips.' To be frank, I know of none. Reading requires focus, so the important point in this post is, once again, that we have to put the hours in.
+		- Batch tasks together based on difficulty and intensity
+			- When we look at a long to-do list at the start of the day, who wouldn't want to start with the easiest tasks? The problem with this is that it usually results in hours passing without us completing any meaningful work. A good solution is to batch together tasks which require a similar degree of focus. Writing 3 blog posts in one go. Reading a whole book in a single sitting. Handling paperwork in one marathon session.
+			- I learnt the technique of batching tasks based on their difficult from Chris Bailey's brilliant book, The Productivity Project. My current day plans are made in a notebook with two columns on each page for making plans. High intensity, difficult work (reading academic papers, working on articles and blog posts etc) goes in the left column and easier, low-intensity work goes on the right (emails, chores, submitting work, typing up research notes.) The easy stuff gets done in one go once everything else is finished. Batching gives me a sense of cognitive consistency, as I am not switching between deep and shallow work throughout the day.
+			- Another reason batching works is because of the Zeigarnik effect. According to psychologists, unfinished tasks claim more mental energy than completed ones. In fact, we often forget all about something once we complete it. My brother once sat a maths exam, followed by a physics one two days later. The second exam ended up requiring a maths technique which he had used in the first, yet he forgot it in that short time. The Zeigarnik effect damages our ability to focus when we switch between different tasks. Let's say I have three important emails to reply to. I answer two, then work on something else. Even if I don't notice it, the third will still be tugging at my concentration. Answering all 3 in one go would prevent this and mean clearer thinking.
+		- Concrete plans and small wins
+			- Measurable goals are an important component of focused working. I like to break big projects into small chunks (e.g. research, outline, structure, intro, conclusion etc.) This gives me the satisfaction of being able to tick items off my to-do list at regular intervals. I can see how far I am progressing over the course of the day. If it's not on my plan, it does not exist so if something comes up, I schedule it ahead to avoid working in a reactive manner.
+			- A clear plan, made in advance, is the easiest way to remove the barriers to focusing. I like to allocate blocks of time to each task and tell myself that I either do it then, or I don't do. Plans also reduce decision fatigue.
+		- Work in cycles
+			- Deep focus does not mean hours of focus. If I enter a flow state (often during technical work or photo editing) I might continue for over an hour, but it is rare for a single stretch to last longer than that. Taking breaks is important. I like to pause after 30-60 minutes for fresh air, a drink and a few pages of a book. I try to avoid doing anything too stimulating during breaks, to prevent my focus from snapping. I am also a strong advocate for napping. Naps are good. Naps are the best. I actually work best when I adopt a biphasic sleep pattern - sleeping from about 2am-7am, then 4pm-7pm.
+		- Eliminate distracting options
+			- Just as focus is a muscle, willpower is too. Exerting too much self-discipline trying to stay away from distractions is exhausting. My solution is simple: I block any site which could be used to waste my time between 10 am and midnight each day. Cold Turkey is my best friend. I keep the bare minimum apps on my phone (no games, social media, email etc) and avoid having it near me when I work. Plus, it is set up to show no notifications, never make noise and I have put all the apps in one folder, so I have to search for what I need.
+			- I know some people consider doing this a bit drastic- after all, shouldn't we just learn to resist distractions? Maybe that can work, but I prefer to just not give myself the option. After a few weeks of using something like Cold Turkey, not opening news sites at random becomes a habit and requires less effort.
+		- Don’t look for a magic bullet
+			- Nope, a 5-minute life hack is not going to give you the magical ability to focus. It takes work to rebuild this skill which the modern world is designed to erode. Neotropics, fancy teas, binaural beats and certain stationary colours are not the answer. Like any skill, focusing requires careful practice. Small tweaks can make a difference, but they will not undo years of poor cognitive hygiene.
+		- Separate locations
+			- Never work where you relax or relax where you work. This might be the most important lesson I have learnt. The impact of our surroundings on our brains is profound. I don't have an office to go to, so I work in my favourite coffee shop or the library. If I want to work a bit later, I head to my favourite bar. The ritual of packing a bag, walking somewhere to work and setting up is the important part. These locations are now associated with the act of deep focus.
+		- Repetitive music
+			- I learnt this technique from Ryan Holiday. Working in silence is miserable, and flipping between different genres and artists is distracting. The solution is to listen to a single playlist, album or even one song on repeat while working. Each day, I chose a Bright Eyes album and loop it while I work. For a high degree of focus, listening to one song is powerful. I always go for Stay High by Tove Lo or The Night Josh Tillman Came to Our Apartment by Father John Misty- for some reason those two songs seem to lull me into a trance.
+		- Meditative tasks
+			- Classic meditation is not necessary to reap the benefits of attentional training. Any task can be meditative if treated as such. The secret is to focus on one thing and keep pulling your mind back when it wanders off to something else. Some meditative tasks I often turn to include:
+		- Thinking about an upcoming piece of writing while walking.
+			- Typing using WriteOrDie (a site which makes you keep up with a set number of words per minute or it deletes what you have already written. Brutal and somewhat effective.)
+			- Timed language practice on Duolingo or Memrise. Both give you a few seconds to answer each question which requires a high degree of focus.
+			- Reading a whole book in one sitting, without putting it down. My heart sings when I get a chance to do this. This is a fantastic training exercise and a rewarding way to spend a few hours.
+		- Keep a record of your progress
+			- With any new habit, keep track of each practice session and how well it goes is valuable. I use Toggl to keep a record of my time spent working. Toggl is fantastic - I have a separate category for each project and I start a timer for each session spent working on it. If I get distracted for a moment, I pause the timer. At the end of the day, I can see how long each session was and if I was more distracted than usual.
+			- Keeping a record of your progress also makes it easier to spot distraction triggers. In my notebook where I make daily plans, I jot down a few lines about how my work went at the end of the day. If it was difficult to focus, I will try and establish why- was I tired? In the wrong location? Distracted by an argument I had with someone? These notes have enabled me to get a clear picture of exactly what I need to do my best work.
+			- At the end of the day, try writing down how long you worked for, what you got done in that time and any significant distractions. I used to keep a spreadsheet which was a tad obsessive so a few lines in my notebook is a nice middle ground.
+		- Work less
+			- Better focus means fewer hours of work, but fewer hours of work also means better focus. Parkinson's law states that tasks expand to fill the time allotted to them. I have a rule of not writing for more than 7 hours a day, 7 days a week- it forces me to work in an efficient manner and not waste time tweaking irrelevant details.
+			- More hours do not = more work done. Judging from my work records, I am more productive now than when I used to write for 10+ hours a day, every day because of the intensity with which I can focus. One hour of deep work is worth 3 hours of shallow work.
+	- How to cultivate a more productive mindset
+	    https://www.rooshvforum.com/thread-64288.html
+	- Become an expert on anything in only 30 mins per day
+	    https://www.rooshvforum.com/thread-32431.html
+	- Passion
+	  collapsed:: true
+		- Annual VIsionary Quest
+			- Why you need an annual (or even quarterly) visionary quest if you want do great workIt’s nearly impossible, no matter how mindful you are, to not get caught up in the daily current of your To Do list and plethora of projects. It’s easy to get really excited about whatever it is you’re working on and lose focus on what really matters.View of the trains passing by the cabin that kept me awake more than a few times.Every so often, you need to take stock to remember why you’re doing what you’re doing in the first place. Over time, we naturally evolve and change, and our desires shift. If our vision doesn’t move with our changed perspective, dissonance builds up rust and debris in our work over time.We become stagnant. Tense. Out of alignment.When we take time out of our action-packed lives we’re also able to create a space for reflection and looking back. If you’re trudging endlessly along your way without looking up, you’re probably not learning much. It’s kind of like going through a workout doing the same routine week after week without ever checking your form by looking at yourself in the mirror. You risk the possibility that you’ve been building strength but in the wrong areas, or that you’ve been conditioning poor movement patterns that lead to unnecessary fatigue and injury.Taking a retreat and changing your environment helps create space for objective reflection and inspires a sense of renewal.So the first step, like with anything worthwhile, is to define your purpose for the retreat.Deciding your reason for goingWhat do you most hope to get out of the time spent disconnecting, creating space and focusing on infinite possibility?What prompted this desire to create a space for reflection for you?What is the one thing you’d like most to walk away from your experience with?Here were our reasons for heading out into the wilderness:To reconnect to our purpose and why we’re doing what we’re doing.To reflect on the journey, where we’ve come from, how far we’ve gone and where we want to go.To learn from our mistakes, failures and setbacks along the way.To do strategic planning from a place of possibility, excitement and positive expectancy.We wanted to make sure we were doing the right things to create a business that we love, and based on our conversations lay the groundwork for an amazing vision that makes us excited to kick some serious ass.What will your rules be?The trip won’t be effective if you just do the same things you always do at home and behave the way you always do. The key here is to break your patterns to create a space and environment that’s separate from your normal routine. Part of this is accomplished by changing where you are but it’s more importantly changed by how you behave differently when you’re gone.So it’s crucial that you determine what your terms will be for your own quest.What will you do different while you’re away from home?What will you disconnect or take a break from?What activities, rituals and practices will you engage in to support your quest?Here were the rules Dustin and I decided on:Disconnecting from social media and every day distractions (we did agree to talk to our wives while we were gone).Time spent on reflection, meditation and journaling each day.Only positive expectancy and thinking big allowed.Pu’erh tea and lots of fruits and veggies were brought to support our mind and body during the excursion.All of these things helped us create a space that felt different and contributed to a successful trip.The next step is to decide…Where will you go?Choosing the right space for your visionary quest can be just as important as deciding your focus on the trip itself.You want to choose a space nearby so not too much travel is necessary. You might select a cabin in the woods, a lodge near the closest river, an inn on the coast, or a hotel downtown. It really depends on what’s going to energize and ignite your spirit.](null)There’s also the option of creating a space within your home that’s completely separate from your everyday living area that you can retreat to for solitude and reflection. My wife’s done this in our home with her personal Goddess space that she regularly withdraws to for seclusion and recentering.
+			- While this is an option, it’s generally easier to do this by going somewhere else that already has the qualities you’re looking for and removes you from your routine. Even if you create a separate space in your home to retreat to, you’re still going to be fighting the current of your everyday habits.
+			- Since we went during the middle of winter in Northern Oregon, we looked for a place that felt like a cabin or camping trip, but without the need to rough it in any way. We wanted to focus primarily on our reason for coming without having to fight the elements or having to cook our meals over a campfire.
+			- There are a lot of places to choose from around these parts. Oregon is known for its avid outdoors culture and way of life, so we’re pretty lucky in that regard.
+			- After narrowing it down for a few weeks, we were left with two candidates:Sou’wester Lodge and Columbia Gorge Riverside Lodge. We ended up opting for the riverside lodge to be a bit more isolated and remote.
+			- Even then, we were within walking distance from a town of a few hundred people (across the train tracks) that led to some fun adventures when we needed to get out and stretch our legs. On the final night, we ventured out into the tiny town and somehow ended up at Pauly’s Niteclub. Dustin egged me on to try out my breakdancing skills and I ended up doing this on the dance floor. (I wonder what the locals thought…)
+			- We’re firm believers that every cabin should be equipped with its own framed kilt.
+			- The next step is to create your agenda for the trip. We found a few essential Strategic Focus Areas we needed to cover for a successful retreat:
+				- Concentrated Review. What’s gone well and what hasn’t over the past year? What trends have we noticed? What are some major areas for improvement?
+				- Why Remembrance. Why are we doing what we’re doing? What kind of life and business are we trying to create?
+				- Core Desired Feelings. How do we want to feel while we’re working? Creatively alive? Blessed? Connected? (Note: For further exploration on this subject check out Danielle’s Desire Map book.
+				- Uncompromising Principles. What are the key qualities and principles that our business should always be revolving around?
+				- Strategic Projects. What are the BIG projects we want to dive in to this year in order to actualize the business and life we want to create?
+				- Core Practices. What are the CORE practices we need to continually do on a consistent basis to bring our vision into reality?Let’s jump into the first area:
+			- Concentrated Review
+			- This should ideally be very short and potent. Stick to the big trends.
+				- Focus on problems and roadblocks that keep arising.
+				- Notice what continually seems to be holding you back from where you want to go.
+				- Review the biggest successes and accomplishments from the previous year, then drill down more into last quarter. What’s consistently been your strongest area?
+				- What areas are your weakest with yourself? With your team?
+				- In what ways have you been unrealistic or shortsighted? What could have happened differently if you had the hindsight you do now?For us, this amounted to realizing that we need to get back to our roots and focus more on creating amazing content for the blog. The blog is what built this business and it’s been somewhat neglected at certain times. It’s been a sporadic endeavor at best (and you can expect that to change big time this year!) and we haven’t been operating as powerfully as we know we can.
+			- Another lesson we learned is to not try to take on too many projects at once. When we have too many projects and promotions going on, we lose our power. Our audience isn’t sure what they should focus on and pay attention to, and we end up creating stuff that’s “good enough” rather than amazing things we want to herald to the world.
+			- We had a good four hour conversation talking about all of this on the first night, but decided that too much time spent talking about what can be improved only goes so far. It’s important to wrap it up quickly and move on to what you want to create.
+			- Why Remembrance
+			- The next step is to spend some time remembering why you’re doing this in the first place and create a strong foundation to move forward from. Connecting with your Why gives you energy, inspiration and recenters you spiritually to your work.
+			- This is a simple process, so don’t make it too complicated. Just ask yourself this simple question:
+			- Why do I want to do this work? Why does this matter to me?Here’s what we came up with:
+				- We do this to help people bring life to their purpose and offer something to the world from the heart of their imagination.
+				- To help people embark on a personal Hero’s Journey that transforms themselves, their family and the world.
+				- We want to help people create lives they’re proud of.
+				- We want to dramatically transform the world of work.
+				- To inspire people to believe that a life of your dreams isn’t just reserved for the lucky or privileged.
+				- To be caught up in the ecstatic unfolding of creation.
+				- To make things that make us feel alive and proud.
+				- To be a craftsman, a creative agent of imagination.
+				- To build something of our own, our own vision, and not someone else’s we didn’t choose.Core Desired Feelings
+			- Dustin playing the theme song to the Pink Panther on guitar.
+			- This is all about how you want to feel in your work and life. What do you want to be experiencing while your genius is pouring out from within you? While you’re creating your masterpiece, do you want to be in state of flow and ecstatic rapture, or at painful battle with your art?
+			- In life you always have the ability to choose how you want to feel. And when you’re deliberate and take ownership for your feelings, it naturally leads to more powerful, aligned actions.
+			- Here’s what I want to feel in my work:
+				- Creatively alive
+				- Flow
+				- Communion
+				- Awestruck
+				- BlessedUncompromising Principles
+			- At first it might seem easy to confuse Core Desires with Uncompromising Principles. And in truth, they are close relatives. They form a symbiotic relationship that helps each other thrive.
+			- When you’re acting from your Core Feelings, you’re probably in alignment with your Uncompromising Principles (UPs).
+			- In a way your UPs are both a manifestation of and a vehicle for the way you want to feel. They act as guides for steering your actions. Without them it’s easy to get lost, and although you’re working hard, you feel like there’s not a sense of purpose or meaning to what you’re doing.
+			- While your Core Desired Feelings are personal, your UPs are universal for your business. They guide the actions of your team, your community and your work as a whole.
+			- These are our UPs and why we chose them:
+				- Impact. Everything we do has to be useful and create positive change, first and foremost.
+				- Personally interesting. Yes, we serve a community, but we have to be connected to our work in a way that excites us as well as our audience.
+				- Innovation. We want to consistently push the boundaries.
+				- Fun. Nothing else really matters if it’s not fun most of the time.
+				- Integrity. We operate from a place of openness, honesty and authenticity with our work.These principles help guide us to the projects we want to work on, the actions we’ll take and what we’re not willing to do.
+			- Strategic Projects
+			- The key now is to take the lessons learned, your goals, desires and principles and focus them all to decide the big projects and adventures you’ll undertake throughout the quarter or year.
+			- I’d love to share with your all the juicy projects we have lined up for the year, but that would ruin all the fun, wouldn’t it? :)
+			- However, I will tell you that what I like to do is divide projects up by quarter. I like to choose one BIG project for each quarter. That might be something like a live event, a product launch, a manifesto or a meetup tour. This is where all the big stuff goes.
+			- Core Practices
+			- Sunrise view from the cabin.
+			- This is where the rubber meets the road. It’s time to take all of your dreams, goals and your beautiful, breathtaking vision and bring it down to earth.
+			- What are the daily and weekly actions you’ll need to take to get you to where you want to go?
+			- Here’s what we came up with:
+				- Creating mini experiences. These are pieces of content that are more interactive and experiential. Check out the one we just launched recently: If I Could Quit My Job, I would…
+				- Save 20% of revenue a month. The more we’re in a state of financial comfort and ease, the greater we can operate with creativity and abandon.
+				- Daily partner outreach. Everyone needs to be doing something every single day to grow and foster relationships that can build and expand our brand.
+				- Two amazing blog posts a month. If more flows, great. If not, we don’t push it. Intense quality, creativity and flow are a must.
+				- Micro movements. Small events that bring our community and other communities together. (More on this later.)
+				- Weekly Skype calls with potential partners. I want to do a better job of connecting with cool people doing great work that are either up and coming and working their asses off, or are well-established.
+				- Regular guest posts. Once a month. Somewhere with massive leverage.
+				- Weekly money and numbers meetings. Every single week we meet and talk about our most important numbers. Just a handful. Email list growth, revenue and conversion.Converting your plan into powerful, dangerous action
+			- A plan is nothing without dangerously focused action. There are lots of ways you can turn this plan into action. Basecamp and calendars work well for longer-term projects. Stickie notes and phone reminders work well for daily or weekly actions.
+			- You’ll need to determine what type of system works best for you to make your plans more than just plans and turn them into realities.
+			- Further resources and ideas:
+				- Chris Guillebeau has a great post on how to conduct an annual review you might be interested in.
+				- Scott Dinsmore has a great workbook on annual goal setting you might want to check out.
+				- Charlie Gilkey has some really stellar, top-notch monthly planners that can help you stay focused on what matters now.Creating your own retreat
+			- I hope you found this guide useful to you and that it inspires you to go on your own visionary quest.
+			- Remember that you can design this however you want. This is the way we did it, and it’s just one way of doing it. The most important part is that you create a fun and memorable experience.
+		- Art and Business
+			- [ Art + Business The artist says, "that sounds like business, and I want nothing to do with it. It will corrupt me and make me think small."The businessperson says, "art is frightening, unpredictable and won't pay."Because the artist fears business, she hesitates to think as big as she could, to imagine the impact she might be able to make, to envision the leverage that's available to her.And because the businessperson fears art, she holds back, looks for a map, follows the existing path and works hard to fit in, never understanding just how vivid her new ideas might be and how powerful her art could make her.There's often a route, a way to combine the original, human and connected work you want to do with a market-based solution that will enable it to scale. Once you see it, it's easier to call your bluff and make what you're capable of.
+		- Day3
+			- Day3 Own a strategy
+			- ind a mentor and they will rub off on you -
+			- meetup.com
+			- Fastest track to success, provide them value for them to take you on
+			- 4) Always execute - action or you will not achieve your goals
+			- Do things that others aren't doing
+				- 5) Create value - demand + ability + scarcity
+			- Demand > need as we want things we don't need
+			- Ability - hire others if need be
+			- Scarcity - difficulty in replacing you/it
+			- 6) Seek growth - keep pushing to the ceiling of the business model
+			- Maintenance simply results in decline
+			- Scale - acquire a growing business, that's what all the richest people do
+			- 7) Give back - For image, karma, profit, promotion,
+			- Start up capital for paying people to help grow business
+			- - qualify banks and investors - were looking for investors
+			- Venture capitalists everywhere, look for the right people
+			- Borrow others credibility for making deals eg your team's track record
+			- 7lawsofwealth.com
+			- Kahn academy met one person each day for 2 months for investing in the business
+			- Passion + Money
+			- This doesn’t mean we shouldn’t pursue our passions; it just means we’re more apt to feel satisfied doing it if we define success in terms beyond financial gain. That might mean we need to live on less. It might mean we need to balance our passion with other work.
+			- Of course, you may create a situation where your passion becomes lucrative; if it wasn’t your strongest motivation, it will be icing on the cake.
+			- Do what you love and enjoyment will follow. Do what you love and you will feel more fulfilled. Do what you love and the money will seem less relevant. These things I’ve found are true.
+			- “I am a writer, but I love sex more than I love writing,” author Penelope Trunk observed a few years ago. And I am not getting paid for sex…. But I don’t sit up at night thinking, should I do writing or sex? Because career decisions are not decisions about ‘what do I love most?’ Career decisions are about what kind of life do I want to set up for myself.”
+			- Seth Godin once told the story of a gifted friend who took on a draining, grunt role at a record company because music was his bliss. Godin wondered, rightly, if this friend could have served himself and society better if he worked as a schoolteacher during the day and spent his spare time pursuing his passion.
+			- In Newport’s book, So Good They Can’t Ignore You, he argues that following one’s passions can be a dead end. He argues that it’s better to identify which skills you have that could be rare and valuable in the workplace – and then to hone those skills till you have career capital that you can spend in the way you choose.
+		- How Do I Find My Passion? The Missing “Recovery” Method
+			- http://paidtoexist.com/find-your-passion
+			- The one true calling! Your life’s purpose! Your magnum opus!
+			- No matter what you want to call it, it’s important. The only problem is that most people are confused about how to discover it.
+			- In this guide, you’ll learn about a deceptively simple technique that will help you uncover your life’s deepest passion, once and for all.
+			- Finding your passion doesn’t have to be difficult or scary
+			- I’m guessing you might be a little bit stuck with this whole “do what you love” thing.
+			- It’s something you take seriously — it’s deeply important to you, yet you feel intimidated. You don’t want to screw it up. You don’t want to spend years of your life going in the wrong direction.
+			- Unfortunately, life doesn’t come with a manual on finding your passion. There is no guidebook you’re given in adolescence to help you with this important rite of passage. There is no class in school on Making Your Life Matter.
+			- While I can’t claim that this guide presented here will be everything you need (you’ll have to do the work and make adjustments based on your own needs), it is a start that will set you off on the right footing.
+			- But there is one, huge and fundamental shift that you must make if you want to finally live your deepest passion…
+			- Why you must recover, and not discover
+			- Most people will tell you that you need to go on a quest to “discover” your passion. I don’t think that’s the best advice.
+			- Take that counsel and you’ll end up on a Holy Grail kind of quest seeking, striving and straining to find that elusive Ultimate Purpose. And because you make it into such a grandiose endeavor, you’re always questioning it. Always tweaking and second-guessing yourself. You’re never quite sure if you’re on the right track.
+			- Well, I have news for you.
+			- Your greatest passion is within you. And there’s an incredibly great chance that it’s not singular.
+			- Your passion can include a multitude of desires and a melting pot of interests. You can be passionate about many things and not have any of them compete for the #1 spot.
+			- But whether you have one passion or an infinite number of passions, they are within you. Right now. Waiting to be recovered.
+			- Reuniting with your long lost love
+			- The real reason most of us don’t follow our passion is not because we don’t know what it is, but because we’re so out of touch with our hearts that we don’t stop to give our dreams a fighting chance. We see them as frivolous or impractical, and immediately toss them to the side.
+			- Or worse, we’ve become so entrenched in the world of accomplishments, materialism and status that we can’t even connect with what we truly love. The word passion evokes nothing more than the view of a featureless landscape. Flat and lifeless.
+			- The key to recovering your passion is to reconnect with your ability to feel inspired and hopeful. You let go of your mind’s impulse to judge the merit of your passion, and begin seeing its value by the feeling it evokes in your heart. This is the absence of judgment all together. You either feel it or you don’t.
+			- I’m guessing that there are many interests and loves that you once had — whether as a child or adolescent — that you gave up on because at some point you determined that they weren’t practical. There was no money in it. It wasn’t a “legitimate” vocation. You weren’t any good at it. Whatever the reason was, you gave up on it because you came to believe that it was frivolous or foolhardy.
+			- Whatever it is, if you love it, if you feel drawn to it, let that be enough.
+			- “I do what I love and leave for others to determine whether it’s practical or not.” — Click to tweet.
+			- Now, let’s talk about money
+			- It’s easy to naively herald Follow your passion! Do what you love and the money will follow!
+			- But we both know that it’s not true. There are many interests we might have that don’t interest others. Or, we might be able to serve others with it, but for us it is a completely self-centered pursuit. There is nothing wrong with either of these types of devotions. They are valid whether or not service and interest on the part of others exists.
+			- However, if you are interested in making your passion your livelihood, then you must consider others, mustn’t you? Yes, of course. But I do want to reiterate: A passion is still valid even if you have no interest or there is no potential for it to bring in income.
+			- So, what are the keys to a passion that is both deeply rooted in who you are and deeply founded in service to the world?
+			- Here are a few keys:
+				- You must not only have a passion for your craft, but an earnest desire to help others. If you can’t get as thrilled about helping others with your gifts as you get about the gift itself, it’s unlikely that you’ll be able to attract others to your message.
+				- There must be a significant need in the world that you can relieve with your gifts, or an intense passion around your gift. Without intensity, urgency and emotion, it’s unlikely that people will care enough to pay for the solution or gift you offer.
+				- It must have longevity. No craft will ever become profitable unless you can cultivate it for years or decades.
+				- It must tap into a cause a tribe is fiery about, or something people can rally around. It needs to have the ability to create and foster community.If you evaluate your interest(s) through the lens of these four areas, there is a much greater likelihood that your passion is something that can both sustain and support you in the world.
+			- How to recover your passion
+			- A common approach to finding your passion often involves looking through a community class brochure or talking to a career counselor. These are okay places to start, but the problem with both of them is that they are usually founded on the assumption that your passion is something you need to go out and locate, kind of like a bad episode of Where in the World is Carmen San Diego?
+			- If you take that approach, you’ll likely set yourself up for a long heartache of soulmate-style searching. You’ll always be wondering if this is the one. But what if you relaxed your grasp and instead accepted that you may have many passions or many desires? And then, when you considered those desires and felt into what called you the most — what do you feel most drawn or pulled to?
+			- Here are some questions that will help you uncover or recover your passion:
+				- What’s something you’d love to be an expert in?
+				- What are you naturally talented at? What seems second nature to you?
+				- In what ways do you deeply enjoy serving others?
+				- What are you called to in your heart to pursue as a craft or vocation?
+				- What is a profession you could enjoy exploring for years without ever tiring or becoming bored?
+				- What are some moments in the past when you’ve felt deeply fulfilled in a project or cause?
+				- What are some moments where you’ve become completely lost in your work and time ceased to exist?The key here is to focus on what’s within you, and to go excavating in your past to uncover artifacts of events, pursuits or key moments that will help guide you to your passion. Again, it’s completely fine if all the evidence doesn’t point in one direction. It rarely will.
+			- Avoiding the “angels in the sky” mistake
+			- Most of us, after endeavoring on such an exploratory mission, will expect a very clear and concrete answer. We anticipate a Magic 8 Ball to miraculously tell us that “Your future lies in 18th century cast iron welding.”
+			- Not only do we expect immediate specificity, we expect angels to burst from the heavens and our heart to light up in a blaze of glory at our reunion with what we love.
+			- And to make matters worse, we dismiss any answer or clue that isn’t incredibly specific or doesn’t incite tremors of enthusiasm. The problem is that we expect the fruits of our labor before we’ve toiled in the field.
+			- This is a mistake. Our path will never become completely clear until we start walking it. And we will never be fully excited until we are knees-deep in the work.
+			- This doesn’t mean we should just blindly start hacking away in any direction, hoping that through trial and error we will find our way. The goal is to first have a very clear direction of where we want to head without trying to establish what the exact destination looks like in advance.
+			- The truth is that there is no destination. The destination is the path. And we become more and more familiar with it, more passionate, more invested and more clear about it as we take bold action.
+			- Taking this approach we can relax our need to have all the details at the outset of our journey, and accept that through our forays we will inevitably correct and change course over time. What this means is honoring that our deepest purpose is a living, breathing craft. It’s not something we can whittle down to a few trite sentences. It’s not to be crystallized, forbidding any refinement or iteration.
+			- Our work is beautifully alive, and unfolding every single day.
+		- How to Prevent Your Passion from Blowing Up in Your Face
+			- Your soul dies a little every time you drive to work.
+			- The solution sounds so easy: ”follow your bliss.”
+			- But you don’t get far before you discover more questions than answers: How do I know if something is really a passion? What if I don’t have a passion? What if I have too many? Am I dooming myself to a life of poverty if I follow my passion once I find it?
+			- It’s not that you don’t want to live a life of passion, but you’re scared. What if it doesn’t work out?
+			- One of two things happen when people get really scared. Either they become depressed and hopeless, deciding the whole passion idea is a crock. Or they rashly quit their job and figure the rest will work itself out.
+			- I hate to admit it, but I’ve actually done both. Relatively early in my career, I gave up on doing something different than what I’d majored in. I had a PhD in biochemistry and it felt like too much of a waste to do something else. Besides, I was relatively good at it.
+			- Later, as the urgency to live the life I wanted became too great to ignore, I quit my job before I had any idea what I wanted to do instead. It was scary. We suddenly had one sure salary and three mortgages to pay. Looking back, I see I made the whole process harder than I had to.
+			- Most of the time we hear about the success stories, and while they might provide inspiration, they can also reinforce some romantic illusions about career change that aren’t helpful. If you’re not careful, it’s quite possible to find yourself in yet another near miss of a job, wondering what went wrong.
+			- We can’t let that happen to you.
+			- Below I provide the nuance you need to make sense of the common advice to “follow your passion,” explaining the most common pitfalls and how to avoid them.
+			- Pitfall #1: Much ado about passion
+			- A lot of people worry they don’t have any passions because there’s nothing that occupies their every waking thought or makes them quiver with excitement. But there’s no absolute level of emotion that everyone needs or is capable of experiencing. It’s a little like dating. Some people get consumed by their relationships, others may enjoy a sense a peace and contentment. One is not better than the other.
+			- Passion is just a popular (and more concise) way to refer to activities we’re intrinsically motivated to perform. As Daniel Pink says, the things “that matter, that we like, and that are meaningful.” Don’t make passion more complicated than it is.
+			- Pitfall #2: Going in circles
+			- Once you open up the definition of passion, you may worry you have too many and can’t choose among them. There are two potential solutions:
+				- Find a way to creatively combine one or more of them
+				- Realize that intrinsic motivation to perform must also be accompanied by the motivation to master. If you don’t like to read about it, talk about it, or learn about it in your free time, it’s probably better as a hobby. But realize that passion isn’t the whole picture either. Finding the right career is looking for the sweet spot between your passions, your personality, and your strengths. If you’ve done the above and you’re still going in circles, you’re probably putting too much weight on one of the three, instead of looking at jobs that connect them.
+			- Pitfall #3: Anti-passions
+			- Most careers are made of more than one activity. When considering whether a “passion” could become a dream job, break down your new career into all the activities that will be required, with some sense of how often they’re performed.
+			- Artists need to enjoy marketing and sales if they’re going to make a living. Lawyers need to be researchers and often skilled bureaucrats. If a passion-turned-career involves too much time doing activities you despise (what I call “anti-passions”), it’s also likely to be the anti-heaven of what you were envisioning.
+			- Pitfall #4: The “Do what you love and the money will follow” mantra
+			- In many respects, I like this mantra. I mean, too often we chase after jobs that pay a lot and hope we like them. I much prefer the idea of chasing after jobs we love and hope they pay a lot.
+			- But the starving artist stereotype exists for a reason. Many will follow their passion and earn a lot less than they did before, and many will do it nearly on purpose. It’s easy to argue, when you do what you love, that you don’t really care if you get paid for it. Believe me, I have said this to myself more than once since quitting, as bizarre as it sounds.
+			- Don’t pity them (or me) for a minute. Although we may not assign it a monetary value, happiness is worth something. You just have to decide how much it’s worth to you.
+			- Pitfall #5: Moving too fast
+			- This pit is the widest and the deepest. Many good dreams have gotten lost here.
+			- Let’s go back to our dating analogy. Few would advise you to marry someone you just met a couple of weeks ago. It’s called the honeymoon phase, when you tend to see what you want to see instead of what’s really there.
+			- And yet people do that with their careers all the time. They translate a love of coffee into a dream of owning their own cafe. Or a passion for organization into a wedding planning business.
+			- Do – your – homework.
+			- If I had just one message for those that would prefer their passion didn’t blow up in their face, this would be it. Remember what we said about passion in the first place: if you’re not willing to talk about it, read about, and learn about, don’t turn it into your livelihood.
+			- What does this mean practically? You should read at least 3 books on the career you’re considering, talk to at least 5 people who are doing it now, and if you’re thinking of starting your own business, I recommend you have at least 3 paying customers before making the leap to full-time.
+			- I realize that “practical passion” must sound pretty strange. Foreign, even.
+			- But when you wake up in the morning, excited at another day where you get paid to live your dream and change the world, all at the same time, I promise, it will feel pretty darn wonderful.
+			- About the author: Jennifer Gresham is a PhD scientist turned writer and coach, author of the popular career blog Everyday Bright. If you’d like to learn more about what it takes to follow your passion practically, check out her free videos on career change.
+		- Note from ((663cb699-b7f7-490b-aad5-f87d7fce4c28))
+			- 1. Why You?
+			- One of the first obstacles I ran into was: why me?
+			- What made me so special? Why did I deserve to get paid to do what I love and live life on my own terms?
+			- The answer was simple: because I wanted to, and because I knew I deserved better.
+			- This isn’t about conforming to someone else’s beliefs. This is about living the life you know you deserve.
+			- There will always be naysayers, but it doesn’t matter.
+			- What matters is what you think, because you’re the one who has to live your life.
+			- But knowing you deserve something is not enough, you also have to express who you are, so people can connect with you, which brings us to self-suppression.
+			- 2. Self-Suppression
+			- If you aren’t expressing who you really are, you won’t attract the right clients and customers.
+			- Putting yourself out there can be tough.
+			- It’s a fear everyone has in the beginning.
+			- But in the end, you alone have to decide, do you want to stay in a safe imaginary bubble, or do you want to take the leap?
+			- No one said this was going to be easy. The courage to express yourself happens gradually.
+			- And when you can express yourself, it’s time to create a kick-ass offer, but what usually happens is people create an offer that flops.
+			- 3. Crafting a Weak Offer
+			- It’s not enough to attract an audience; you have to make them a powerful offer. In other words, you have to sell something excellent.
+			- And this is not just about selling. It’s about helping the people that are the most motivated.
+			- It’s easy to create vague and weak offers, which is what most people do, and then they wonder why nothing happens.
+			- A compelling offer is Jonathan’s TrailBlazer, where he shows you how to make $1,000 in 6-months doing what you love.
+			- It paints a clear picture in your mind of what the end result looks like, and that is exactly what you have to do to create your first product or service.
+			- Be specific, be bold, and embrace the fear, but avoid the trap of undervaluing your offer.
+			- 4. Undervaluing Your Offer
+			- When you have a compelling offer, you have to price it right.
+			- Too low and people will think it’s worthless.
+			- Too high and people will think it’s worth less ;).
+			- The correct pricing comes from experimentation. Start low, increase the price, and keep experimenting.
+			- This is what I’ve done with one of my products, Passionate Living. It started off as a simple ebook for $9.95, but the price has slowly climbed to $17, $27 and now $42 as I’ve improved and made it into a full-blown course.
+			- Don’t look for instant perfection, focus on constant improvement.
+			- When you know you have something great to offer, you’re on the right path, but you’re not quite there, because you still have to tell people about it, which brings us to selling.
+			- 5. Selling Avoidance
+			- Ah, selling.
+			- It’s sleazy, right?
+			- Well, not really. You can use high-pressure tactics and yellow highlighter, but it is you who control how you sell.
+			- The fundamental elements of selling still apply: risk reversal, urgency, features, benefits, and so on.
+			- If you don’t tell people about what you have to offer, they won’t know.
+			- You’d be surprised at how often people don’t even know you’re selling something unless you tell them about it regularly.
+			- And those who think you’re selling too much?
+			- They aren’t the right people for you. Let them go, and move on.
+			- As you leave your qualms about selling in the dust, it’s time to approach the next obstacle, which is making connections and dare I say, networking?
+			- 6. Scared Networking
+			- If you don’t get the word out, no one is going to find what you have to offer, which means the probability of failure goes up dramatically.
+			- And we don’t want that, do we?
+			- For a long time, I was confused by networking. I’m an introvert and I don’t particularly enjoy “networking.”
+			- Once I shifted my perspective from “networking” to just having fun with people that I resonate with, things changed.
+			- The secret is to be yourself when talking to new people. Make friends and have fun. Don’t look for magic bullets, because they do not exist.
+			- Don’t apologize for who you are. If people don’t like you, you move on.
+			- When you’ve overcome all of the six pitfalls we’ve covered so far, you’ll have begun shifting your perspective on life.
+			- Most people live and operate out of fear, and I did, too, for a long time. It’s a big problem, and it needs to stop now.
+			- 7. Fear-Centered Living
+			- Most walk around afraid of everything, blaming everyone else for their luck, and staying stuck in a victim mentality.
+			- And it’s not until you shift it into taking responsibility for your life that things change.
+			- Most people are unwilling to do this, because it’s uncomfortable.
+			- But the truth of the matter is that if you’re not getting the results you want, it’s up to you to do something about it.
+			- If at first you fail, you get up, and you keep going.
+			- Simple, but powerful advice.
+		- On Making Money And Living A Balanced Life — Some Contrarian Advice
+			- On Making Money And Living A Balanced Life — Some Contrarian Advice
+			- What I found was that I started enjoyed the thing I love (in my case playing music) a lot less when my living was tied to it and I made a lot less money because everyone else wants to make money doing fun things. So instead I have gone back to my profession (practicing law) but I have structured my career so that I need to work only six hours a day to make many times what I was making as a musician, and then have plenty of time left over to pursue music and other interests (exercise, reading, women) at my leisure. I am significantly happier and more fulfilled now than when I was trying to make a living as a musician.
+			- https://mavericktraveler.com/making-money-living-balanced-life-contrarian-advice/
+		- Organisational Habit Change
+			- Organisational Habit Change
+			- i.e. occupational psychology
+			- e.g. starbucks is a people-focused coffee company, not coffee-focused people company
+			- > I could create a company which sells an irrelevant product, but it's really the experience I'm selling
+			- Paul O'Neill of Alcoa and his focus on worker safety as a keystone habit which lead to the company quintupling it's share price by the time he left the company
+			- He started as a middle manager at the Veterans Administration and was told to learn about computer systems. All the while, O’Neill kept writing his lists, recording why some projects were more successful than others, which contractors delivered on time and which didn’t. He was promoted each year. And as he rose through the VA’s ranks, he made a name for himself as someone whose lists always seemed to include a bullet point that got a problem solved. By the mid-1960s, such skills were in high demand in Washington, D.C. Robert McNamara had recently remade the Pentagon by hiring a crop of young mathematicians, statisticians, and computer programmers. President Johnson wanted some whiz kids of his own. So O’Neill was recruited to what eventually became known as the Office of Management and Budget, one of D.C.’ s most powerful agencies. Within a decade, at age thirty-eight, he was promoted to deputy director and was, suddenly,
+			- among the most influential people in town. That’s when O’Neill’s education in organizational habits really started. One of his first assignments was to create an analytical framework for studying how the government was spending money on health care. He quickly figured out that the government’s efforts, which should have been guided by logical rules and deliberate priorities, were instead driven by bizarre institutional processes that, in many ways, operated like habits. Bureaucrats and politicians, rather than making decisions, were responding to cues with automatic routines in order to get rewards such as promotions or reelection. It was the habit loop— spread across thousands of people and billions of dollars. For instance, after World War II, Congress had created a program to build community hospitals. A quarter century later, it was still chugging along, and so whenever lawmakers allocated new health-care funds, bureaucrats immediately started building. The towns where the new hospitals were located didn’t necessarily need more patient beds, but that didn’t matter. What mattered was erecting a big structure that a politician could point to while stumping for votes. 3
+			- Federal workers would “spend months debating blue or yellow curtains, figuring out if patient rooms should contain one or two televisions, designing nurses’ stations, real pointless stuff,” O’Neill told me. “Most of the time, no one ever asked if the town wanted a hospital. The bureaucrats had gotten into a habit of solving every medical problem by building something so that a congressman could say, ‘Here’s what I did!’ It didn’t make any sense, but everybody did the same thing again and again.” Researchers have found institutional habits in almost every organization or company they’ve scrutinized. “Individuals have habits; groups have routines,” wrote the academic Geoffrey Hodgson, who spent a career examining organizational patterns. “Routines are the organizational analogue of habits.” 4 To O’Neill, these kinds of habits seemed dangerous. “We were basically ceding decision making to a process that occurred without actually thinking,” O’Neill said. But at other agencies, where change was in the air, good organizational habits were creating success.
+			- Some research, for instance, suggested that the biggest cause of infant deaths was premature births. And the reason babies were born too early was that mothers suffered from malnourishment during pregnancy. So to lower infant mortality, improve mothers’ diets. Simple, right? But to stop malnourishment, women had to improve their diets before they became pregnant. Which meant the government had to start educating women about nutrition before they became sexually active. Which meant officials had to create nutrition curriculums inside high schools. However, when O’Neill began asking about how to create those curriculums, he discovered that many high school teachers in rural areas didn’t know enough basic biology to teach nutrition. So the government had to remake how teachers were getting educated in college, and give them a stronger grounding in biology so they could eventually teach nutrition to teenage girls, so those teenagers would eat better before they started having sex, and, eventually, be sufficiently nourished when they had children.
+			- Duhigg, Charles (2012-04-05). The Power of Habit: Why We Do What We Do, and How to Change (pp. 118-119). Random House. Kindle Edition.
+			- Something similar happened at Alcoa after O’Neill took over. Just as food journals provided a structure for other habits to flourish, O’Neill’s safety habits created an atmosphere in which other behaviors emerged. Early on, O’Neill took the unusual step of ordering Alcoa’s offices around the world to link up in an electronic network. This was in the early 1980s, when large, international networks weren’t usually connected to people’s desktop computers. O’Neill justified his order by arguing that it was essential to create a real-time safety data system that managers could use to share suggestions. As a result, Alcoa developed one of the first genuinely worldwide corporate email systems. O’Neill logged on every morning and sent messages to make sure everyone else was logged on as well. At first, people used the network primarily to discuss safety issues. Then, as email habits became more ingrained and comfortable, they started posting information on all kinds of other topics, such as local market conditions, sales quotas, and business problems. High-ranking executives were required to send in a report every Friday, which anyone in the company could read. A manager in Brazil used the network to send a colleague in New York data on changes in the price of steel. The New Yorker took that information and turned a quick profit for the company on Wall Street. Pretty soon, everyone was using the system to communicate about everything. “I would send in my accident report, and I knew everyone else read it, so I figured, why not send pricing information, or intelligence on other companies?” one manager told me. “It was like we had discovered a secret weapon. The competition couldn’t figure out how we were doing it.”
+			- Duhigg, Charles (2012-04-05). The Power of Habit: Why We Do What We Do, and How to Change (p. 121). Random House. Kindle Edition.
+			- In 2000, O’Neill retired from Alcoa, and at the request of the newly elected president George W. Bush, became secretary of the treasury.fn3 He left that post two years later, and today spends most of his time teaching hospitals how to focus on worker safety and keystone habits that can lower medical error rates, as well as serving on various corporate boards. Companies and organizations across America, in the meantime, have embraced the idea of using keystone habits to remake workplaces. At IBM, for instance, Lou Gerstner rebuilt the firm by initially concentrating on one keystone habit: IBM’s research and selling routines. At the consulting firm McKinsey & Company, a culture of continuous improvement is created through a keystone habit of wide-ranging internal critiques that are at the core of every assignment. Within Goldman Sachs, a keystone habit of risk assessment undergirds every decision. And at Alcoa, O’Neill’s legacy lives on. Even in his absence, the injury rate has continued to decline. In 2010, 82 percent of Alcoa locations didn’t lose one employee day due to injury, close to an all-time high. On average, workers are more likely to get injured at a software company, animating cartoons for movie studios, or doing taxes as an accountant than handling molten aluminum at Alcoa. “When I was made a plant manager,” said Jeff Shockey, the Alcoa executive, “the first day I pulled into the parking lot I saw all these parking spaces near the front doors with people’s titles on them. The head guy for this or that. People who were important got the best parking spots. The first thing I did was tell a maintenance manager to paint over all the titles. I wanted whoever got to work earliest to get the best spot. Everyone understood the message: Every person matters. It was an extension of what Paul was doing around worker safety. It electrified the plant. Pretty soon, everyone was getting to work earlier each day.”
+			- + starbucks willpower and habits program
+			- “One of the hardest things about this job is dealing with an angry customer,” Travis’s manager told him. “When someone comes up and starts yelling at you because they got the wrong drink, what’s your first reaction?” “I don’t know,” Travis said. “I guess I feel kind of scared. Or angry.” “That’s natural,” his manager said. “But our job is to provide the best customer service, even when the pressure’s on.” The manager flipped open the Starbucks manual, and showed Travis a page that was largely blank. At the top, it read, “When a customer is unhappy, my plan is to …” “This workbook is for you to imagine unpleasant situations, and write out a plan for responding,” the manager said. “One of the systems we use is called the LATTE method. We Listen to the customer, Acknowledge their complaint, Take action by solving the problem, Thank them, and then Explain why the problem occurred. 19
+			- “Why don’t you take a few minutes, and write out a plan for dealing with an angry customer. Use the LATTE method. Then we can role-play a little bit.” Starbucks has dozens of routines that employees are taught to use during stressful inflection points. There’s the What What Why system of giving criticism and the Connect, Discover, and Respond system for taking orders when things become hectic. There are learned habits to help baristas tell the difference between patrons who just want their coffee (“ A hurried customer speaks with a sense of urgency and may seem impatient or look at their watch”) and those who need a bit more coddling (“ A regular customer knows other baristas by name and normally orders the same beverage each day”). Throughout the training manuals are dozens of blank pages where employees can write out plans that anticipate how they will surmount inflection points. Then they practice those plans, again and again, until they become automatic. 20
+			- - specific and detailed implementation intentions
+			- Administrators eventually agreed to limit nurses’ mandatory overtime, but tensions continued to rise. 5 A few years later, a surgeon was preparing for a routine abdominal operation when a nurse called for a “time-out.” Such pauses are standard procedure at most hospitals, a way for doctors and staff to make sure mistakes are avoided. 6 The nursing staff at Rhode Island Hospital was insistent on time-outs, particularly since a surgeon had accidentally removed the tonsils of a girl who was supposed to have eye surgery. Time-outs were supposed to catch such errors before they occurred. At the abdominal surgery, when the OR nurse asked the team to gather around the patient for a time-out and to discuss their plan, the doctor headed for the doors. “Why don’t you lead this?” the surgeon told the nurse. “I’m going to step outside for a call. Knock when you’re ready.” “You’re supposed to be here for this, Doctor,” she replied. “You can handle it,” the surgeon said, as he walked toward the door. “Doctor, I don’t feel this is appropriate.” The doctor stopped and looked at her. “If I want your damn opinion, I’ll ask for it,” he said. “Don’t ever question my authority again. If you can’t do your job, get the hell out of my OR.” The nurse led the time-out, retrieved the doctor a few minutes later, and the procedure occurred without complication. She never contradicted a physician again, and never said anything when other safety policies were ignored.
+			- To deal with these tensions, the staff had developed informal rules— habits unique to the institution— that helped avert the most obvious conflicts. Nurses, for instance, always double-checked the orders of error-prone physicians and quietly made sure that correct doses were entered; they took extra time to write clearly on patients’ charts, lest a hasty surgeon make the wrong cut. One nurse told me they developed a system of color codes to warn one another. “We put doctors’ names in different colors on the whiteboards,” she said. “Blue meant ‘nice,’ red meant ‘jerk,’ and black meant, ‘whatever you do, don’t contradict them or they’ll take your head off.’”
+			- it may seem like most organizations make rational choices based on deliberate decision making, but that’s not really how companies operate at all. Instead, firms are guided by long-held organizational habits, patterns that often emerge from thousands of employees’ independent decisions. 16 And these habits have more profound impacts than anyone previously understood. For instance, it might seem like the chief executive of a clothing company made the decision last year to feature a red cardigan on the catalog’s cover by carefully reviewing sales and marketing data. But, in fact, what really happened was that his vice president constantly trolls websites devoted to Japanese fashion trends (where red was hip last spring), and the firm’s marketers routinely ask their friends which colors are “in,” and the company’s executives, back from their annual trip to the Paris runway shows, reported hearing that designers at rival firms were using new magenta pigments. All these small inputs, the result of uncoordinated patterns among executives gossiping about competitors and talking to their friends, got mixed into the company’s more formal research and development routines until a consensus emerged: Red will be popular this year.
+			- Routines provide the hundreds of unwritten rules18 that companies need to operate. 19They allow workers to experiment with new ideas without having to ask for permission at every step. They provide a kind of “organizational memory,” so that managers don’t have to reinvent the sales process every six months or panic each time a VP quits. 20 Routines reduce uncertainty— a study of recovery efforts after earthquakes in Mexico and Los Angeles, for instance, found that the habits of relief workers (which they carried from disaster to disaster, and which included things such as establishing communication networks by hiring children to carry messages between neighborhoods) were absolutely critical, “because without them, policy formulation and implementation would be lost in a jungle of detail.” 21 But among the most important benefits of routines is that they create truces between potentially warring groups or individuals within an organization. 22
+			- Now, imagine what you would tell a new colleague who asked for advice about how to succeed at your firm. Your recommendations probably wouldn’t contain anything you’d find in the company’s handbook. Instead, the tips you would pass along— who is trustworthy; which secretaries have more clout than their bosses; how to manipulate the bureaucracy to get something done— are the habits you rely on every day to survive. If you could somehow diagram all your work habits— and the informal power structures, relationships, alliances, and conflicts they represent— and then overlay your diagram with diagrams prepared by your colleagues, it would create a map of your firm’s secret hierarchy, a guide to who knows how to make things happen and who never seems to get ahead of the ball.
+			- Duhigg, Charles (2012-04-05). The Power of Habit: Why We Do What We Do, and How to Change (p. 164). Random House. Kindle Edition.
+		- Passion - why
+			- Passion - why
+			- consider david blaine and his performances
+			- My fiance is a magician -- these people are obsessed, compulsive, romantic people. To get a magician to talk about what magic means to them -- even more, what bringing magic to to *world* means to them -- is a very emotional thing for many of these artists. Consider, this is a man who trains for months and risks his life and health for his art, and he doesn't consider it to be "stunts" -- it's wonderment, it's *literally* awesome, and it's extending the idea of what is possible.
+			- If he gets a little maudlin about it, I'd hope you could respect that.
+			- or that of a songwriter, who pour out their hearts and minds on a song trying to give you a glimpse of what their life passion and purpose is about, the message they are trying to send
+		- Passion deciding
+			- PASSION DECIDING
+			- USP - PLUSS x3 your unique qualities
+			- e.g. scientific focus, humour, authenticity with examples, experimenter
+			- Freelancing - better marketing, different USP or positioning.
+			- For any new idea - look at supply and demand, just be smarter than everyone else. Use Craig's list ads to check demand, signup mailing lists, click to purchase we pages which don't allow purchase 4HWW. Ask others what you're good at. My strengths eg analytical. Hobbies - reading pers dev material. Virtual or local. Doesn't have to be your passion but every step should take you closer to it. IF YOU'RE GONNA FAIL, FAIL FAST I.e. make blog posts, ebooks etc before sinking all time into online course
+			- - make guest posts and products. Check if there are forums
+			- Passion: first step reduce liabilities. Then create income-generating assets
+			- Domain name should be own name
+			- Many men will have no idea what they wanna do, this comes through learning, trying and exploring. In an ideal world though, this is the criteria for your eventual career. It may appear intimidating but if you have the rest of your life, this can be achiev
+			- Between full time job and Internet business around passion can be an intermediate point. Freelance (x skill from work or writing then copywriting) to free up time by making more money. If better pay in job (eg £30+? But then freelance would still pay bett
+			- change my world, not the world
+			- stop wasting your time doing things for others and start doing things for yourself. That doesn't mean you can't do things for others but you start to focus on what's good for you and eliminate from your life what isn't.
+			- - do things because I like to do it, don't worry about end result/outcome
+			- creating a life where people with similar mindsets are drawn to you
+			- as well as good women
+			- What can you do that others can't. What advice do they ask you for. What's your purpose, what are you here to do
+			- - focusing on leveraging strengths = multiplication of results
+			- - focusing on fixing weaknesses = incremental improvement of results
+			- More security when you're your own boss, can't get fired, give yourself raises when you work hard
+			- How much money max to put into it and how much time to put in before giving up on the idea
+			- Look for what is already successful
+			- - then you know there is demand
+			- e.g. fitness/health; relationships; business/finance; personal development/spiritual; how-to stuff
+			- Some businesses require initial investment capital - use model of first 6 months profit is all yours, then % goes down until fully paid off (rather than stock otherwise you're pressured to sell)
+			- Get into something that inspires and you like then market research for how to fill needs of this group
+			- If competition then look at how they fulfill at look for gaps in their product
+			- Skills, Strengths and Interests
+			- What gives you joy?
+			- What are you best at?
+			- What does the world need?
+			- Ask a friend what they think your purpose in life is or your strength. You may be taking for granted your ability.
+			- Look at the themes behind childhood activities
+			- Simon Sinek - Start with Why, The Big Leap by Gay Hendricks
+			- Side note: sometimes the part you’re in love with is building businesses. That can be an amazingly rewarding way to succeed — by helping other experts turn their passions into profitable businesses. We have some Teaching Sells students who use that as their primary business model. Just an idea.)
+			- What you think about/read about/talk about in spare time
+			- What's in your perfect day/vision
+			- What you love doing / get lost in the moment in
+			- Talents - easy, good at
+			- Likes
+			- Passion/purpose
+			- Way of the superior man - go out in nature and wait til purpose screams out to you
+			- Dreams
+			- Sparks creativity
+			- What would you do for free
+			- What do you like to talk about, learn about in spare time
+			- What makes you unafraid of failure
+			- What would you regret not trying
+			- Progressive circles of purpose - leading toward ultimate. Levels up = how many purposes you've followed to their fullest extent
+			- What phrase encapsulates your life/mindset
+			- You're about to die/dead what message would you give the world/your children/lover/best friend
+			- Creativity / external measure rather than introspection - see what in the world resonates with you?
+			- what does the world need? mix it with your personality
+			- what do you see a more positive future having? fill that gap
+				- Be the change you want to see in the world
+			- So, instead of telling yourself garbage like “What am I passionate about?”, ask yourself: “What am I mad about ?” “How can I get really angry about my current life/situation/business, how can I get MAD AS HELL ?” and once you’re in that energetic state, use it to get what you want and take massive action. It works for me.
+			- It isn't necessarily something you're amazing good at right now. It's not your gift, it's your gift to the world. It's your passion for life and you doing your passion adds to the world.
+			- Internet businesses due to reach, scalability, sellign while you sleep, freedom of lifestyle. Product or services-based businesses
+			- > startups, freelancing, jobs
+			- The easiest way to understand convergence is: the overlapping space between what you care about and what other people are willing to spend money on. Not everything that you are passionate about or skilled in is interesting to the rest of the world—and not everything is marketable.
+			- I can be very passionate about eating pizza, but no one is going to pay me to do it. Likewise, any particular person won’t be able to provide a solution to every problem or be interesting to everyone. But in the overlap between the two circles, where passion or skill meets usefulness, a microbusiness built on freedom and value can thrive.
+			- There are two main schools of thought on how to pick income-producing creative projects. One is to go with your gut and do whatever inspires you. If you get an idea for a new project, run with it right away. The other idea is to research what people actually want to buy and then create something for that target market. This is the classic “find a need and fill it approach.”
+			- I tend to get the best results by combining both approaches. First, I saturate myself in trying to understand what people want. I can do this via online research, surveys, or just talking to people. Over the years I’ve met hundreds of my blog readers face to face, especially at workshops, so that helps me better understand their needs and what I can provide that will be helpful to them.
+			- If you have your own website or existing audience that you can use for market research, that’s a great place to start, but you can just as easily gather information from other websites.
+			- I think this type of mental saturation was a good place to begin because it helped me narrow my focus, so generating ideas wasn’t an overwhelming task. I could then think about creating something in one of the sub-genres where I perceived good opportunities.
+			- After that I began brainstorming some potential design ideas. I find that taking in a lot of input really helps when it comes to generating ideas. When I do this, I notice gaps in other people’s creations that help me see where I could take things in a different direction, thereby contributing something unique.
+			- If you sell something people actually want to buy, you can do a lot better financially.
+				- What are people already buying?
+				- Where are there gaps with relatively high demand and low supply that I could potentially serve?
+			- Sometimes it’s hard to answer #1 directly because you probably don’t have access to other people’s sales figures. But you can often use other public data to make some educated guesses. I didn’t know other game developers’ sales figures, but I could go to download sites and see how many downloads each demo had and how many games there were in each category. I could then calculate average downloads for each game in a a particular category. If I saw that one category had triple the per game downloads of another category, well… it wasn’t hard to surmise that one genre might make me triple the sales of another genre.
+			- I could also look up traffic rankings for a developers’ website to see how popular it was (such as with Alexa.com). And I knew many developers personally, so I had a general sense of who was making money and who wasn’t. All of this information combined to give me a decent idea of where there was good money to be earned and where there wasn’t.
+			- Do I think you should sacrifice your artistic integrity to satisfy the public? No, I don’t think it’s necessary to do that. I think most people who feel they must choose one or the other are creating a false dichotomy due to limiting beliefs and blocks to making good money. I didn’t feel I had to sacrifice my art to please others. In fact, I felt that paying more attention to what other people wanted made me a better artist. I liked having more customers to appreciate my creations.
+			- If you think you have to choose one or the other, I encourage you to question whether that’s really true. Can you take the pulse of what other people want to buy and then focus on pursuing inspired ideas that will land somewhere in the general vicinity? I think that’s doable.
+			- Much of the time when artists claim to be undiscovered geniuses and lament that they can’t make money doing what they love, I think the likely truth is that their art just isn’t very good yet.
+			- I think some of the best art is developed with a strong social component, meaning that there’s ongoing feedback between the artist and the patrons.
+			- Ultimate Thread on Choosing a Career
+			- As men our careers are the foundation of our lifestyle. It is central to our identity, reputation and happiness plus it has important knock-on effects on our relationships, health, mindset, etc. It is therefore wise to obtain as much information as possible to help guide our career development.
+			- I find it fascinating how different our preferences are for choosing a career. To give a few examples, an oft-cited plan is to stack dough in a job like accountancy or medicine for 15 years then live off savings, whereas someone like Captain Capitalism promotes working the absolute minimum in order to spend more time on hobbies. Then you have people like Krauser advocating choosing a career with numerous barriers to entry, whilst Roosh advises starting an internet business, etc. I know there's also plenty of interesting examples from the forum such working on oil rigs, starting a vending machine empire etc.
+			- These different choices of career are due to differences in our values, resources and circumstances. Whereas to one person selling crack is a great hustle, I'm rather averse to the risk of jailtime and my current situation means that I don't have resort to use that method of income generation.
+			- The aim of me opening this thread is to help build a resource that people can use to inform their own career decisions, from people who are doing/have done the same. I especially hope that people are as brutally honest as possible about the advantages, disadvantages, risk mitigation methods, income potential, financial and time investment requirements of their chosen career path.
+			- I'll start this off: Valentine's approach
+			- I look for my work to provide meaning and pleasure. I'm going to be working my entire life, I might as well enjoy it. That coupled with the fact that if you love something you'll have the determination to succeed and be innovative is what also persuaded me to first make this decision.
+			- My approach is most similar to Chris Guillebeau's advice to choosing a passion that aligns with what people are willing pay for and also Roosh's proposition to start an internet business. Fortunately when I started to uncover how I was going to turn my passion into an internet business I found that there was unmet market demand for it, but not everyone is so fortunate with their converting their initial passion into cash.
+			- To fund this internet business during the start-up period though I need a day job for the short-term. Fortunately though I've got a flexible part-time job with a short commute and plenty of downtime so that I can maximise the amount of time I put into my business. For those also interested in a low-maintenance job with plenty of downtime for working on side projects, I recommend today's well-timed post by Captain Capitalism (http://captaincapitalism.blogspot.co.uk/2013/05/why-you-should-aspire-to-be-security.html) though I'd also love to hear your suggestions for alternatives.
+			- Advantages:
+			- 1) Passion-based - can do this kind of work long-term despite low income at start and any setbacks
+			- 2) Location-independent & flexible (International playboy lifestyle)
+			- 3) High potential for passive income (Productisation)
+			- 4) Plenty of spare time to pursue hobbies, read, etc
+			- 5) Low start-up cost
+			- 6) Income potential only limited by my creativity and determination
+			- 7) Also possibility for fame in later life plan
+			- Disadvantages:
+			- 1) Slow start-up time (May take months or even years til it reaches the income levels of a full-time job)
+			- 2) Entrepreneur's Anxiety (Constant doubt of am I doing the right thing? Am I wasting my time? etc popping up every other day)
+			- 3) Until business kicks off I'm tied to one location, in my parent's house, with little spare cash for travelling, etc
+			- 4) Risk of wasted time - can only find out after significant time invested if this approach will be successful (though this can be off-set by using the Lean Startup methodology and thorough market research)
+			- Resources
+			- The $100 Startup by Chris Guillebeau
+			- The Internet Business Mastery Academy (great monthly membership site with a comprehensive how-to from discovering your niche to monetising it)
+			- Feel free to offer constructive feedback or ask questions about my approach and be sure to post your own.
+		- Passion notes
+			- Passion notes
+			- Wakeupcloud. Illuminated mind.
+			- If you set your goals extravagantly then you will achieve extravagantly too. Even if you don't quite reach your goal, or because you overstep it your effort will keep pace with the goal.
+			- If you set it too low however then your whole determination will drop, standards will slip and you maybe will achieve the goal but you will never have known just how much more you could achieve.
+			- Pitfall #1: Much ado about passion
+			- A lot of people worry they don’t have any passions because there’s nothing that occupies their every waking thought or makes them quiver with excitement. But there’s no absolute level of emotion that everyone needs or is capable of experiencing. It’s a little like dating. Some people get consumed by their relationships, others may enjoy a sense a peace and contentment. One is not better than the other.
+			- Passion is just a popular (and more concise) way to refer to activities we’re intrinsically motivated to perform. As Daniel Pink says, the things “that matter, that we like, and that are meaningful.” Don’t make passion more complicated than it is.
+			- Pitfall #2: Going in circles
+			- Once you open up the definition of passion, you may worry you have too many and can’t choose among them. There are two potential solutions:
+				- Find a way to creatively combine one or more of them
+				- Realize that intrinsic motivation to perform must also be accompanied by the motivation to master. If you don’t like to read about it, talk about it, or learn about it in your free time, it’s probably better as a hobby.
+			- But realize that passion isn’t the whole picture either. Finding the right career is looking for the sweet spot between your passions, your personality, and your strengths. If you’ve done the above and you’re still going in circles, you’re probably putting too much weight on one of the three, instead of looking at jobs that connect them.
+			- Pitfall #3: Anti-passions
+			- Most careers are made of more than one activity. When considering whether a “passion” could become a dream job, break down your new career into all the activities that will be required, with some sense of how often they’re performed.
+			- Artists need to enjoy marketing and sales if they’re going to make a living. Lawyers need to be researchers and often skilled bureaucrats. If a passion-turned-career involves too much time doing activities you despise (what I call “anti-passions”), it’s also likely to be the anti-heaven of what you were envisioning.
+			- Pitfall #4: The “Do what you love and the money will follow” mantra
+			- In many respects, I like this mantra. I mean, too often we chase after jobs that pay a lot and hope we like them. I much prefer the idea of chasing after jobs we love and hope they pay a lot.
+			- But the starving artist stereotype exists for a reason. Many will follow their passion and earn a lot less than they did before, and many will do it nearly on purpose. It’s easy to argue, when you do what you love, that you don’t really care if you get paid for it. Believe me, I have said this to myself more than once since quitting, as bizarre as it sounds.
+			- Don’t pity them (or me) for a minute. Although we may not assign it a monetary value, happiness is worth something. You just have to decide how much it’s worth to you.
+			- Pitfall #5: Moving too fast
+			- This pit is the widest and the deepest. Many good dreams have gotten lost here.
+			- Let’s go back to our dating analogy. Few would advise you to marry someone you just met a couple of weeks ago. It’s called the honeymoon phase, when you tend to see what you want to see instead of what’s really there.
+			- And yet people do that with their careers all the time. They translate a love of coffee into a dream of owning their own cafe. Or a passion for organization into a wedding planning business.
+			- Do – your – homework.
+			- If I had just one message for those that would prefer their passion didn’t blow up in their face, this would be it. Remember what we said about passion in the first place: if you’re not willing to talk about it, read about, and learn about, don’t turn it into your livelihood.
+			- What does this mean practically? You should read at least 3 books on the career you’re considering, talk to at least 5 people who are doing it now, and if you’re thinking of starting your own business, I recommend you have at least 3 paying customers before making the leap to full-time.
+			- I realize that “practical passion” must sound pretty strange. Foreign, even.
+			- But when you wake up in the morning, excited at another day where you get paid to live your dream and change the world, all at the same time, I promise, it will feel pretty darn wonderful.
+		- Seth's Blog Doing what you love (but maybe yo
+			- Seth's Blog: Doing what you love (but maybe you can't get paid for it) Learning how to see | Main | Believing what we want to believe »
+			- Doing what you love (but maybe you can't get paid for it)
+			- [I wrote this five years ago. As you plan the magical things you will do next year, I thought it was worth reconsidering:]
+			- The thing is, it's far easier than ever before to surface your ideas. Far easier to have someone notice your art or your writing or your photography. Which means that people who might have hidden their talents are now finding them noticed...
+			- That blog you've built, the one with a lot of traffic... perhaps it can't be monetized.
+			- That non-profit you work with, the one where you are able to change lives... perhaps turning it into a career will ruin it.
+			- That passion you have for graphic art... perhaps making your painting commercial enough to sell will squeeze the joy out of it.
+			- When what you do is what you love, you're able to invest more effort and care and time. That means you're more likely to win, to gain share, to profit. On the other hand, poets don't get paid. Even worse, poets that try to get paid end up writing jingles and failing and hating it at the same time.
+			- Today, there are more ways than ever to share your talents and hobbies in public. And if you're driven, talented and focused, you may discover that the market loves what you do. That people read your blog or click on your cartoons or listen to your mp3s. But, alas, that doesn't mean you can monetize it, quit your day job and spend all day writing songs.
+			- The pitfalls: 1. In order to monetize your work, you'll probably corrupt it, taking out the magic in search of dollars and 2. Attention doesn't always equal significant cash flow.
+			- I think it makes sense to make your art your art, to give yourself over to it without regard for commerce.
+			- Doing what you love is as important as ever, but if you're going to make a living at it, it helps to find a niche where money flows as a regular consequence of the success of your idea. Loving what you do is almost as important as doing what you love, especially if you need to make a living at it. Go find a job you can commit to, a career or a business you can fall in love with.
+			- A friend who loved music, who wanted to spend his life doing it, got a job doing PR for a record label. He hated doing PR, realized that just because he was in the record business didn't mean he had anything at all to do with music. Instead of finding a job he could love, he ended up being in proximity to, but nowhere involved with, something he cared about. I wish he had become a committed school teacher instead, spending every minute of his spare time making music and sharing it online for free. Instead, he's a frazzled publicity hound working twice as many hours for less money and doing no music at all.
+			- Maybe you can't make money doing what you love (at least what you love right now). But I bet you can figure out how to love what you do to make money (if you choose wisely).
+			- Do your art. But don't wreck your art if it doesn't lend itself to paying the bills. That would be a tragedy.
+			- (And the twist, because there is always a twist, is that as soon as you focus on your art and leave the money behind, you may just discover that this focus turns out to be the secret of actually breaking through and making money.)
+			- And from a recent interview:
+			- I wonder why anyone would hesitate to be generous with their writing.
+			- I mean, if you really want to make a living, go to Wall Street and trade oil futures ... We’re writers. We’re doing something that is inherently a generous act. We’re exposing ourselves to the muse and to the things that frighten us. Why do that if you’re not willing to be generous? And paradoxically, almost ironically, it turns out that the more generous you are, the more money you make. But that’s secondary. For me, the privilege of being generous is why I get to do this.
+		- [ Teaching
+			- Choose something you would have done anyway eg I learnt this stuff because I wanted to improve my own life Vygotsky argues you need someone only slightly better than you to teach individual one of optimal functioningYou're expert enough if you are just slightly more knowledgeable than those you are trying to teachThis stuff will help you solidify your ideas and understanding, when one teaches two learn The most successful content-based businesses today are education businesses.Sometimes education is what you sell.Sometimes education helps what you sell work better.Sometimes you give all of the education away for free, but you profit from the tools your customers use to put the education into practice ](null)
+		- Life purpose guide
+			- The Life Purpose Guide - Postmasculine  By Mark Manson · 11 Comments
+			-
+			- What is your life purpose and who cares, anyway?
+			- When most of us do something, when most of us make life decisions, we rarely make them past pursuing what feels good or what wins us the most approval from others. Sometimes we have a subset of values that we pay heed to, but few of us ever ask ourselves “What is the message that my life is sending to the world?”
+			- That may sound pretty deep and heady, but it’s a question of your legacy. If you died tomorrow, how would people remember you? That you were a “nice guy” who was nice to have a few laughs with? Or did you stand for something? Did you affect people’s lives? Did you change things. Is there a message attached to your existence. And if not, why not?
+			- This may sound like a bunch of fluff, but its the exact questioning of purpose and legacy that helped renown psychiatrist Viktor Frankl survive a Nazi concentration camp. It then inspired a whole branch of therapy known as “logotherapy”.
+			- This is real stuff.
+			- Let’s start things off with a simple question:
+			- “If you could do anything without chance of failure, and without constraints of time and money, what would you do?”
+			- This is the primary question. If the answer isn’t an immediate, “What I’m doing now,” then something’s wrong. And this report will hopefully help you fix it.
+			- Writers and thinkers from David Deida to Camille Paglia to Sigmund Freud himself have commented on how important it is to a man’s identity and self-esteem that he has a clear life mission and that he’s consistently working towards it.
+			- There have been a number of major societal shifts in the past few decades — feminism, the information economy, more broken homes and fewer marriages — men greatly lack that clear vision and purpose they were once given in their lives.
+			- It’s my opinion that this greatly affects the overall psychology of the male population. Boys growing up without clear roles to fill, without obvious purposes to fill, meander through their early life reacting and following whatever is put before them. As a result, they never cultivate the independence and self-esteem that comes with following their purpose. They never learn to assert themselves, they remain woefully unaware of their emotional realities and their personal relationships suffer, particularly those with women.
+			- I didn’t have to look far to realize this either. Back when I was coaching men in person regularly on how to be better with women, every time I worked with a guy who was either unemployed and/or lived at home with his parents and/or hated his job, he inevitably would do terribly with women. Often despite the fact he was good-looking and a cool guy.
+			- I even felt it myself back in 2007. In college I had been doing great with women. Then I graduated, loafed around, held a few part time jobs and ended up broke and living on my friend’s couch for a while. Suddenly the ladies had no interest in me. And not only that, but I became pretty down and didn’t feel good about myself anymore. It wasn’t until I started my business and got it going that things began to turn around again.
+			- A lot of men are endlessly frustrated with aspects of their lives. Whether it be their inability to get with women, to make friends, or just that they’re always insecure and unhappy.
+			- A possible cause for this is a lack of direction and purpose in your life.
+			- And the amazing thing is, a lot of people don’t ever actually sit down and THINK about this stuff. They were always told to go to this school or that school, so they went. Then they were told to get this job or that job. So they did that too.
+			- They never sat down and asked the question written above.
+			- We will be answering that question in this report. We’ll be breaking it down into parts and answering it in such a way that you’ll be able to work towards the answer over the coming months and years.
+			- And then a year from now, you’ll ask it again, re-evaluate, and begin working towards it again. Hopefully each time you do this exercise, you’ll be a step closer.
+			- The system presented in this report can be done repeatedly over a long period of time. I recommend doing it once a year. The first day of each year is a great option, but you can do it whenever.
+			- I’ve done some form of this exercise every year for four years now. When I started, I was broke, struggling with a new business, living alone and not living a very healthy lifestyle. Now, four years later, I’m living the life of my dreams. In fact, I can unequivocally say that this is the first year ever in my life that I answer the prime question with an immediate, “What I am doing now.” And I think that’s a pretty astounding success. Especially at my age.
+			- This system is an adaptation of a similar exercise a good friend of mine has done every year for over a decade. I’ve modified it over the years and it’s been influenced by some other goal-setting techniques I’ve come across. So you may recognize parts of it. It’s not revolutionary by any means.
+			- But it works. And that’s what’s important.
+			- I will spare you all of the science and information behind goal-setting techniques and why writing things down seems to have a “magical” effect on your brain. I’m just going to tell you flat out:
+				- Do these exercises in a quiet place without distractions
+				- Take your time, don’t rush through it.
+				- Write everything down yourself and keep it. This is important.
+				- Periodically check back and review your goals at the end of it throughout the year.In this report, I’ll be giving some brief examples of each step of the exercise but will not complete them myself. This is just to give you some ideas and help you get started.
+			- Step 1: Brainstorming
+			- The first step is the easiest and probably the most fun. Pull out a blank sheet of paper and make sure you have a clock nearby.
+			- Take 20 minutes to yourself, and write down everything you would like to do in your life before you die. Everything. No matter how big or small, how trivial or important. Just keep writing. Absolutely anything and everything that comes to mind, put it down on the piece of paper.
+			- This should start out very easy but get harder as the time goes by. Hold yourself to 20 minutes! Chances are the last 5-10 minutes you’ll be straining your brain. But keep going anyway.
+			- Example:
+			- Things I’d like to do before I die…
+			- Learn to box Get a graduate degree Speak five languages Complete a triathlon Live in China Go to the north pole Visit the pyramids Play chess in the park Take a trip somewhere nice with my mom Get married Have kids Etc.
+			- As you do this first exercise, you may feel yourself get self-conscious or start judging some of your answers.
+			- Stop doing this!
+			- Seriously, this list is just between you and yourself. There’s absolutely no reason to be ashamed of anything you write. And if you do find yourself hesitant to write too much down, perhaps you should ask yourself why you’re so scared of accepting many of your own impulses.
+			- On the other hand, chances are, when you’re writing your list, 2-3 entries are going to pop out at you, like giant strobe lights on your page. The specific entries may surprise you as well. This is good.
+			- If you particularly have a lot of surprises on your list, or if a lot of your entries have got you thinking or reconsidering some things already, even better… In fact, if you feel like you’re already processing a lot, you may want to put the pen and paper down before the second step and take a break for a few hours.
+			- Step 2: Ideal Life, Long-Term
+			- Now that you’ve got your brainstorm list and you’ve come up with more ideas of things to do than you’ll ever need, it’s time to start honing in on what you ideal life should look like.
+			- This is where things start to get interesting, and a little bit real. But you’ll still have to use your imagination quite a bit and tap into some desires that you may not have known were there.
+			- Take another sheet of paper and spend 20 minutes writing down the following:
+			- Describe your ideal life five years from now. Describe it in as much detail as possible. Describe where you would live, what you would do each day, what job you’d have, who you’d spend your time with, what you’d spend your time doing. Take your time and be as specific as possible.
+			- Example:
+			- My ideal life in five years would be me living in California, probably San Diego. I’d have my own place near the beach. My work hours would be flexible so I could go surfing often. I’d be focused much more on freelance coding and programming rather than stuck to any individual firm, so I’d have a lot more control over my work load and pay. I’d have a hot blonde girlfriend who would be awesome to hang out with. I’d get back into painting, and do it from time to time each week, maybe even sell a few of them. Etc….
+			- Chances are, once you finish this, your mind will already be brainstorming ways to connect the dots from now to then. This is good. We’ve now got your mind working actively on figuring out ways to achieve your dreams. This is a fundamental first step. You’re now motivating yourself from your own desires and not simply by pleasing others!
+			- Step 3: Ideal Life, Short-Term
+			- Now that you’ve got your brainstorm list and you’ve come up with more ideas of things to do than you’ll ever need, it’s time to start honing in on what you ideal life should look like.
+			- This exercise is exactly like the last one, except instead of projecting your ideal life in five years, you are going to project it for one year.
+			- Make sure your choices are realistic and attainable, but also that they are a step towards your answer for Step 2.
+			- Example:
+			- In a year, I will have started my freelance business, and will have saved $20k. I’ll be able to approach girls when I go out on the weekend. I’ll also have a gym membership and will be regularly going and working out. Etc.
+			- As you’ll notice, this projection is getting far more actionable. In fact, after you’ve written it, it should be pretty obvious many of the steps you can start taking towards it.
+			- But wait, we’re not done yet…
+			- Step 4: Passion/Time Ratio
+			- Now it’s time to really dig into your life and what you’re spending your time doing and root out the activities that aren’t serving you or moving you toward your ideal life.
+			- This exercise is a three-parter and will probably take a bit longer than the others.
+				- On a clean sheet of paper, make three columns. In the first column write down everything you spend your time doing each day. Ignore the small things like brushing your teeth or showering or sleeping. Focus on the big ones.
+				- Once you can’t think of anything else, go back and in the second column write down how many hours per week you generally spend doing this activity. If it’s something larger like traveling or seasonal like going to White Sox games or something, then just specify that in this column — “two weeks per year,” or “10 Saturdays per year,” or whatever.
+				- Finally, in the last column, give each item a rating, from 1-10 based on how much fulfillment you get from that activity. Basically how happy that activity makes you.Example:
+			- And so on…
+			- Finally, once you’ve got your lists finished, go back through and look at how the numbers line up. Activities which you spend a lot of time doing should have high numbers. Activities you don’t spend much time doing should have low numbers. What we’re looking for are mismatches.
+			- For instance, in the example above two big mismatches pop out at you…. the first is that the guy really doesn’t enjoy his job, and he works long hours. That sucks. It’s hard to be happy and motivated and confident when you’re dropping 50 weeks on something you only value at a 3.
+			- The second mismatch is that he’s two hours a day of television, but doesn’t get much value out of it. Meanwhile, he’s averaging less less than an hour a day hanging out with friends, and that’s something he really values.
+			- The answer for this person is clear: ditch the TV to spend more time with friends (or invite your friends over to watch TV with you), and get the job situation figured out.
+			- And this is just from a short, very basic list. Chances are your list has a lot more going on in it.
+			- Step 5: Actionable Goals
+			- Finally, we’re at the last step — the step that you’re actually going to use and apply to your life.
+			- From the previous four steps, you should have developed a pretty clear idea of what you need to be doing different, both in the short-term and in the long-term. Hopefully you’ve been made aware of things that you’d like to be a part of your life which currently aren’t. And hopefully you’ve identified some things that ARE part of your life, but you’d prefer they weren’t.
+			- The final step is putting together a handful of goals for you to accomplish.
+			- A few things to remember about goals:
+				- They need to be actionable, i.e., they require a certain behavior to complete. For instance, “Feel more comfortable in social situations” is not an actionable goal. It’s not something that can be measured or counted. “Meet someone new without getting nervous,” IS an actionable goal. It can be measured and it’s clear once it’s been accomplished.
+				- Set goals which are realistic within the given time frame. Setting goals that are too unreasonable is the quickest way to demotivate yourself.
+				- Don’t set more than a few goals at a time. Another common mistake is when people try to adapt multiple major life changes simultaneously. Select a few important goals and then focus on them one at a time, preferably.OK, now for the exercise itself. It’s another two parter.
+				- Write down 3-5 actionable goals for you to complete within the next year.
+				- Write down one thing you can do TODAY that will move you towards each goal.Example:
+			- Goal #1: Lose 15 pounds Goal #2: Pass my CFA-I exam Goal #3: Get a girlfriend
+			- Actions for each goal: For goal #1, I can join a gym. For goal #2 I can buy a study guide to start studying. And for goal #3 I can join an internet dating site and/or go out tonight and approach five girls.
+			- And that’s it. If you’ve completed everything in this guide, you now have a clearer long-term vision of what you want your life to look like, some definable, actionable goals to complete within the next year, AND starting places to begin moving towards those goals.
+			- Like I said in the beginning, I recommend repeating this exercise each year. In my experience, it’s normal to meet most, but not all of the goals you set each year if you keep on top of them. Maybe two out of three.
+			- If you do these exercises consistently for a few years, you’ll realize a couple things:
+				- That your priorities will change with time, and what you may consider very important today, may not seem as important a year from now.
+				- That the more of your goals that you achieve, the easier it’ll become to achieve subsequent goals.
+			- Because that’s the beauty of all of this. Discipline is a skill. It needs to be exercised and it gets stronger. Achieving goals based on your internal desires and motivations builds self-esteem, and will increase your motivation into the future.Doing this sets off a chain reaction, that if you follow it long enough, implementing change into your life will become easier and easier. And one day, years from now, you’ll look back, and maybe you won’t even recognize the person you are now.
+			- And that’ll be a good thing…
+		- "Follow Your Passion" is bad advice. Do this instead..
+			- I’m on a crusade to end these nonsensical ideas that sound logical, but actually make no sense whatsoever:](null)[
+				- “](null)[We need to educate people about the importance of eating healthy foods
+				- “We need to teach people about the importance of financial literacyAnd my new favorite one…
+			- “I need to find my passion!”
+			- Would you please kill me right now? The “find your passion” idea is the kind of insipid, meaningless argument most frequently made by B-level speakers and middle managers who have nothing specific to offer. It’s just like “Keep a budget!” — an idea that sounds logical, but has no evidence to back it up. It simply doesn’t work.
+			- In fact, passion is so deeply embedded in our culture that it’s one of our deepest invisible scripts. But if you’re honest with yourself…how has it worked out for you? You claim you need to find your passion…but has that worked for the last 6 months? Year? 5 years?
+			- It’s as if we’re just waiting for our passion to fall from the sky…THEN we’ll know what to do with our lives! Of if we make yet another list of what we love…suddenly, we’ll know what job we want! Where we want to live! And what our purpose for life is.
+			- Here’s my take:
+			- People love the “passion” idea because it allows us to wait for a mythical day where we find this elusive passion…and then ride off into the sunset on a white pony.
+			- I prefer a different approach: Becoming world-class at something, then letting the passion follow.
+			- So when I heard my friend Cal Newport had independently come to the same conclusion…and in fact, he was writing an entire BOOK on this idea…I knew I wanted to hear his take on it.
+			- Cal, who recently graduated with a PhD from MIT, has unconventional takes on so much of the typical “expert advice” that you read.
+			- Also, he is unintentionally hilarious. When he came to hang out in NYC recently, I took him to this place that only models work at. When we sat down, I said, “Notice anything?” He looked around, confused. I pointed at some of the staff, saying, “Look at them. What do you notice?” He stared back at me with vacant eyes. After I explained how EVERY SINGLE ONE OF THE STAFF WERE MODELS, he just looked at me. “Dude, I’m married. When I walked in here, I was noticing how nice the curtains are.”
+			- HAHA.
+			- Cal’s last guest post was one of the most popular on this site: Time management: How an MIT postdoc writes 3 books, a PhD defense, and 6+ peer-reviewed papers — and finishes by 5:30pm.
+			- And today, to celebrate his new book, he’s written a terrific unconventional piece on how passion is overrated…and the importance of becoming so good they can’t ignore you.
+			- Take it away, Cal.
+			- * * *
+			- Here’s something that confuses me. One of the most important factors in creating a satisfying life is developing a career you enjoy. And yet, our national conversation on this complicated issue is laughably simple. We are, it seems, forced to bow down at the altar of an annoying little phrase:
+			- “Follow your passion.”
+			- This slogan presents an absurdly reductionist explanation for how people end up loving what they do for a living:
+			- But even though this advice is simplistic, I can tell you from experience that people do not appreciate any dissent. Consider, for example, a piece I recently wrote for CNN with the pithy title: “Why ‘Follow Your Passion’ is Bad Advice“
+			- This piece quickly generated 100 comments with a clear theme: People hated the title. (Perhaps the first sign of trouble was the accompanying photo of what appears to be a child-eating serial-killer clown.)
+			- Here are two examples of the reaction I generated:
+			- After reading this article, I realized that I should probably keep my job working on an assembly line sorting light bulb filaments…thanks for the advice, Cal!!
+			- If all…people did as Cal Newport writes, we wouldn’t have Windows, Apple, Titanic and Avatar, and all programming would still be done with machine assembly language. Our society has a love affair with this reductionist notion that we all have One True Calling, twined in our DNA, waiting to be discovered. Questioning this premise, as demonstrated by the reaction to my CNN piece, is interpreted as a sign that you’re giving up altogether on the goal of enjoying life: follow your passion or end up on an assembly line!
+			- I find this conformity ridiculous — the equivalent of a world where the only acceptable personal finance advice was: “a penny saved is a penny earned” (a recurring nightmare of Ramit).
+			- Reality is more complicated. I recently spent a year researching and writing a book that rethinks common career advice. I studied people who love what they do for a living. I didn’t ask them for catch phrases. Instead, I dove deep into the details of their stories to find out exactly how they built passion for their careers.
+			- Here’s what I found: few people have pre-existing passions that can be transformed into a career. Furthermore, there’s little evidence that matching a job to an existing interest is an important source of satisfaction (other things matter more).
+			- I fully embrace the goal of feeling passion for your work. My research, however, shows that achieving this goal is more complicated than simply identifying your calling and going after it. Put another way, if you line up 10 people who are passionate about their jobs, 9 out of this 10 will likely tell you that they never could have predicted where they are today. The path toward passion is simply more complicated than a simple slogan like “follow your passion” allows.
+			- So I’m fighting back.
+			- Below is a more nuanced alternative to this catch-phrase — a systematic approach based on observation and evidence:
+			- Let’s walk through these steps…Step 1: Identify a Target Lifestyle (not a Target Job)
+			- The first step of this process is identifying some general lifestyle traits that resonate with you. Some people seek extreme time affluence and autonomy in their schedule. Others want power, energy, and respect.
+			- In my new book on this topic, for example, I tell the story of two women who ended up loving their work, but pursued quite different target lifestyles. The first case study, Lulu, valued time affluence. She turned down multiple promotions during her career so that she could strike out on her own as a highly-valued freelancer, taking months off between contracts to travel (she has family in Asia) and pick up new skills (she earned her pilot license, among other pursuits, during these breaks).
+			- The other case study, Pardis, valued impact. Her career as a hard-charging young Harvard professor is intense, but it allows her to tackle a world-changing problem (she’s using sophisticated algorithms to help cure some of the world’s deadliest diseases).
+			- Regardless of what traits resonate with you, the key word here is “general.” You’re not identifying a job or even an industry. Instead, you’re identifying a lifestyle. Notice that many, many different fields should be able to lead you to this target lifestyle (an idea I elaborate here and here).
+			- Step 2: Find a Supporting Job (from Among Many Such Jobs)
+			- The next step is to find a position that can lead you to your target lifestyle under the condition that — and this is the important part — you first become absurdly valuable.
+			- This is a place where many people get tripped up. The traits that define these types of target lifestyles are rare and valuable. If you don’t have rare and valuable skills to offer in return for these traits, you’re not going to get them in your own life (an idea I introduce here and elaborate in chapter 2 of my new book).
+			- This is a key theme I encountered time and again in my research. In my book, for example, I tell the story of a young woman who dropped out of college to pursue her dream of starting a non-profit that would change people’s lives. It’s a noble sentiment, but she didn’t have any specific valuable skills relevant to this problem. Without valuable skills, no one will give you money. With no money, no non-profit. When I met her, she was struggling to make ends meet.
+			- This young woman had the equation backward: you have to become really good at something valuable before you can obtain your target lifestyle. If I had met her a year earlier, I would have advised her to choose a job where she could hone skills that might be relevant to successfully running an organization of the type she had in mind.
+			- Here’s what’s important here: Lots of jobs can probably lead you to your target lifestyle, assuming you satisfy the value condition. In fact, your current job might very well qualify. On the other hand, lots of jobs probably won’t get you where you need to be, so, you can’t just choose something blindly (as a tax consultant I know recently discovered).
+			- The key point here is to lower your threshold. You are certainly not looking for your “one true passion.” There will be many jobs that can provide the foundation for getting your target lifestyle, so don’t overthink this decision.
+			- Step 3: Cultivate a Rare and Valuable Skill
+			- Now that you’ve identified your target lifestyle and have a position that can get you there, it’s up to you to earn it. As I just emphasized above, the linchpin in your quest for a compelling career is becoming excellent. I’m not talking about show up on time and do what you’re told in a timely fashion performance, but instead I’m talking about your employer will do whatever it takes to keep you performance.
+			- This goal is easy to understand to but hard to accomplish. Most people who claim they want to be excellent end up instead replying to e-mails and reading online marketing blogs. Stars, by contrast, identify a small number of specific skills that are demonstrably valuable to their field, and then set out training these skills like an athlete or musician.
+			- His training often embraces the principles of deliberate practice and is not necessarily all that fun (as I elaborate here and here and in great detail in the book).
+			- At a high-level, this type of systematic skill development requires three steps:
+			- Identify the specific skill you’re developing and a metric that tells you clearly how good you currently are with respect to this skill. As a professor, for example, I focus on my ability to produce theoretical breakthroughs. My metric is number of publication in highly-competitive peer-reviewed venues.
+			- Stretch yourself. A key factor for this style of practice is that you push yourself beyond where you’re comfortable. You’re not looking for a flow state. You’re instead looking for the intense concentration of tackling something slightly beyond your current skills level (a key distinction). Returning to my professor example, I often force myself to dive into a result or technique that I don’t yet understand and that uses mathematics I haven’t yet mastered. This can be really frustrating, and I can only do it for an hour or two at a time. But during these hours, my skills take immense leaps.
+			- Seek (harsh) feedback. The final stage of this style of practice requires that you pinpoint exactly where you’re weak so you can focus your future stretching where it’s most productive. As a professor, I take the negative reviews of my work seriously (recall, everything I do is submitted to intense peer review). I also like to look to the papers that end up doing better than my own and then try to figure out why. If I publish at a conference and another paper wins best paper, I study that paper to find out why it was better. I want a crystal clear understanding of exactly what needs to be improved, and to what point, in order for me to get to a next level.
+			- Step 4: Leverage your Value
+			- Once you’ve built up rare and valuable skills you need to then use them as leverage to gain the traits you originally identified in your target lifestyle.
+			- There’s a lot of chatter about “courage” surrounding discussions of building a more remarkable life: this is where that courage matters. Your target lifestyle is valuable for you but not necessarily valuable for the rest of the world. Therefore, no one is going to make it easy for you to make that transition. This is where you might end up, for example, in a hard negotiation with a boss who wants you to cash in your skills for more money (and more hours) whereas you want to leverage it to work from a cabin.
+			- If you don’t recognize the potential difficulty of this step, you’re in danger of ending up a very valuable workaholic; respected but miserable. This is where it helps to have the clear the picture of your target lifestyle from Step 1. At every major decision point in your career, ask if brings you closer or farther from getting to your target lifestyle.
+			- Returning to my example of Lulu, the freedom-loving database developer introduced above, there were times in her career where it made sense to take on more responsibility. She started in QA testing. Her first move was to automate much of the testing for the company, which earned her a promotion to help roll out this system. This was a good promotion because it helped her build her first reservoir of valuable skills. A few years later, however, she was given the opportunity to move into a management position. She turned down this promotion because it didn’t develop any skills that were relevant to being to work as a successful freelancer.
+			- Conclusion
+			- Feeling passion for your work is a great goal, but identifying a passion in advance, and then matching it to a job, is not a consistently replicable way of achieving this goal. The better strategy is to work backward from a target lifestyle, pick a supporting job, cultivate a skill, then leverage your value. If you study people who really do love their careers, you’ll find that most used some variation of this strategy as the foundation for their happiness.
+			- “Follow your passion” is a nice slogan, but we need more than slogans: we need systems, supported by evidence, that actually work. It’s time to start talking about career development like adults. If we don’t, the clown might get us.
+			- Cal Newport is a writer and an assistant professor of computer science at Georgetown University. His new book, So Good They Can’t Ignore You: Why Skills Trump Passion in the Quest for Work You Love, takes a contrarian look at popular career advice. He also runs the blog Study Hacks: Decoding Patterns of Success.
+			- 163
+			- 58
+				- 37
+			- 25
+			- 1368
+		- What Is Your Project?
+			- Five years ago I went on a short horseback tour in the Venezuelan Andes, led by a Frenchman who landed in Caracas fifteen years before. He lived with his wife and daughter on a horse ranch on the outskirts of Merida, making a small side income by giving occasional tours to gringos like myself.
+			- He never planned on settling in Venezuela. It started when he was rehabilitating a boat that doubled as his home while docked somewhere in the Caribbean. “It was my project,” he said to me. “Several hours a day I worked on that boat.” One day he learned that a hurricane was approaching the islands. To save his boat he decided to go out to sea, as far southwest as he could. Unfortunately the hurricane was not forecasted correctly, and he ended up getting caught on the storm’s edge. His boat sustained heavy damage and he was forced to make landfall in Venezuela.
+			- He sold his boat for scrap and moved to a Caracas slum. Thanks to his knowledge of French he picked up Spanish quickly. He found odd jobs here and there and eventually met his future Venezuelan wife. They resettled in Merida where he bought a small piece of land upon which he built his ranching business. A look at his dozen horses, workshop, large house, and gun collection made it clear to me that he did well for himself.
+			- After he finished his story, he looked at me and asked, “What is your project?”
+			- “My project?”
+			- “Yes, your project. What are you working on?”
+			- I had a blog at that time, but was that a project? To me it seemed more like a way to procrastinate from doing work reports. “I just started the outline to a book I want to write,” I said.
+			- “So you’re going to write a book?”
+			- I hesitated. Before that moment I had only thought about writing the book, jotting down ideas on napkins here or there, but had never fully committed.
+			- I looked at the Frenchman and said, “Yes, I’m going to write a book.” Apparently all it took was verbalizing the goal to get my brain to commit to it, and Bang was released a year and a half after that. You can say it was my personal hurricane.
+			- Chances are if you’re reading this, all your basic survival needs are met. You have food, shelter, clothing, and hopefully women as well. Maybe you want more money, but it’s safe to assume you have enough to get by and are in no danger of starving to death. There probably isn’t much telling you to go above and beyond your current situation. No one to motivate you to learn a new skill, no one to push you to take a risk with something that has no obvious opportunity for monetary gain. Besides what you’re assigned at work or school, you’re not required to do anything else but spend your free time watching television, reading magazines, or playing video games. That’s not a bad existence, and a billion men living in the slums of the world would kill for it, but it’s not good enough for one reason: there is no growth. You will be the same man that you are now in ten years time—grayer, but no wiser.
+			- For you to grow, there has to be something in your life that is difficult and challenging. There has to be a goal where the chance of failure is very possible, and it has to be hard enough where you’ll be required to call upon forces within you that you didn’t know existed. There has to be a point where you wonder to yourself, “Maybe I can’t do it—maybe I’m doing all this for nothing.” If you don’t day dream about quitting, about going back to what you used to do, then you picked something that wasn’t hard enough.
+			- If it is hard enough, the mere act of attempting to accomplish your goal will make you a better man. Success is not at all required—it serves as the cherry on top. The journey itself will be its own reward, and you’ll look back to how far you’ve come. And how much wisdom you’ve gained. I cannot predict what benefits will come from taking on a difficult task. It really could be one of a hundred things, most of which you would have never expected. But it will come.
+			- So, what is your project?
+			- What Is Your Campaign?
+			- By Roosh
+			- Projects are long and often require effort from a number of disciplines. They take research, planning, an execution for time periods that are usually longer than a year (e.g., writing a book, starting a business). While projects should be a part of any man’s life, how about the smaller goals that can be completed in a couple months or even weeks? These goals are campaigns. They are short projects that require heightened focus and singular effort. Here are some examples:
+			- 1. You’re traveling through the Baltics for one month and want to get all three flags. During that month you stop working and focus only on getting laid at all costs.
+			- 2. You want to increase your bench press by 50 pounds in eight weeks. You hit the bench three times a week and make it the first exercise in your routine.
+			- 3. It’s summer and you want to learn how to barbecue. Every night after work you fire up the grill, causing you to miss your favorite happy hours.
+			- 4. You want to bang a Colombian girl but only possess basic high school Spanish. For two months you study Spanish four hours per day before visiting Bogota for ten days.
+			- 5. You want to study the Ancients. You buy The Landmark Herodotus, The Landmark Thucydides, Anabasis, and other historical works to slam them for three hours a day for six weeks.
+			- 6. You want to get a coffee shop bang. You hit coffee shops before work, during your lunch break, and after work, making a concerted effort to approach one girl each session. This requires you to wake up earlier and put aside other routines.
+			- 7. You want to start an internet business but you don’t know the first thing about programming. You purchase three or four HTML/CSS books and learn enough in one month that you can complete your first landing page.
+			- Campaigns cause you put everything else on the backburner in order to make a herculean effort into one singular goal. Your life temporarily becomes about this goal and nothing else. This surge is unsustainable due to its intensity, but the fact that it can be accomplished relatively quickly gives you the motivation to endure.
+			- Two months should be the maximum for any campaign, and if you think it will take much longer than that then you’re looking at a project that should require low-level daily effort instead of maximum daily effort. Campaigns are so consuming that other parts of your life will degrade until it’s over. You know it’s a good campaign when your friends and family discourage you from attempting it, saying that you should “take it easy” and not push yourself “so hard.”
+			- At the end of your campaign, you’ll have accomplished a significant task or learned a new skill, all in a short period of time. You’ll also notice something else—you now have a boatload of free time freed from campaigning. At first you’ll be overjoyed with this prospect because you can go back to your old routine, but when you return to these base activities, something simply doesn’t feel right. You feel like you’re wasting your time, like you’re not moving forward.
+			- Campaigning is a natural state for men. Several hundred years ago, men would alternate between sessions of farming and war. An Athenian would plant seeds in his farm, sail off to war, then come back to reap the harvest. Only since the Industrial Revolution and the division of labor have men been reduced to a cog that does the same task every day in the same environment with the same people. Campaigns are a great way to break free from the monotony of modern life, to open your world view in the time it takes to reap a harvest.
+			- I urge you to take on a new goal that you can accomplish within two months from 2-4 hours of daily effort. Put all the inconsequential time sinks into the background. Once your campaign is complete, pat yourself on the back and take a well-deserved break. Feel the boredom gradually crawl back into your skin as each day not campaigning makes you feel increasingly empty. This is when you know it’s time to take on another campaign.
+			- Beginning in your 30s, you’ll look back on your life and not recall the day-to-dry drudgery you’ve had to endure or the fools you’ve had to suffer, but all the great campaigns you’ve completed. As much as modern society would like to convince you otherwise, a life of campaigns—of taking on new goals and adventures—is the most natural state for man.
+		- What to Do When “All of the Good Ideas are Already Taken” – Tips to Help You Pick a Niche
+			- Lately, I’ve been getting a lot of emails about niche selection and how to choose the right topic when starting a new website or a blog. Most people tell me that all of the good ideas (or keywords) are already taken, that there is too much competition and no more room left for them.
+				- If you feel this way, or you know someone who does, this post will help.
+				- Picking a Niche is Difficult
+				- Why?
+				- Because it’s important.
+				- It’s right up there with choosing where to live, who to date, or what degree to get. Your actions and your entire future start the moment you make a decision – and of course, you want it be the right one.
+				- When someone says “the good ideas are already taken” or “there is no room left for me”, what they’re actually saying is this:
+				- “I’m this close to giving up.”
+				- There are an infinite amount ideas that can turn into successful websites and online businesses, even within saturated markets, you just have to spend time to figure it out. It is NOT easy, and if you really want this, you cannot give up.
+				- Selecting a niche is a long-term decision, but if it’s the wrong one, it’s not a long-term loss. You may fail, but as long as you learn it is time well invested.
+				- Of course, it’s always good to start off on the right foot, so here are some tips and strategies to help you during your niche selection process so you can give yourself the best chance.
+				- Forget “Brand-New”. Think “Better-New”.
+				- In order to succeed online, you cannot do what everyone else is doing.
+				- Follow the crowd, and get lost in it.
+				- You know this.
+				- Unfortunately, many people interpret this to mean that they have to create something totally brand-spanking new, something completely innovative that has never been done before, in order to succeed.
+				- This creates a tall mountain to climb because:
+					- It’s difficult to think of something totally brand-spanking new.
+					- Even if you do, you are playing in unknown territory. The more intelligent approach is to forget about starting fresh, and start with something that’s already working, and make it better.
+				- In the early 2000s, the Segway was invented to revolutionize how people walked and how streets and cities were designed.
+				- So what happened?
+				- Segways are now banned on the sidewalks of 30 states in the U.S. and security guards at the mall are taken a little less seriously.
+				- Changing how people walk is a tough mountain to climb.
+				- Now take Tesla Motors, on the other hand. Tesla isn’t reinventing how people get around – the company is still making cars – it’s just making the car better by making it smarter and more efficient.
+				- The Tesla Model S recently won the award for the 2013 Motor Trend Car of the Year.
+					- People want better, so give them better.
+				- It doesn’t matter how much competition there is – if you can give them better, and milk it, you’ll win.
+				- So how do you know what’s better?
+				- Simple: Be the market.
+				- Be a consumer, a customer of products within that market, and be conscious of your experience and the experience of others in that market as well. Read comments, reviews, participate in forums and discussions and truly get to know who your potential target audience is by becoming a target yourself, and figuring out, along the way, what needs to be improved.
+				- The only difference between you and everyone else in that market is you’re there on a mission to make things better.
+				- Specialize and Own
+				- Another issue I come across when I discuss topic selection with people is that they think too big:
+				- “I want to start a site about photography, but it’s way too competitive.” or,
+				- “I want to create a blog about cars, but I don’t think there’s any room for me.“ or,
+				- “I want to start a site about pets, but the first page of Google is all PR6 and PR7 sites!”
+				- In general, it’s great to think big and shoot for the stars, but when it comes to niche selection you can get more results, faster, by thinking specialized.
+				- Not small.
+				- Specialized.
+				- Start by picking a market that actually interests you. The competition doesn’t matter at this point – just pick something you like.
+				- Then, you’re going to pick a sub-section within that market, and then keep going deeper and deeper until you can get to a point where there’s a need and you feel like you can create THE GO-TO RESOURCE or become THE GO-TO PERSON for that topic.
+				- Whenever anyone mentions that topic in conversation, your site or your name will surface.
+				- Quick tip: If you’re looking for sub-sections of a particular topic, visit Amazon.com or some of the top websites and blogs that discuss that particular topic. Notice the hierarchy within the categories and menus.
+				- Other people call this “niching down”, and that’s essentially what it is, but when you approach it as a specialization within a larger market, your approach and mindset with your site and the content that you will provide on it becomes much different.
+				- It becomes meaningful. Purposeful.
+				- When you specialize, a few neat things happen:
+					- YOU become the expert, and as a result, it’s easier to get featured or land a guest post on larger sites with larger audiences.
+					- It’s easier to get found in Google. The deeper you go, the less competition there is in Google. Plus, think about this: when people search for specific information they don’t search using general terms – they get specific because they want the most direct path to the information they need, which hopefully you can provide.
+					- It’s much easier to build your tribe. People in your specialized, target audience are more likely to have the same, more specialized interests as you and everyone else in the community. The connections made will be much stronger. The popularity of Mini Car Clubs](http://new.minimania.com/article/1637/MINI_CAR_CLUBS) is a prime example of the strength of community of a niche within a niche within a niche (i.e. car -> brand -> local).[
+					- It’ll be easier to sell something. Since you become THE expert (or your site becomes THE resource), and because you know exactly who your target market is since they are all hanging out on your site, you can more easily (and without force) sell products of your own or products as an affiliate. If the niche enables you to work with clients, then of course people are going to want to work with you. In photography, dig deeper and specialize in studio lighting for photographers on a budget. Be that person.
+				- In cars, dig deeper and become the person who knows anything and everything there is to know about mini-vans for families with 2 or more children.
+				- In pets, think fish. In fish, think betta fish. In betta fish, think breeding. Breeding betta fish – own that space.
+				- We are at a point now with online business where you can be successful and make a decent living by specializing. You don’t need to own the entire market. You just have to own a specific piece of it, and it doesn’t have to be incredibly big.
+				- Keyword Research and Niche Selection Tips if You’re Still Having Trouble
+				- Below is video that I created for the Niche Site Course that I was going to release last year, but never did because after Google’s algorithm changes and some further tests that I ran, the process (the course in its entirety) only worked sometimes. I was not comfortable selling a course that only worked sometimes, so I scrapped it, even though it was practically done.
+				- That said, I still recorded some valuable content, including this video in Module 1 about what to do if you’re still having trouble with keyword research and niche selection.
+				- If you use a keyword research tool such as Market Samurai or Long Tail Pro (These are both affiliate links. I’ve used and love both!), you’ll find the 2nd tip in the video about the Chain Method extremely helpful (at the 8:37 mark).
+				- I also show you the exact method and seed keyword that I used to find the security guard training niche, which I used to build my niche site that is now earning about $3000.00 per month. In the video, which I recorded a year ago, I mention that it was earning about half that amount.
+				- Please note that this video runs for roughly 50 minutes.
+				- (Or click here to view this video directly on YouTube)
+				- Two Things You Must Do
+				- However you choose to select the topic for your new website or blog, there are two important things that you must do:
+					- Actually select a topic. You can conduct research until your eyes bleed, but the truth is that until you have something up and running online, until you start producing content for something, you’re not going to get anywhere. It’s more beneficial to pick something that you could be slightly unsure of than to never pick a topic at all. You’ll learn more by doing than not.
+					- BRING IT. It doesn’t matter exactly how you say it: bring it, own it, dominate, blow people’s minds, go all out, crush it, kill it – whatever phrase you like best, it’s the truth. You must make something awesome – none of these little crap sites that don’t provide any value to anybody – those don’t work anymore. Work on impressing the end user, and Google will eventually figure out what deserves to be where in the search engines. If you found this post useful, please do me a quick favor and share it!
+				- Image credit: cytech
+				- Tagged as: keyword research, niche selection
+				- Posted on : January 21, 2013 by Pat Flynn
+	- Efficiency
+	  collapsed:: true
+		- 7Life System: The Simple Structure That Will Change Your Life
+			- 164487
+			- Today I have been given the honor of sharing with you a simple system that I have found to be an excellent way of structuring goals into an achievable format. It’s easy to follow, doesn’t take long to implement and is flexible enough to work around your life. If you keep an open mind, commit to trying the system for a few weeks and are diligent in its application, I am confident it will help you greatly… it might even change your life.
+			- Learning How to Eat Elephants
+			- We have all, at some point, fallen prey to “New Years Resolution” death bug, where the ambitious goals we set in January are already a distance memory by February. I believe the problem lies with the fact that we try to take on these huge “goals” all in one go. When it look like we aren’t making progress, we become disheartened and give up.
+			- They say if you want to eat an elephant, break it down into small chucks. The same can be said for big, ambitious goals. Taking on the entire goal in one go is setting yourself up to fail. This is what the 7Life System aims to do – create a structure for making the most out of this coming year, while establishing habits that will ensure each day, week, month, year and decade of your life are as equally productive and fulfilled.
+			- What Will This System Do For You?
+			- Many of you have no doubt heard of Pareto’s Law, which states that “20% of all input will account for 80% of all output”
+			- This system ensures the individual reduces the time wasted on things that are not important or core to their dreams and goals in life. The system allows the individual to be more relaxed when things get hectic in the short-term because it keeps them focused on the long-term.
+			- Positive progression is one of the greatest creators of happiness in life, and having targets and goals is the map by which you navigate.
+			- As shown in the graphic above, goals keep you moving in a generally forward direction to your dreams. Although it will never be a straight line, nor would it be any fun if it was, having targets will help you keep moving in the right direction. If you do not know where you would like to be in 1 year, 3 years, 5 years or 10 years, how will you know how to get there. It would be like trying to get to somewhere you have never been, without a map. Having a target to aim for, therefore, is critical so you know what to shoot at. Set your targets and watch as your life aligns to meet those targets.
+			- Integrating Your Goals Into A Structure
+			- The 7Life System is structured as below.
+				- 7 Life Principles
+				- 7 Life Goals
+				- 7 Before [20/30/40/50/60] Goals
+				- 7 Year Goals
+				- 7 Month Goals
+				- 7 Week Goals
+				- 7 Daily Goals
+			- This makes 7Life a top down system, you start at the top and work your way down. Your 7Life Principles are the most important, followed by your 7Life goals, then your 7 before 30/40/50 goals and so on. Let’s begin.
+			- Your 7 Life Principles
+			- If you have never had any personal life principles then it’s probably time to consider setting some.
+			- Your principles are the foundation on which you stand, and if you don’t define them, you leave it to the world to do so for you. The 7Life system has you define seven principles – those core values that state who you are, how you behave and how you operate.
+			- Sample Life Principle: ‘Love People. Love Life. Love Circumstance’
+			- Take some time now to write down your 7 principles that define you, or who you wish to become. These sentences may and will be tweaked as you go on, so just start by getting something down on paper. Writing down your goals is a powerful process. It helps you clarify them, make them real, and etches them onto your subconscious.
+			- Your 7 Life Goals
+			- Don’t worry, your life goals will not be defined overnight. Let’s make a start today at writing some down.
+			- What seven ambitious goals would you like to achieve in your life? I challenge you to dream big here. Think now about what your perfect life would look like, and what it would involve you doing. Then think about what life goals would get you there.
+			- Sample Life Goal: Complete An Iron Man Marathon
+			- Your 7 Before [20/30/40/50/60] Goals
+			- Now we break the goals down into more manageable chunks. Jot down seven goals to aim for in the coming nearest decade, something you will aim to achieve that will help you ultimately achieve your seven life goals. For an example, I am 27, so my next nearest decade is 30. If I want to complete an Iron Man at some point in my life, then I could set the goal of completing a Triathlon before I am 30.
+			- Before 30 Goal: Complete a Triathlon
+			- Your 7 Year Goals
+			- What are your seven goals for this year? The seven things you can aim for, that will help you to achieve your before [30] goals.
+			- You probably see the pattern that is forming as we break down our goals into ever smaller and more manageable chunks. Your seven goals this year should focus on moving you towards achieving your seven before [30] goals, which in turn are focused on achieving you life goals. Again, as an example, if one of my goals was to complete a triathlon before I am 30 then a goal I could set for this year might be to complete a marathon.
+			- 1 Year Goal: Complete A Marathon
+			- Your 7 Month Goals
+			- Using the marathon example again, I could set the goal of running a 10 miles this month.
+			- 1 Month Goal: Run a 10 Miler
+			- Your 7 Week Goals
+			- For running a 10 miler, this month I could set the goal of running a 5 miler.
+			- 1 Week Goal: Run a 5 Miler
+			- Your 7 Daily Goals
+			- What small task can we do today to help us achieve our week goals? For achieving the 5 miles this week I might set the simple task of just putting my trainers on and going for a short run. In doing this I am taking a small but definitive step towards my life goal of completing an Iron Man.
+			- Today’s Goal: Go For A Run
+			- Review Your Goals
+			- Take a moment to look back over all your goals, pick out a few and jot them down in order. You can see how the large “elephant” has now become an achievable series of small streaks. For reference, lets look at the Iron Man goal and how it breaks down:
+			- Life Goal: To Complete An Iron Man
+			- Before 30 Goal: Complete a Triathlon
+			- 1 Year Goal: Complete A Marathon
+			- 1 Month Goal: Run a 10 Miler
+			- 1 Week Goal: Run a 5 Miler
+			- Today’s Goal: Go For A Run
+			- The Flexibility Of The 7 Life System
+			- You don’t always have to achieve all your daily goals, or even all your weekly goals, every single time. Sometimes life gets involved and ruins our best laid plans, no one is immune from this. However this is ok, you can be flexible by using the 7Life System. You need only focus on trying to always achieve your monthly goals, and definitely never miss any of your yearly ones. The daily and weekly goals are flexible, and this allows life to flow a little easier. If something comes up, they can always be shuffled around, put on hold temporarily, or done in bulk.
+			- The KEY To The 7 Life System
+			- The key to this method is REPETITION. Place these goals in descending order somewhere safe and commit to reading them EVERY MORNING when you get up and EVERY EVENING when you go to sleep. On Sundays plan your weekly goals so you hit the ground running on Monday. In the evenings, plan your goals for the next day.
+			- This is where the power of the system lies, where the goals become ingrained in your subconscious and become a part of you, forcing your mind to find a way of achieving them.
+			- I have no doubt this system will change your life…if you allow it to. Now get to it!
+			- Have a fantastic day.
+		- A Gift for You The Productivity Checklist
+			- http://www.appsumo.com/productivity-checklist/?rf=brws
+		- Action Programs - Time Management Training from MindTools.com
+			- Action Programs
+			- Becoming Exceptionally Well Organized
+			- Bringing focus to the way you work.
+			- © iStockphoto/Krockodilius
+			- We all know how useful To-Do Lists are when we get started in our careers.
+			- However, To-Do Lists can quickly become overwhelmed when we take on responsibility for multiple projects – as many of us do when we become managers.
+			- One of the problems is that, for most of us, our To-Do Lists are not planned, focused, action lists. Rather, they are a sort of a catch-all for a lot of things that are unresolved and not yet translated into outcomes. For instance, specific entries, such as "Call Tina in Sales," might exist along with vaguer aspirations, such as "Write marketing plan." Often, the real actionable details of what you have "to do" are missing.
+			- Another problem is that once you have more than, say, 20 entries on your list, it becomes cumbersome and difficult to use. This means that you start missing key activities and commitments.
+			- This is where Action Programs are useful. Action Programs are "industrial strength" versions of To-Do Lists, which incorporate short-, medium- and long-term goals. They help you to plan your time, without forgotten commitments coming in to blow your schedule apart. And, because they encourage you to think about your priorities properly, you can focus on the things that matter, and avoid frittering your time away on low value activities.
+			- Actions Programs also help you get into the habit of delegating jobs. All of this lets you save time – and get away on time – whilst also increasing your effectiveness and productivity. As such, they help you bring intelligent prioritization and control back to your life, at times where you would otherwise feel overwhelmed by work.
+			- Tip:When you first hear about them, Action Programs can sound complicated and difficult to use. They are more complicated than To-Do Lists , but if you persist and spend a few hours learning how to use them, you'll quickly find yourself back in control of your workload – and a whole lot less stressed as a result!
+			- How to Use an Action Program
+			- Follow these four steps to create your Action Program:
+			- Step 1: Collection
+			- First, make a long list of all the things in your world that require resolution. Try to collect and write down everything that you feel is incomplete and needs action from you to get completed, whether it's urgent or not, big or small, personal or professional.
+			- To an extent, this collection is taking place automatically. E-mail requests are getting stored in your inbox, memos demanding attention are being delivered to your in-tray, mail is reaching your mailbox, and messages asking for action are accumulating on your voice mail.
+			- But there is also other stuff – stuff that is idling in your head, projects you want to run, things you intend to deal with lying at the bottom of the drawer, ideas written down on stray bits of paper – that need to be gathered and put in place too. Bring all of these actions and projects together and inventory them in one place.
+			- And – this is really important – make sure that your personal goals are brought onto this list.
+			- Tip 1:You can experience tremendous stress if you have too many mental "To Dos" floating around in your head. You never know whether you've forgotten things, and you'll always have that terrible feeling of not having achieved everything you want to achieve.
+			- By writing everything down on your Action Program, you can empty your mind of these stressful reminders and make sure that you prioritize these actions coherently and consistently. This has the incidental benefit of helping you improve your concentration, simply because you don't have these distractions buzzing around your mind.
+			- Tip 2:The first time you create your Action Program, you're going to spend a while – maybe two hours – putting it together. This is the up-front cost of organizing your life. However, once you've done this, you'll be amazed at how much more in control you feel. It will take relatively little effort to keep your Action Program up-to-date after this.
+			- Tip 3:You'll find it easiest if you keep your Action Program on your computer as a word processor document. This will make it easy to put together, update, and maintain without a lot of tedious redrafting.
+			- Step 2: Pruning
+			- Now, process the list you made in step 1, by looking carefully at each item. Decide whether you should, actually, take action on it. A lot of what comes our way has no real relevance to us, or is really not important in the scale of things. If that is the case, then delete these things from your list.
+			- Step 3: Organizing and Prioritizing
+			- This step comes in three parts.
+			- First of all, review your inventory of projects and actions. Group together the separate, individual actions that are part of larger projects.
+			- At home, for example, you may want to improve your bathroom and repaint your living room: these can go into a "Home Renovation" project. At work, you may be contributing to the requirements for a new computer system, and may be expected to test and train your team on this system: all of these go into a "Computer System Upgrade" project.
+			- What you'll find is that once you start sorting list items, they will almost seem to "organize themselves" into coherent projects. (You also need to make sure that your personal goals are included as individual projects.)
+			- Second, review these projects and prioritize them in order of importance (for example, by coding them from A to F) depending on their importance. (Clearly, your personal goals are exceptionally important projects!)
+			- Third, insert your projects into your Action Program (using the approach we describe below). The Action Program is split up into these three parts:
+				- Next Action List – this shows the small next actions that you will take to move your projects forward.
+				- Delegated Actions List – this shows projects and actions that you have delegated to other people.
+				- Project Catalog – this shows all of the projects that you are engaged in, and the small individual tasks that contribute to them.The great news is that, by this stage, you've already created the largest part of your Action Program: the Project Catalog! This is the list of prioritized projects and activities that you've just completed.
+			- Typically, the Project Catalog is at the back of the Action Program, as you often only have to refer to it during a weekly review process.
+			- Next, create the Delegated Actions List by working through your Project Catalog, and identifying tasks that you've delegated. Record these under the name of the person to whom you've delegated the activity, along with the checkpoints you've agreed.
+			- Tip:
+			- If you haven't yet delegated anything, or you haven't yet agreed checkpoints, don't worry! What we're doing here is creating the framework you'll work with – you'll have plenty of time to use this framework later!
+			- Typically, the Delegated Actions List sits in front of the Project Catalog in your Action Program document, as you'll need to refer to it quite often.
+			- Finally, create your Next Action List by working through the projects to which you've given the highest priority – the projects that you want and need to move forward on right away – and extract the logical next actions for these projects.
+			- The Next Action List goes on the front page of your Action Program, as you'll refer to it many times a day.
+			- Tip 1:
+				- If the Next Action is going to take less than a couple of minutes, then why not do it right away? Make sure, though, that you come back and complete your Action Program!
+			- Tip 2:
+				- It's this selection of appropriate next actions that takes a certain amount of judgment. If one of your projects is of over-riding importance, then have several Next Actions from this project on your list, and keep other Next Actions to a bare minimum. However, if you need to keep a lot of projects "simmering away," have Next Actions from each on your list.
+			- Tip 3:
+				- If possible, keep your Next Actions small and achievable, ideally so that they take no more than a couple of hours to complete. This helps you keep momentum up on projects, and strongly enhances your sense of having had a productive, successful day.
+			- If Next Actions are likely to take longer than two hours, then break them down further. For example, if your Next Action is to write a report, break this down into research, planning, writing, fact checking and editing phases. Then make "Research" your Next Action, and put the rest of the stages as a project in your Project Catalog.
+			- Tip 4:
+			- You may find it helpful to number the projects in the Project Catalog sequentially (it helps if you number them 10, 20, 30 and so on.) When you bring next actions through onto your Next Action List, you can bring through the project number as well, so that you know which project the action belongs to.
+			- Tip 5:
+			- Where you have several Next Actions, prioritize them from A to F, depending on their importance, value, urgency and relevance to your goals. (If you have trouble deciding whether a task is urgent or important, our article on the Urgent/Important Matrix shows you how to tell the difference.)
+			- Then monitor your success in dealing with these actions. If you find that actions are "stagnating" on your list, consider whether you should either cancel these projects, or whether you should raise their priority so that you deal with them.
+			- Whatever you do, make sure you that don't have too many actions on your Next Action List – if you have more than, say, 15 to 20, you'll start to get bogged down again. If your list is too cluttered, move some of the less urgent/important jobs back into the Project Catalog. If it's thin and under-challenging, pull up some more Next Actions from your Project Catalog.
+			- Tip 6:
+			- As you work through this process, ask yourself if there are any tasks that you can delegate or, if appropriate, get help with. As you identify these, put these on your Next Action List, with the action being to delegate the task.
+			- When you've delegated the task, move it onto your Delegated Actions List, along with the checkpoint times and dates you've agreed.
+			- Step 4: "Working" Your Action Program
+			- An Action Program is typically fairly long. But you don't have to run through the entire Program every day!
+			- Usually, you'll only be dealing with the top page or pages, which are your Next Actions list and your Delegated Actions list. Some activities may be day-specific or time-specific. Depending of the way you work, you can either maintain these on the top page of your Action Program, or mark them in your calendar.
+			- In effect, these top pages are just a new form of your old To-Do List. It's just that only specific short actions are outlined here, while the major projects to which the actions belong are stored in your Project Catalog.
+			- What you must do, however, is review and update your Action Program periodically, for example, every week (put time for this in your schedule). Delete or archive items you've completed, move items from the Project Catalog to the front pages as you make progress on your projects, and add any new actions that have come your way.
+			- Key Points
+			- Action Programs are "industrial strength" versions of To-Do Lists. They help you to convert the projects that you want to run into actionable activities, and then manage them within a three-tier structure.
+			- The "Next Action List" heading lists the precise, immediate actions that you need to perform to move your projects forwards.
+			- The "Delegated Actions List" records details of the projects and actions you have delegated.
+			- The "Project Catalog" heading lists the projects that you want to work on, along with other actions that you have gathered that will contribute to the completion of these projects.
+			- This approach helps you maintain focus on daily jobs and long-term goals at the same time, and it means that you always have a plan for "next action" at any moment. This reduces stress, puts you in control, and gives you a real sense of achievement.
+			- More than this, an Action Program helps you to manage and progress many projects simultaneously. This is particularly important as you progress your career, and as the jobs you take on become increasingly complex and challenging.
+			- Example Action Program
+			- Here's a simple example to help you understand how an Action Program fits together.
+			- Rebecca has been experiencing tremendous stress at her job. She's leading a large team through an important project, and it seems like every day finds her further and further behind with what she needs to get done.
+			- She decides to create an Action Program to help her organize and prioritize her many To-Dos.
+			- Step 1 – Collection
+			- After spending an hour brainstorming, Rebecca comes up with this list of current commitments:
+				- Research our target market to ensure advertising department will hit the right tone with product roll out.
+				- Finish cost-comparison report.
+				- Research local MBA programs.
+				- Speak with employer about getting help with funding for MBA.
+				- Contact recruitment agencies about advertising rates for Office Manager role.
+				- Write help wanted advert for Office Manager role.
+				- Order new desk and telephone for new Office Manager.
+				- Meet with Anthony to ensure he's gotten acclimated to the team; find out if he's on schedule with his project commitments.
+				- Contact major supplier to renegotiate contract, accounting for our larger orders in the upcoming year.
+				- Organize project folders.Step 2 – Pruning
+			- Now that Rebecca has made a list of everything she needs to complete, she takes a closer look at her list to see if any items could be pruned.
+			- After considering each task, she realizes she doesn't really need to meet with her new team member, Anthony. She spoke to him yesterday at lunch and he assured her that he was acclimating well to his new role, and was on track to get all his personal projects completed by deadline.
+			- She also decides that she doesn't need to organize her project folders.
+			- Step 3 – Organizing and Prioritizing
+			- Rebecca is now ready to inventory her items. She realizes she can group her to-dos into three major categories. As she groups her tasks, she assigns each one a priority from A-D, with A being top priority.
+			- CategoryTaskPriority
+			- Launch New ProductResearch our target market to ensure advertising department will hit the right tone with product roll out.B
+			- Finish cost-comparison report.A
+			- Contact major supplier to renegotiate contract.D
+			- Study for MBAResearch local MBA programs.B
+			- Speak with employer about getting help with funding.C
+			- Recruit New Office ManagerContact recruitment agencies about advertising rates.A
+			- Write help wanted advert.C
+			- Order new desk and telephone.D
+			- She then creates her Action Program by splitting it into three parts:
+				- Next Action List.
+				- Delegated Actions.
+				- Project Catalog.She decides to put it into a word processor document (see Figure 1, below), numbering each project as 10, 20, and 30.
+		- Anna (Part 5 of 5) | Roosh V
+			- In the past year, I’ve noticed that my decision making process has a loophole. I decide primarily based on how much pain my current experience has. Decisions should be made looking into the future, but I’ve been making decisions based on avoidance of current pain.
+			- The original plan was to stay in Ukraine for six months, studying Russian throughout, but the “pain” of both the language and the sexual slowness of the women had my mind floating to the easier option, Poland. I had come up with other excuses to leave, including bad restaurant service and strangers who don’t smile at me, but that seemed insignificant while my dick air-dried from Anna’s vaginal juices, especially since Poland is not exactly the land of smiles. I just wanted easier sex, and was willing to rationalize getting that in any way.
+			- Poland has a lower level of pleasure that exists most times, while Ukraine has long doses of pain followed by incredible spikes of pleasure that can surpass what Poland gives. Ukraine is for growth, frustration, and excitement while Poland is for comfort, contentment, and relaxation. I had decided to leave for Poland because I was fatigued from studying Russian, tired of the crappy nightlife, and bored of sleeping with one other girl who wasn’t close to my Ukrainian best, and then Anna came along with this injection of pleasure. All of a sudden, the Ukrainian downsides were fading into the background.
+			- I didn’t know what my next step should be. I went to sleep hoping for some more clarity the next day, my last full day in Ukraine before I was supposed to leave.
+			- —
+			- I woke up after only five hours, unable to sleep. I fantasized about boning Anna for a few minutes then started debating my course of action.
+			- Any decision I was about to be make had to be based on the assumption that I would never see Anna again. Too many times I have been disappointed by women, disrespected by them, flaked by them. In spite of the fact that Anna did seem to genuinely like me, I’d be a fool to depend on her to come through in any way, no matter what she has said and no matter how many layers her cake had. I had to assume the worst, and ask myself what I would do if I stayed and she disappeared.
+			- I’d study Russian.
+			- I’d approach girls every day.
+			- I’d keep up my gym routine.
+			- I started to investigate my options. I called the airline and they said I could change my flight for a nominal fee. I called my landlord and she said I could stay an extra month. The Polish apartment company said I could use my deposit for a future stay. The path was open.
+			- It has been said that smart people make better decisions, but I believe smart people make better rationalizations. Looking back on all my big decisions, which I thought I made with logic, I actually used emotion. The logic was just there to give the veneer of making the better choice. I now understand I’m using emotion when I make a list of logical reasons for doing something, since my mind already decided what it wants well before I knew it consciously. For this decision I had to forget about logic. And so it was very easy.
+			- There was no guarantee anything would come out of me and Anna, but I looked forward more to the mere possibility of seeing her again than going back to Poland. While this made me nervous, it was a truth I couldn’t deny. I didn’t care how badly this would end for me, as long as I could say I gave it my all with her in my hunt for pleasure and happiness.
+			- That afternoon I opened my Russian notebook, scanned the work I did three weeks before, and began studying. Midway through I received a text from Anna. She wrote “good morning” five times, followed by four smiley faces.
+			- TOMORROW: Epilogue
+				- Tweet
+				- 3
+				- This page has been shared 3 times. View these Tweets.
+			- PREVIOUSLY: Part 4
+			- After my orgasm it was honesty time. I could now think clearly and know if I just wanted to fuck her one time or if I wanted to keep her. I looked carefully at her face, her hair, her body. Her beauty did not decline in my mind. She still looked the same as when I first saw her.
+			- I slipped on a pair of shorts and gave her a white t-shirt. Back in the kitchen I put on some music and began cooking. She begged me to help but I told her to sit down and relax. This was hard for her to do since she has too much energy. She hopped around the kitchen, dancing to the music, telling me little anecdotes. She was on standby to wash any utensil I used, but she was washing things I still needed. I told her to stop cleaning. “But I like cleaning!” she said. I knew if we dated, I’d have trouble keeping up with her, but at least my kitchen would be spotless.
+			- My dish was not turning out so well. I was trying to make a white wine sauce with heavy cream but I mistakenly bought fat-free sour cream instead. When I added it to the pan, the white substance instantly disintegrated into unappealing chunks. Anna took a look at it and frowned. “I think I’ll let you cook next time,” I said.
+			- “Oh no, it’s okay, it looks good,” she said, trying to make me feel better.
+			- There was too much liquid and I had no flour to thicken it up, so we had to wait a while for it to evaporate. I figured that it would be prudent to have sex again. We went back in my bedroom and this time I weaseled it in without a condom. It’s easy to do with emotional girls, but I had to block out thoughts that if she was doing it with me, she has probably done it with other guys.
+			- The sex was spirited. Anna was a wildcat and could take whatever I could give her, preferring it deep and hard, saying “Da, da” when I yanked on her hair. Her pussy was a perfect fit for me—not too tight, not too loose, and with extra lubrication. I went a long time, as if I subconsciously wanted to perform well, and eventually pulled out to cum beside her.
+			- There was a surreal feeling to what was happening. I fornicated with a gorgeous girl, who had an amazing personality, who really liked me, who was dynamite in bed, and who cooked me a goddamn cake. The insecure part of me wondered what I did to deserve this.
+			- By the time we made it back to the kitchen, my dish was burning. I patched it up by adding more wine. It was edible but probably the worst thing I made in years. I teased her that it was her fault. While eating, I wondered if I should tell her that I’m planning to leave in two days, but decided that would be a mistake. I didn’t want her to know of the decision I was facing and for her to realize the turmoil she was causing me. I had to be silent about it.
+			- We got to talking about roommates and she said she once lived with a boyfriend. “He was a sailor, and had to leave for a few months. During that time away I started to compare him to other guys who were talking to me, and realized I didn’t want that kind of relationship. So when he came back I told him I didn’t want to be his girlfriend anymore.”
+			- This revealed two things to me. First, she had suitors constantly hitting on her, so there would probably never be a moment when I felt she was “mine.” The fact that she was hit on when I met her, from guys who were completely blind to my presence, told me what I was up against. I’d always have to compete and be on top of my game, never able to rest, when the point of dating Eastern European women is being able to relax and not worry about “relationship game.”
+			- Second, she would have no patience for a guy who didn’t give it his all and treat her like a princess. If I left the country, I’d be gone at least four months, which she indirectly told me was too long. At some point I’d have to leave, the suitors would attack, and her email response times would get longer until there was prolonged silence.
+			- She would never be mine, I knew that, but I wanted to be able to take the relationship to its natural conclusion, to say, “Well, I’m kind of tired of fucking her anyway,” and just move on without regrets.
+			- After we ate, she pulled out her cake and cut me a slice. I counted six layers. It appeared just like the cakes I buy in the cafe. “This looks hard to make,” I said.
+			- “Yes it took me a long time because of all the levels. You have to wait 15 minutes between each one.”
+			- “How long did it take in total?”
+			- “Three hours.”
+			- “A way to a man’s heart is through his stomach,” I said. She never heard that expression before so I could sense her making a mental note of it to use in the future.
+			- The cake was delicious. I ate a second piece and thanked her. She then got up and began the dishes. I wanted to tell her to relax, but I remained silent and let her clean while I watched her, with the bottom of her ass peeking out from my t-shirt.
+			- We went back to my room to lay down, but it was getting late and she said she had to wake up early for work. I urged her to stay five more minutes. I was still surprised she didn’t ask me when exactly I was leaving the country. I felt like I had to say something.
+			- “I’m not sure when to leave,” I said. “I like Odessa, and was thinking of going to Poland, but I don’t know. I just have to visit America in December, so I’m free until then. There is a gym nearby I like, so I guess I can stay a little longer. I was thinking of studying Russian again.”
+			- Still nothing. She didn’t ask me any questions. Ideally I wanted her to say, “Please Roosh stay in Odessa forever!” But it didn’t come. Maybe she didn’t care, I don’t know.
+			- I then asked her, “If you’re dating a guy, how often do you want to see him?”
+			- “Every day!” she replied.
+			- “Every day? I see.”
+			- “But it doesn’t have to be every day. I don’t want you to think I’m crazy.”
+			- “Don’t worry, do what you want and if I think you are acting crazy I will tell you.”
+			- At no point during our entire seduction did I feel that she was playing a game with me, but several minutes later she hit me with one.
+			- “Can you get my phone in the kitchen?” she asked. “I need to call a taxi.”
+			- “I’m tired,” I replied.
+			- “Please get it!”
+			- “Your legs don’t work anymore? Next thing you will ask me to carry your purse around.” I’ve seen Ukrainian guys do this with their girls. While I was considering changing my entire travel plans for her, there was no way I’d get her phone.
+			- She didn’t get mad, but there was a minute of coolness while she got dressed. She called the taxi and then retrieved her cake plate. My mind was really churning now, thinking, “She’s not coming back again, that’s why she’s getting the plate.”
+			- I escorted her downstairs and the coolness seemed to end. She kissed me with passion and said she had a great time. I slipped the taxi fare ($6) into her bag in spite of her protests, my usual habit with the girls I sleep with. I never wanted them to balk at coming to bang in the future because of a taxi fare that was insignificant to me.
+			- Now that I slept with her, I felt a little aimless, unsure of what to do next. More severely, I was feeling on edge when I should have been soaking in a glorious sex afterglow. Where was the anxiety coming from?
+			- I had a good guess: I was set to leave for Poland in 36 hours.
+			- —
+			- In the past year, I’ve noticed that my decision making process has a loophole. I decide primarily based on how much pain my current experience has. Decisions should be made looking into the future, but I’ve been making decisions based on avoidance of current pain.
+			- The original plan was to stay in Ukraine for six months, studying Russian throughout, but the “pain” of both the language and the sexual slowness of the women had my mind floating to the easier option, Poland. I had come up with other excuses to leave, including bad restaurant service and strangers who don’t smile at me, but that seemed insignificant while my dick air-dried from Anna’s vaginal juices, especially since Poland is not exactly the land of smiles. I just wanted easier sex, and was willing to rationalize getting that in any way.
+			- Poland has a lower level of pleasure that exists most times, while Ukraine has long doses of pain followed by incredible spikes of pleasure that can surpass what Poland gives. Ukraine is for growth, frustration, and excitement while Poland is for comfort, contentment, and relaxation. I had decided to leave for Poland because I was fatigued from studying Russian, tired of the crappy nightlife, and bored of sleeping with one other girl who wasn’t close to my Ukrainian best, and then Anna came along with this injection of pleasure. All of a sudden, the Ukrainian downsides were fading into the background.
+			- I didn’t know what my next step should be. I went to sleep hoping for some more clarity the next day, my last full day in Ukraine before I was supposed to leave.
+			- —
+			- I woke up after only five hours, unable to sleep. I fantasized about boning Anna for a few minutes then started debating my course of action.
+			- Any decision I was about to be make had to be based on the assumption that I would never see Anna again. Too many times I have been disappointed by women, disrespected by them, flaked by them. In spite of the fact that Anna did seem to genuinely like me, I’d be a fool to depend on her to come through in any way, no matter what she has said and no matter how many layers her cake had. I had to assume the worst, and ask myself what I would do if I stayed and she disappeared.
+			- I’d study Russian.
+			- I’d approach girls every day.
+			- I’d keep up my gym routine.
+			- I started to investigate my options. I called the airline and they said I could change my flight for a nominal fee. I called my landlord and she said I could stay an extra month. The Polish apartment company said I could use my deposit for a future stay. The path was open.
+			- It has been said that smart people make better decisions, but I believe smart people make better rationalizations. Looking back on all my big decisions, which I thought I made with logic, I actually used emotion. The logic was just there to give the veneer of making the better choice. I now understand I’m using emotion when I make a list of logical reasons for doing something, since my mind already decided what it wants well before I knew it consciously. For this decision I had to forget about logic. And so it was very easy.
+			- There was no guarantee anything would come out of me and Anna, but I looked forward more to the mere possibility of seeing her again than going back to Poland. While this made me nervous, it was a truth I couldn’t deny. I didn’t care how badly this would end for me, as long as I could say I gave it my all with her in my hunt for pleasure and happiness.
+			- That afternoon I opened my Russian notebook, scanned the work I did three weeks before, and began studying. Midway through I received a text from Anna. She wrote “good morning” five times, followed by four smiley faces.
+			- TOMORROW: Epilogue
+		- Anti-akrasia tool: like stickK.com for data nerds - Less Wrong
+			- In 2009 I first described here on LessWrong a tool that Bethany Soule and I made to force ourselves to do things that otherwise fell victim to akrasia ("How a pathological procrastinator can lose weight"). We got an outpouring of encouragement and enthusiasm from the LessWrong community, which helped inspire us to quit our day jobs and turn this into a real startup: Beeminder (the me-binder!).
+			- We've added everyone who got on the waitlist with invite code LESSWRONG and we're getting close to public launch so I wanted to invite any other LessWrong folks to get a beta account first: http://beeminder.com/secretsignup (no wait this time!)
+			- (UPDATE: Beeminder is open to the public.)
+			- It's definitely not for everyone since a big part of it is commitment contracts. But if you like the concept of stickK.com (forcing yourself to reach a goal via a monetary commitment contract) then we think you'll adore Beeminder.
+			- StickK is just about the contracts -- Beeminder links it to your data. That has some big advantages:
+			- 1. You don't have to know what you're committing to when you commit, which sounds completely (oxy)moronic but what we mean is that you're committing to keeping your datapoints on a "yellow brick road" which you have control over as you go. You commit to something general like "work out more" or "lose weight" and then decide as you go what that means based on your data.
+				- 2. You have the flexibility to change your contract in light of new information (like, 40 hours of actual focused work per week is damn hard!). That also sounds like it defeats the point of a commitment contract, but the key is that you can only make changes starting a week in the future. (Details at blog.beeminder.com/dial which describes the interface of the "road dial" for adjusting the steepness of your yellow brick road.) The point is that akrasia (dynamic inconsistency, hyperbolic discounting) means over-weighting immediate consequences, so to beat akrasia you only need to bind yourself for whatever the horizon on "immediate" is. Based on a study of grocery-buying habits -- when buying groceries online for delivery tomorrow people buy a lot more ice cream and a lot fewer vegetables than when they're ordering for delivery next week -- and raw guesswork (so far), we're taking that Akrasia Horizon to be one week.
+			- So Beeminder as an anti-akrasia tool means committing to keeping all your datapoints on a yellow brick road that you specify and can change the steepness of at any time, with a one-week delay.
+			- You may be wondering how anyone could ever fail to stay on a yellow brick road that's this flexible. Here's how: if you're highly akratic. Such a person may well find it a daily struggle to stay on the road. Yeah, you can always choose to wuss out and flatten the road, but only starting in a week, which you don't want to do. You want to wuss out Right Now, dammit! I mean, just for now, while you eat this pie, and then you'll behave again. No such luck though.
+			- The daily struggle to stay on the road does not induce you to touch that road dial. You always want to make it easier "just for today" -- which the road dial doesn't allow -- and you always think you'll get your act together by next week.
+			- We'd love to hear people's thoughts on this! Perhaps surprisingly, it took a ridiculous number of iterations to get to this point. For the longest time we struggled with different ways to deal with the fact that it's so often hard to decide what to commit to. We tried many variations of having multiple yellow brick roads for a single goal, so that you could specify an ambitious goal as well as a bare minimum. It was always too messy, or would backfire altogether and be paralyzing. We think the road dial with an akrasia horizon is a big leap forward. And it seems so obvious in retrospect!
+		- Cheat Sheet - 12 Core Practices - Getting Results | The Book
+			-
+				- Action Lists
+				- Daily Outcomes
+				- Growth Mindset
+				- Monday Vision, Daily Outcomes, and Friday Reflection
+				- Monthly Improvement Sprints
+				- Reference Lists
+				- Scannable Outcomes
+				- Strong Week
+				- The Rule of 3
+				- Timebox Your Day
+				- Triage
+				- Weekly Outcomes
+			- [](null) Practices Explained
+				- Action Lists. Track your actions with tickler lists. Consider the following action lists: Daily Outcomes, Weekly Outcomes, Queues, and Scripts.
+				- Daily Outcomes. Each day is a new chance for results. Use daily tickler lists for action items; create a new list each day. Each day, decide on three things you want to accomplish (The Rule of 3). Always start your list with your three most important outcomes for the day. The key to an effective Daily Outcomes list is that you keep your three outcomes for the day at the top, while listing the rest of your to-dos below that. This way you have a reminder of what you want to accomplish.
+				- Growth Mindset. This is simply a decision—decide that you’ll learn and grow. If you get knocked down, you’ll get up again. You decide that no problem is personal, pervasive or permanent. Life is not static. Neither are your results.
+				- Monday Vision, Daily Outcomes, Friday Reflection. Decide three results you want to accomplish for the week. Decide what three results you want to accomplish each day. Make progress each day. At the end of the week, reflect on your results.
+				- Monthly Improvement Sprints. Pick one thing to improve for the month. Each month, pick something new; this gives you a chance to cycle through 12 things over the year. Or if necessary, you can always repeat a sprint. The idea is that 30 days is enough time to experiment with your results throughout the month. Because you might not see progress in the first couple of weeks while you’re learning, a month is a good chunk of time to check your progress.
+				- Reference Collections. Some information is not actionable. Yes, it might be helpful information, and yes, it might be good to know. But if it’s not actionable, then it’s reference. You can store your reference information as tickler lists or notes. Here are some example reference lists you might keep: Ideas, Notes, Weekly Results, Monthly Results, and Yearly Results.
+				- Scannable Outcomes. Think of this as what’s on your radar. At a glance, you should be able to see what you want to accomplish and what you’re spending your time and energy on. Outcomes guide your actions. Keep your outcomes scannable at a glance. Organize outcomes by your work, personal, and life Hot Spots. For example, create a list of outcomes for your Life Frame Hot Spots: body, career, emotions, financial, fun, mind, and relationships.
+				- Strong Week. Each week focus on spending more time on activities that make you strong and less time on activities that make you weak. Push activities that make you weak to the first part of your day. By doing your worst things first, you create a glide path for the rest of the day. Set limits; stuff the things that make you weak into a timebox. For example, if the stuff that makes you weak is taking more than 20 percent of your day, then find a way to keep it within that 20 percent boundary. This might mean limiting the time or quantity. Sometimes you just can't get rid of the things that make you weak; in that case, balance it with more things that energize you and make you strong. Apply this to your week too. Push the toughest things that drain you to the start of the week to create a glide path. Do the same with people. Spend more time with people that make you strong and less time with people that make you weak. Be careful not to confuse the things that make you weak with challenges that will actually make you stronger. Grow yourself stronger over time.
+				- The Rule of 3. This is the heart of your Daily Outcomes. The Rule of 3 will help you stay focused on the vital few things that matter. Identify your three key outcomes each day, each week, each month, and each year. This helps you see the forest from the trees. The three outcomes for the year are bigger than the three outcomes for the month which are bigger than the three outcomes for the week which are bigger than the three outcomes for your day. This also helps you manage scope. It’s all too easy to bite off more than you can chew. Instead, first nail the three items you want to accomplish, and then bite off more. Think of it as a buffet of results and you can keep going back—just don’t overflow your plate on each trip.
+				- Timebox Your Day. Set boundaries for how much time you spend on things. If you keep time a constant (by ending your day at a certain time), it helps you figure out where to optimize your day and prioritize. To start, you can carve up your day into big buckets: administration, work time, think time, and people time.
+				- Triage. Triage incoming action items to either do it, queue it, schedule it, or delegate it. Do it if now is the time: it’s the next best thing for you to do; now is the most opportunistic time; or it will cost you more pain, time or effort to do it later. Queue it (add it to your queue) if it’s something you need to get done, but now is not the right time. Schedule it if you need a block of time to get the work done. Delegate it if it’s something that should be done by somebody else.
+				- Weekly Outcomes. Create a new list each week. Each week is a new chance for results. Always start with your three most important outcomes for the week (The Rule of 3).
+		- Choose measurable goals (start with most important goal)
+			- Look for data about controllable factors which are likely to influence goals - manipulate them to see how it affects goal achievement
+		- Eat That Frog Second! A New Way to Tackle To-Do Lists | Living For Improvement
+			- Eat That Frog! by Brian Tracy
+			- In the world of productivity, Brian Tracy’s “Eat That Frog First” philosophy has been very useful for understanding how to tackle your to-do list every day for maximum efficiency and momentum as you plow through your tasks. In summary, his philosophy is that you should tackle the most difficult item on your to-do list first, so that the rest of your day is free from worrying about the difficult task. He also argues that getting such a big task out of the way gives you momentum to accomplish the relatively less difficult tasks. In other words, if the first thing you do tomorrow is eat a live frog, the day can only get better from there. Click the following link to view a 2 minute video summarizes this philosophy very well: http://www.youtube.com/watch?v=0W7GB5Fh2XM
+			- Brian Tracy’s philosophy makes a lot of sense. You get a feeling of relief and momentum from having just accomplished a tough task. However, this philosophy of productivity directly contradicts my go-to method of productivity. My go-to method is essentially “productive procrastination” in which you are “procrastinating” the toughest item on your list by doing everything else on your list instead. By the time the tough goal is the last thing on your list to do, you’re so close to the finish line that you don’t even hesitate to get it done. I swear by this method because of how easy it is to get started on your tasks for the day, but it definitely has its drawbacks. Namely, it’s intimidating, and even somewhat stressful, seeing that super-tough item on your to-do list all day. I go into more detail about this method of productivity here.
+			- After having experimented with both methods, I have found a combination of the two that gives you the best from both worlds. I call this method Eat That Frog Second. As the name implies, you’re going to tackle your most difficult task for the day SECOND, rather than first. Here’s why: I noticed that it was incredibly difficult to start doing things in the morning when I was faced with the most difficult task of the day right from the get go. I always found it easy to tackle big challenges once I was in the flow of things, but to start with it when I was still a little groggy and not in the flow of work yet, it was quite daunting. I found myself dawdling more than I usually do. Not good.
+			- So here’s what you do:
+			- 1) Start your day with your EASIEST task. This will allow you a quick win that gives you some momentum and gets you “in the zone.”
+			- 2) After this is finished, throw all of your momentum into the “frog” of your day (the most difficult task on your list).
+			- 3) Once this task is completed, you can perform an optional celebration dance, and continue on with the rest of your tasks with feelings of relief, accomplishment, and further momentum.
+			- 4) Optional: When creating your to-do list for the day, if you use hand-written to-do lists, you can draw an arrow next to your EASIEST task and draw a bulls-eye target next to your TOUGHEST task. Then draw a dotted line guiding the arrow towards the target. It’s a fun way to mark of the two tasks to focus on as you get started with your day, plus it symbolizes that completing the first task will give you momentum to jump right into the difficult task. It might look something like this:
+				- -Cook dinner for tonight
+				- -Find my dress socks
+				- ↓ -Call mom to say hello
+				- -Submit TPS report
+				- ◎ -Write a business plan for my future business
+				- -Vacuum the living room
+			- Try this method for your next set of tasks and let me know how it works in the comments section below!
+			- 0
+			- inShare
+			- Print This Post
+				- Print This Post | Email This Post
+				- Email This Post
+				- Tags: Eat That Frog, Maximizing Productivity, to-do lists
+		- focus@will
+			- focus@will
+				- Music
+				- Science
+				- Blog
+				- Company
+				- FAQ
+				- Features
+				- Community
+			- What is focus@will?
+				- Focus@will is a new neuroscience based web tool that uses phase sequenced instrumental music to increase your attention span up to 400% when working, studying, writing and reading.Who is it for?
+				- It’s for anyone who needs to be productive on demand when working to a deadline. For instance, journalists, lawyers, students, writers and coders. Research has shown it is extremely effective for 2 out of 3 people.What problem does this solve?
+				- Most people can only focus their attention for around 20 or 30 minutes at a time. Our tool helps extend this productivity cycle up to around 100 minutes.How does it work?
+				- The focus@will music stream engages your non-focal (background) attention, but not so much that it interferes with your conscious focal attention on the task at hand. This is music you hear but should not be actively listening to.
+				- If a track is too bland, your subconscious will start ignoring it, and if too interesting, novel, dynamic or exciting, you will start consciously noticing it, which will distract you. Every track in our exclusive library has been remixed/re-edited and remastered to deliver the precise set of required attributes to keep you in the focus zone.
+				- The patented secret sauce is how the system subtly phase sequences the stream to trick your limbic system (the fight or flight survival mechanism in the brain) into not habituating (tuning out) this focusing/anti distracting effect over time.
+				- Here’s some more info about this.What research is behind this?
+				- We conducted two years of in-depth productivity research, working closely with 200 alpha participants, we commissioned a Bowker market research project with over 72,000 respondents and we continue to run trials with our favorite UCLA psychology team. Check out our Science Primer here.How much does it cost?
+				- There are 2 levels of accounts, Personal (free) and Pro (paid). Free Personal accounts have limited functionality and can only access a timed 60 minute music session that then repeats in each channel.
+			- Yes, you will hear the same exact music again each time you log on with a free account!
+				- Paid Pro accounts have access to the entire music library, and all personalizing features such as adjusting the session timer, running in non-timed mode and fine tuning the energy level for your individual brain type to get up to an hour extra focused time per day. Click here for more information about the different types of accounts.What’s the best way to use the system?
+				- Start the music player when you begin a task you need to focus on. The phase sequence of music played is designed to help get you in the zone, and then keep you in the zone for up to 100 mins. Note that most people need a break after this amount of time concentrating. For maximum effect, stop the music when you take a break and restart when you pick up your work again.Is there an optimal volume setting?
+				- Yes. We recommend setting the volume just above the ambient noise level, ie if you can hear traffic, or your neighbors chatting, or general sounds if you are say in a coffee shop. Generally, set the volume some what lower than listening to music for entertainment purposes.What does the Skip button do?
+				- The idea behind focus@will is that you should not be conscious of individual music tracks. It’s all about a seamless music stream that runs in the background. So, if you actively notice a track it means that your subconscious mind found it distracting. When you click the Skip button, we won’t play you this piece of music again. This is how to teach the system to work best for you…What’s the difference between focus@will and say Pandora, Spotify or say Rhapsody?
+				- Internet music services such as Pandora, Spotify and Rhapsody are entertainment companies. They take existing music and create new ways for consumers to access it. Focus@will, however is fundamentally different. We are not an entertainment company – we are a productivity tool company. We provide a new additional service you use to get stuff done better.Does this work for other activities, like say music for dinner parties, or dancing?
+				- Focus@will is designed to help you be more productive when doing specific goal oriented tasks. Research shows it works best at an individual level per user over a series of 100 minute cycles. We recommend you only use the service when you need to focus and get something done. We know we have some cool music in the system, but we have found that if you only use us for productivity enhancement over time a Pavlovian conditioning effect starts to kick in and the effectiveness of the system increases significantly. This is because your brain is now associating the focus@will music with the action of concentrating. If you use us for general entertainment music purposes such as when you’re hanging out or dancing, you dilute this effect.But you are a music company too, right?
+				- Yes, but we’re actually a new kind of hybrid tech/music company](https://www.focusatwill.com/company/). We’re a productivity tool company with an award winning San Francisco based software engineering team and a Los Angeles based music label with an exclusive library of highly curated material. Our adaptive audio playback software uses artificial intelligence to deliver you the perfect playlist that gets you and keeps you in the concentration sweet spot, based on what you are doing. [It’s clever stuff.Why can’t I choose what tracks I want to play?
+				- Focus@will is all about “set it and forget it”! Choose your music genre, hit play and get on with doing other stuff. Each track is scientifically selected and delivered to you by our cloud servers based on where you are in a productivity cycle and what you are doing. Dynamically creating these individual music playlists is a key part of the attention focusing technology. Remember to use the Skip button to teach the channels which tracks you find distracting.Who helped you get this off the ground?
+				- We couldn’t have done this without a whole bunch of people who invested money and time, gave us advice and general support, went way above the call of duty and were there on the end of the phone late nights listening to our inane ramblings about wanting to change the world one focused person at a time. We thank you: Karen Pritzker and Michael Vlock, David Austin, Jonathan Bulkeley, Ethan Jacks, Reese Jones, Rob Nail, Jason Kirtley, Jeff Straw, Salim Ismail, Evian Gordon, Bernie Groves, Bob Greig, Michael Terpin, Kiril Dobrovolsky, Cindy Charles, Heather Rafter, Jessica Fajfar, Dave Conry, Ian Esten, the kick ass team at Solid Interactive (Travis McHattie, Peter Ajtai, Alex Reynolds and Jessie McCabe), Chris Adams, Peter McCabe, Josh Gabriel, John Metcalfe, David Mann, Dr Kirsten Sanford, Naomi Rosestone, David Bergeaud, Mat Henshall, Bryce Young, Steve Hermosillo, Dave Lebolt, Ken Rutkowski and we’ve surely forgotten someone…
+				- Terms of Service
+				- Press
+				- Support
+				- [](http://support.sharethis.com/customer/portal/articles/1164544-faqs-for-consumers#emailprivacy)
+		- Getting Agile Results Articles, Tutorials, Podcasts and Screencasts
+			- Agile Results is a revolutionary productivity system developed by JD Meier. We’ve experimented extensively with Agile Results at Asian Efficiency, and think that it’s an amazing way to track your goals, keep you focussed and basically help you get things done. To this end, we’ve written up an introductory guide to Agile Results which will help you get up and running with Agile right away. What is Agile Results? ](null)Agile Results is a different way of organizing your life and your productivity tools and systems. It relies on the concept of setting proper goals and outcomes, then directly linking your daily, weekly and monthly actions towards those goals and outcomes (this is actually the definition of productivity).
+			- Agile Results also incorporates several important mindsets and systems to help make you more productive.
+			- We love to share tips about Agile Results and other productivity methodologies, software and insights in our newsletter. It’s the only place that you will find exclusive Asian Efficiency content that is not shared anywhere else. If you like our Agile Results content, you’ll definitely love our newsletter content. You can sign up right here and we’ll send you great content straight away.
+			- Full List of Agile Results Articles, Tutorials, Podcasts and Screencasts
+				- ](null)[Agile Results Series Part 1: Overview. An introduction to the core concepts and structure behind Agile Results, with important concepts highlighted and explained.
+				- Agile Results Series Part 2: Implementation. How Agile Results’ Rule of 3 works, broken down at a granular level, with a guide to implementation.
+				- Agile Results Series Part 3: Agile Mods. How to set up your own Agile Results system Asian Efficiency-style, using tools and apps you’re already familiar with. Shows a detailed example of a first-run through the system, as well as how it works on a day-to-day basis.
+				- Agile Results Series Part 4: More Mods. How to implement the rest of Agile Results by combining familiar principles from GTD and productivity systems with Agile.
+				- Agile Results and Mind Mapping. How to solely use mind maps to implement Agile Results.
+				- Setting Better Outcomes. An expanded look at Agile Results’ outcomes and how to set better and more effective outcomes.
+				- Agile Results and OmniFocus. How we recommend using OmniFocus to implement Agile Results.
+				- Agile Results Sprints: An In-Depth Guide and Look.
+				- 6 Ways Agile Results is Better than GTD. Aaron explains why he likes Agile Results a lot more than GTD.
+				- Agile Results and Evernote. A step-by-step guide to implementing Agile Results in Evernote. Key Agile Results Concepts
+			- We cover all the key concepts of Agile Results extensively in part 1 of our Agile Results Series, but here is a quick overview of the most important concepts.
+				- Rule of 3. The idea of setting 3 and only 3 outcomes for each timeframe you operate in – daily, weekly, monthly and yearly.
+				- Triage. Agile’s version of GTD. Doing, queueing, delegating or scheduling incoming items.
+				- Agility. The ability to do something fast, seeing if it works, then tweaking it and doing it again – only better.
+				- Systems Thinking. Creating systems for everything you do, to reduce friction and overhead. So important we have a whole article on it. Agile Results Tools and Apps
+			- We recommend using multiple tools to implement the various components of Agile Results.
+				- Action Lists (to do lists): OmniFocus](http://www.asianefficiency.com/likes/omnifocus-mac/) or [Things.
+				- Roadmaps and overviews: Mindjet MindManager.
+				- Journals: Evernote.
+				- Information Storage: Evernote](http://www.asianefficiency.com/likes/evernote/), [DevonThink](http://www.asianefficiency.com/likes/devonthink/) or [VoodooPad. Agile Results Resources
+			- Here are some additional resources on Agile Results (Getting Results).
+				- The free preview text of Getting Results the Agile Way.
+				- JD Meier’s blog.
+				- Getting Results the Agile Way for Kindle.
+				- 30 Days of Getting Results. JD Meier’s 30-day tour for implementing Agile Results.
+		- Goal Setting and Goal Achievement - Less Wrong
+			- Goal Setting and Goal Achievement
+			- 2Post author:kerspoon28 October 2013 12:17PM
+			- The reason people succeed is well-focused, regular, effort.
+			- The reason for failure is more often lack of effort rather than the direction of the effort. For example, more people put on weight because they couldn't stick to their diet than those that chose a diet that wouldn't have caused weight loss.
+			- 1. How the Brain Decides what Task you Will Perform
+			- You subconscious decides on your motivation for a task, but you can consciously choose to use your self-control and not do the easiest task. For example, my subconscious is saying that watching TV requires the least motivation but I have chosen to use up some of my self-control and write this article instead.
+			- I'm going to discuss a few tactics to reduce the self-control required to complete a task (such as setting up a trigger) as well as ways of making your subconscious disfavour your distractions (for example by removing the plug from your TV).
+			- 1.1 Motivation
+			- A good guideline for the motivation that your subconscious gives you for a task is given in the equation below.
+			- Motivation = (Expectancy x Value) / (Impulsiveness x Delay)
+				- The Expectancy and Value can be thought of in terms of gambling. The Value is how much you get paid if you win and the Expectancy is the probability of winning. The Value of a task changes constantly as it is how much you value completing the task at any given moment. Delay is the amount of time before you will get the pay-off. For writing an essay it is likely to be after the entire thing is written, watching TV is an almost instant hit. Impulsiveness is a more complex part which is covered in Piers Steel's “Procrastination”.If you are struggling to put effort in to a task then it is probably because your motivation for it is lower than its alternatives. For example, there are many things I could do at the moment: I could get some food, play computer games, go for a walk, write this essay, etc. and each has a certain level of motivation based on the above equation. If I make sure I'm not hungry then the first task is of such low value that it wont be a problem. If I delete my computer games so I have to find the CD to be able to play them it increases the delay making that less of an issue.
+			- Every time you get distracted take note of the task and see why you have a higher motivation for it than what you should be doing. Then go through each part of the equation in turn to see if you can reduce the motivation for tasks you don't want to do.
+			- 1.2 Self Control
+			- Self-control is the effort you put in to a task to make sure you do it instead of one with a higher motivation. For example, getting a snack might have a higher motivation than continuing with my work but I can use up some self-control to make sure I keep working.
+			- Self control is like a muscle. Do too much and you will exhaust it, but if you successfully use it regularly it will get stronger.
+			- 2. How to Set goals to increase changes of success
+			- Below are three methods to increase the chances of succeeding at a task. They are based on the ideas in section one.
+				- The first method (triggers and mechanical starting points) works because you quickly program your subconscious to perform a task at a given time. It means you can sidestep the subconscious calculation of motivation until the task has started, and starting is often the hardest part.
+				- The second (mental contrasting) provides you with a more accurate guess for the value and expectancy of the task. This means you can work out whether you are likely to succeed before you have started. It also increases your motivation when doing the task.
+				- The third (prevention or promotion) frames the goal so that you get more motivation when you need it most. But you have to choose when you need it, there is a tradeoff.
+			- It will still take a lot of self control to achieve worthwhile tasks but by using mechanisms such as this you can increase you chances.
+			- 2.1 Triggers and Mechanical Starting Points
+			- The key to this method of goal setting is to set up simple triggers and a mechanical starting point. A trigger is something to tell you when to start working on your goal, a mechanical task is one that can be done with no thinking, or at least without conscious thought. By thinking of your goal in terms of triggers and starting points you can form a habit much quicker. For example if you goal is to become more flexible you should convert this into one with trigger and a mechanical starting point.
+			- The trigger should specify exactly where and when you start, a good example would be "straight after brushing your teeth every weekday morning" (this is only a good example if you already have the habit of brushing your teeth every morning), a bad example would be "at 8:15am", what happens if you wake up a bit late and are brushing your teeth at that time. A further problem with purely time based triggers is that you wont be able to tell it is exactly 8:15 unless you set an alarm and in a lot of cases it is not practical to have many alarms going off through the day.
+			- A mechanical starting point is something that gets you started without having to think. Setting your alarm for 10mins and swinging your leg back and forward would be a good starting point for the goal of become more flexible. If your goal was to write a book a good starting point would be to get out your notebook and read through the last bit of what you wrote last time. A bad starting point would be to continue writing where you left off last time, that requires conscious thought.
+			- Some goals do not have a time based trigger at all, for example “not snacking” applies all the time. You still want to form a habit that your subconscious can follow without having to deplete your self control. In that cause I would suggest framing the goal in terms of "if ... then ..." e.g. if I feel the urge to snack then I will eat a few nuts and seeds and drink a glass of water. For goals like this you can also factor in the brain taking the easiest option, if you make it a real effort to get to the snacks you will be less likely to do so.
+			- 2.2 Mental Contrasting
+			- The next key point is to consider alternating points of view of the goal. You want to be overly pessimistic about how hard it will be (i.e. think it will be difficult) but optimistic about your chance of success. The idea is to get to a point where you think:
+			- "This will be hard to achieve but I know, with a lot of self control and effort I can do it, and it really will be worth it."The way to do this is to alternate between thinking of reasons why the task will be difficult (or why you could fail) then think of why it is important to you to achieve.
+			- When you are thinking of the difficulties imagine yourself in a realistic situation where you are likely to give up. Think up a bad day where you are hungry, annoyed, lonely, and/or tired (H.A.L.T). After you have put yourself in that mindset imagine what would tip you over the edge into failing your goal in some way. By picturing you mental state it will help you have a more realistic view of you chances for success.
+			- Then imagine that you have already achieved the goal. Think of the reasons why it helped you or made your life better. You can also imagine what it would be like to not achieve the goal. Really think if this would make any difference or not. This will help you work out how important the goal is to you. It is important to be brutally honest.
+			- Repeat this cycle two or three times and you should have a good idea if you are likely to put in the effort when it counts, and if that effort is worth it. You should need very long to do this, just make sure you do each part in turn (think first of the difficulties, then the reasons).
+			- You might realise that when the chips are down and you are hungry, angry, lonely, tired or just having a bad day you are likely to give up. If this is the case (remember to be a bit pessimistic about this) then don’t bother working on the goal. You have already decided that it is not worth the effort. If you think you cannot succeed when you are planning you will have no hope when some unexpected challenge pops up.
+			- It is also worth quickly thinking through an “if-then” reaction for your sticking points that you have identified. For example, if you are trying to run every day but you know some days you feel tired and find it difficult to start. In that case you could set the response to be "If I ever feel too tired to start running then I will put my running shoes on and leave the house whether I actually run or not." The problem is likely to be self-control depletion not exhaustion, by getting to the point of actually running you have lowered the mental effort of starting.
+			- 2.3 Prevention or Promotion
+			- The different ways you can think about a goal change where you will put effort in to it. You can either have a goal where you must not fail (prevention) or a goal where you want to conquer (promotion). The way you phrase your goal can change it from one to the other and cause you to have more motivation when you need it. For example lets say you go rock climbing for fun with some friends, if you are worried that you are holding the group back so must train harder then your focus is prevention. If you want to beat everyone else then your focus is promotion.
+			- If you have a prevention focus then you get more motivation when you are failing but less when you are doing well. Taking the example of rock climbing, if you had a really bad training session where you were actually worse than before then you would feel like you had to train even harder because you really cannot afford to fail. On the other hand you will put less effort in when succeeding, after all your goal is simply not to fail and if you are doing great then you can afford to put in less effort.
+			- If you have a promotion focus you get more motivation when you are doing well but are likely to give up when failing. For example if you have had a great training session and managed to beat someone on a new climb then you will feel elated and want to do more. Yet if you do badly then you are likely to put less effort in and hence do even worse and give up. If you were trying to win but if looks like you can't then why bother to put the effort in.
+			- You can use this to your advantage. Think of whether you want more motivation when failing or succeeding and frame your goal accordingly. For any task you can choose promotion or prevention not both. If you decide you want a promotion goal and start to fail then you should realise it, feel bad about it and make a conscious decision to put more effort in.
+			- 3 Summary
+			- The subconscious gives you a motivation value for every thing you could do. You can change the motivation by working out why your subconscious is choosing distracting things and changing those factors. By spending a few minutes examining your goals you can increase the likelihood of achieving them. The three ways discussed were:
+				- "If-then" triggers,
+				- Mental contrasting,
+				- Changing the wording of the goal to give either a prevention or promotion focus.
+			- Remember that even with this type of goal setting you are vulnerable to self-control depletion. Sometimes you have bad days and on those days it will take a lot of mental effort and a lot of thinking through why you wanted to achieve the goal to actually succeed. The check-list below is meant to take the ideas above and form them into questions to improve the chances of succeeding.
+			- I suggest having a written list of goals somewhere where you will look at them regularly. For example, a bedside table where you can look at them morning and night. It depends on your routine. There is no point in having these triggers if they are not regularly refreshed in your mind. The best way to do that is to read them and perform them regularly.
+			- 3.1 Goal Check-list
+				- I want more motivation when [failing, succeeding] therefore focus will be [prevention, promotion]?
+				- It will be done when …
+				- I am doing this because …
+				- My sticking point will be …
+				- I want this to be done because …
+				- I risk failure when …
+				- The trigger is …
+				- The very first step is ...
+			- 3.2 Distraction Check List
+				- Notice you are becoming distracted.
+				- Examine each factor of the motivation equation in turn for both the distracting task and the task you want to perform.
+				- Think how to change the goal or your environment to change the factors in your favour.
+				- If you are regularly coming up against distractions for the same goal then re-evaluate the value and expectancy. It might be worth changing or dropping the goal.
+			- PostScript
+			- The sources are from the list below (plus two years of small tweaks by myself):
+				- What Color is your parachute
+				- The Seven Habits of Highly Effective People by Stephen Covey
+				- Succeed: How We Can Reach Our Goals by Heidi Grant Halvorson
+				- The Procrastination Eqn. -- http://procrastinus.com/
+				- http://gettingresults.com/wiki/How_To_-_Set_Goals_and_Achieve_ThemI wrote this article before reading the more recent work on how mindset changes whether people perform as if self-control was a resource that could be depleted. I plan to make a new article that contains this information as well as a lot more on mindset and emotional responses but I want to test it out on the London LW community first.
+			- Although this is based in research it does diverge somewhat. It is more a measure of what has worked well for me. If you want the truth in the research read the research papers in the back of the books I have referenced.
+		- GOLD - 7 Steps That Will Radically Change Your Life in 30 Days or Less, Guaranteed. | The Fastlane Forum: Entrepreneur and Startup Discussion
+			- http://www.thefastlaneforum.com/community/threads/7-steps-that-will-radically-change-your-life-in-30-days-or-less-guaranteed.50600/
+			- #1: Accept Reality: There Are No Shortcuts. Real Change Requires a Real Process. Let’s first get the uncomfortable shit out of the way. Anything worthwhile in life will require a worthwhile effort. There are no shortcuts. There are NO silver bullets, NO magic pills, and NO secret sauces. If you’re still trolling the internet looking for this stuff, move along. You’ve got the wrong forum, the wrong article, and the wrong author. So lets start with the old guru mantra “ take action! ” We say it a lot around h…
+		- 7 methods/systems of taking breaks/constructive downtime for endless motivation/massive productivity
+			- Pomodoro method
+			- Rhythm method (look at RescueTime and circadian rhythm)
+			- Lifestyle method eg light in evening when socialising, high in morning when everyone busy
+			- ---
+			- After a while you may become more flexible with your approach, which is fine. Eg I know I have times where I work in 60-90 min sprints then need another 20m off.
+			- Depends mostly on task more than anything
+			- Follow up post - type of breaks
+			- Eg do a full time log where I note the breaks I took in between focused work and categorise later (eg bash, hygiene, socialising, surfing web). Note how long it felt like, motivation to work again, actual focus etc
+			- Big Rocks/Most Important Task/One Thing - daily sprint sort of goals
+			- Sent via gTasks app
+		- Nootropics post - The true secret of how I stay insanely productive with x hours sleep
+			- Sorry guys, I haven't been as honest with you as I should have.
+			- The secret is...nootropics.
+			- What are nootropics.
+			- There are a number of different popular ones, at this time of writing I regularly take x many.
+			- Some have health risks etc
+			- My next few posts will be all about the most effective nootropics I've found for porudrivity, sleep, exercise, fat loss and more.
+			- Stay tuned for the next post on Monday.
+			- Sent via gTasks app
+		- http://lesswrong.com/lw/3w3/how_to_beat_procrastination/
+		- Masters of Habit: The Wisdom and Writing of Maya Angelou - James Clear
+			- http://jamesclear.com/maya-angelou
+		- my lifestream | Measured Me
+			-
+				- About Measured Me
+				- home
+				- body
+				- mind
+				- psyche
+				- success
+				- social
+				- environment
+				- My Lifestream
+				- Measured You Store
+				- my lifestream
+			- Please note that this dashboard uses Scalable Vector Graphics (SVG) which is not supported by some versions of Internet Explorer. Lifestream is updated every week.
+				- STATE OF BODY: Physical Health and Energy (measured using rTracker)
+			- HealthDaily Health7 Days Moving Average27 May26 Jun26 Jul25 Aug24 Sep24 Oct12345Daily Average Health ScorePhysical EnergyDaily Energy7 Days Moving Average27 May26 Jun26 Jul25 Aug24 Sep24 Oct246810Daily Physical Energy
+				- STATE OF PSYCHE: Stress and Emotional State (measured using rTracker)
+			- StressDaily Stress7 Days Moving Average27 May26 Jun26 Jul25 Aug24 Sep24 Oct0.02.55.07.510.0Daily StressEmotional State1357913579PositivityIntensity
+				- STATE OF MIND: Mental Alertness and Executive Cognition (measured using Mind Metrics and Stroop Effect app)
+			- Mental AlertnessDaily Alertness7 Days Moving Average27 May26 Jun26 Jul25 Aug24 Sep24 Oct1020304050Daily Mental AlertnessExecutive CognitionDaily Stroop Time7 Days Moving Average27 May26 Jun26 Jul25 Aug24 Sep24 Oct06121824Daily Executive Cognition
+			- RECOVERY: Total and Restorative Sleep Efficiency (measured using Sleep Time)
+			- Total Sleep EfficiencyTotal Sleep Efficiency7 Days Moving Average4 Sep14 Sep24 Sep4 Oct14 Oct24 Oct3 Nov60%70%80%90%100%Total Sleep EfficiencyRestorative Sleep EfficiencyRestorative Sleep Effici...7 Days Moving Average4 Sep14 Sep24 Sep4 Oct14 Oct24 Oct3 Nov20%40%60%80%100%Restorative Sleep Efficiency
+			- PERFORMANCE: Daily Productivity and Creativity (measured using rTracker)
+			- Daily ProductivityDaily Productivity7 Days Moving Average1 Oct11 Oct21 Oct31 Oct0%25%50%75%100%Daily ProductivityDaily CreativityDaily Creativity7 Days Moving Average1 Oct11 Oct21 Oct31 Oct0%25%50%75%100%Daily Creativity
+				- STATE OF EXISTENCE: Happiness and Life Satisfaction (measured using rTracker)
+			- HappinessDaily Happiness7 Days Moving Average27 May26 Jun26 Jul25 Aug24 Sep24 Oct246810Daily Average HappinessLife SatisfactionDaily Life Satisfaction7 Days Moving Average27 May26 Jun26 Jul25 Aug24 Sep24 Oct246810Daily Life Satisfaction
+			- Leave a Reply
+			- Your email address will not be published. Required fields are marked *
+			- Name *
+			- Email *
+			- Website
+			- 4 + 9 =
+			- Comment
+				-
+					- © Measured Me
+			- Powered by WordPress](http://wordpress.org/) | Designed by: [FThemes.com](http://fthemes.com/) | Thanks to [YouTube to Mp3 Converter](http://www.youtube-to-mp3-converter.org/), [free photo editor](http://photo-editor-free.net/) and [WordPress 3.4 Themes
+		- OmniFocus Tips, Articles, Tricks and Tutorials
+			- ]OmniFocus
+				- [](http://www.asianefficiency.com/likes/ofpp-resource-page/)
+				- The program OmniFocus is one of the best (and most complex) task management applications for Mac (not available on Windows). Here, you’ll find links to all our articles and tutorials about how to use OmniFocus to increase your productivity and manage your time.
+				- Full list of Omnifocus articles, tutorials and screencasts
+					- Simple Task Management. This is our foundation-level primer that explains the 101 behind how you should be organizing your tasks.
+					- OmniFocus Series Part 01: Getting Started with OmniFocus. Aaron introduces our fictional case study, Tom Jenkins, and shows us how he would help Tom set up OmniFocus for maximum productivity.
+					- OmniFocus Series Part 02: Getting Started With Omnifocus view of how to structure your OmniFocus projects, tasks and contexts.
+					- OmniFocus Series Part 03: Working with OmniFocus](http://www.asianefficiency.com/task-management/omnifocus-series-part-03-working-with-omnifocus/). Aaron outlines an alternative to the standard GTD ([Getting Things Done methodology.
+					- OmniFocus Series Part 04: Working with OmniFocus.
+					- OmniFocus Series Part 05: Perspectives. Aaron introduces the idea of custom perspectives and provides some useful perspectives that you can implement right away.
+					- OmniFocus Series Part 06: Perspectives. There are lot of types of Perspectives you can use and here you can find many of them you can use right away.
+					- OmniFocus Series Part 07: Workflows and Devices. Aaron shows how you can use the iPhone, iPad and Mac together and in sync with Omnifocus.
+					- OmniFocus Series Part 08: Workflows and Devices. Thanh shows how each Apple devices has a different function within a workflow.
+					- OmniFocus Series Part 09: Advanced Tips and Tricks. Aaron shows you how to make the most of the often-missed features of OmniFocus.
+					- OmniFocus Series Part 10: Advanced Tips and Tricks. Thanh shows you even more ways to do things faster with OmniFocus.
+					- Advanced OmniFocus Functionality. A quick set of videos that outline some ninja OmniFocus tips and tricks.
+					- How to Handle Email with Omnifocus. Integrating email into your workflow is essential for every modern knowledge worker and here is a step-by-step guide on how to do it.
+					- Integrating Omnifocus with the Pomodoro Technique](http://www.asianefficiency.com/task-management/omnifocus-pomodoro-technique/). If you like using time boxing techniques like the [Pomodoro Technique, here’s a guide on how to integrate it with Omnifocus.
+					- Prioritizing tasks with the ABC method. Being able to prioritize your tasks in Omnifocus might seem impossible, but it is possible. This articles explains how you can do that with the ABC method of prioritization.
+					- Goals and Task Managers. How to implement goals and a morning ritual in OmniFocus.
+					- OmniFocus and Evernote together for task management and reference heaven.
+					- Agile Results and OmniFocus. How we recommend using OmniFocus to implement Agile Results.
+					- An In-Depth Review of OmniFocus. Thanh gives his opinion on why we think OmniFocus is the world’s best task manager.
+					- How to Automatically Transfer Evernote Notes to Omnifocus. A simple trick for getting items from Evernote into OmniFocus.
+					- How to Manage Your Dating Life with OmniFocus with OmniFocus.
+					- Tricking Out Your Repeating Tasks in OmniFocus. How to use repeating tasks in OmniFocus, and what each of the repetition options actually means.
+					- OmniFocus is too expensive!.
+					- What People are saying about OmniFocus Premium Posts. Some reviews from around the web about our guide to using OmniFocus the easy way.
+					- OmniFocus for Groceries](http://www.asianefficiency.com/task-management/omnifocus-for-groceries/). A preview from [OmniFocus Premium Posts, about how to use OmniFocus to manage your groceries and other simple lists.
+					- OmniFocus 2 Debut. Pictures, video and coverage from The Omni Group’s OmniFocus 2 Debut event in San Francisco, January 2013.
+					- Conditional Action Groups. How to implement if-else logic with your tasks in OmniFocus.
+					- OmniFocus HotSpot. How to Drag, Drop and Forget Files with OmniFocus and Hazel.
+					- How to Sync OmniFocus with iCal (Apple Calendar) and BusyCal. Title says it all.
+					- 10 Quick OmniFocus Tips. 10 quick tips for using OmniFocus like a pro.
+					- How to integrate OmniFocus when you have to use Windows at work. Some easy ways to keep OmniFocus in our workflow despite having to use Windows at work.
+					- Asian Efficiency visits The Omni Group. A sneak peak at where they create and code OmniFocus.
+					- How Do You Clean Out an OmniFocus Database That Just Simply Became a Dumping Ground? How to reset your OmniFocus setup.
+					- Tasks, Projects and Appointments – What’s the Difference and Why Do I Care? An important distinction that most people fail to make about tasks, projects and appointments.
+					- 2 Simple Steps To Using OmniFocus for Meeting Notes. How to use OmniFocus for office meetings.
+					- 10 Reasons Why OmniFocus is The Best Todo List App. Thanh explains why OmniFocus may just very well be the best todo list app – ever.
+					- OmniFocus 2 for iPhone Review and Video. Thanh reviews OmniFocus 2 for the iPhone in a behind-the-scenes video.
+					- How do I stop accumulating stuff in OmniFocus that never gets done? Why the 2 minute rule is so important for using OmniFocus.
+					- Ordering Tasks the Way You Want Them in OmniFocus. How to order tasks in a specific custom order in OmniFocus, using 3 different methods.
+					- 5 Ways to Reboot Your OmniFocus Setup and Start Over. Want to start over with OmniFocus? Here are the 5 best ways to do it without a lot of hassle.
+					- Simple Data Isolation for Reducing Distractions and Increasing Productivity, and AE bloggers Thanh and Aaron give their perspectives on what the best way is to getting started with Omnifocus. Topics include:
+					- The best way of setting up Omnifocus with structures and areas of responsibilities.
+					- How to apply Getting Things Done (GTD) or how to make your own workflow.
+					- Creating custom perspectives (next actions, today list, and more).
+					- Using Omnifocus on iPad and iPhone in sync.
+					- Cool tricks and advanced features.
+					- Managing email tasks with Mailplane and Apple Mail together with Omnifocus.
+					- How to use OmniFocus with Agile Results. You can now also get our FREE OmniFocus training course. In this 6-part email course we’ll show you exactly how to get up and running with OmniFocus. Just subscribe below:
+				- [](http://www.asianefficiency.com/likes/ofpp-resource-page/)
+				- If you want a concise and practical guide to set up OmniFocus and use it the right way, our OmniFocus Premium Posts is the perfect solution. It has tried-and-tested solutions for using OmniFocus the right and effective way. Where to get OmniFocus
+				- The software is available on OS X and iOS. As of now it is not available on Windows. In order to grab a copy of Omnifocus, you can do that here:
+					- Omnifocus for Mac
+					- Omnifocus for iPhone
+					- Omnifocus for iPad If you are planning to use this task manager, you might want to read our Omnifocus review first.
+				- Omnifocus is just one of the tools that we recommend and write about. There are a lot of other tools, apps and insights that we share in our exclusive newsletter. You’ll find a number of insights, and pieces of exclusive content that we don’t publish publicly on the site. If you like our Omnifocus content, you’ll definitely like our newsletter content even more. Sign up below and we will send you some great content right after you sign up.
+				- Custom Theme
+				- We also have made a custom Omnifocus theme that you can use on your Mac. This theme makes Omnifocus look a lot better and in our opinion uses the best color scheme possible. The video below will show you what it looks like and how you can install it yourself.
+				- Click here to download the theme.
+		- Principles - Getting Results | The Book
+			- These are the ten principles that Agile Results is based on:
+			- Principles are simply a set of guiding rules. Here are the key principles for Agile Results:
+			- 10 Principles
+				- 80/20 Action. Rather than spend 80 percent stuck in analysis and only 20 percent doing, it's about shifting to spend 80 percent of your time in action.
+				- Change Your Approach. Tune and adjust as you go. If it’s not working, let it go.
+				- Continuous Learning. As you change and as things change around you, use your learning to improve your results.
+				- Deliver Incremental Value. Find a way to flow value. Chunking up your results helps you build momentum. It also helps you build credibility with yourself and others. Rather than wait for a big bang at the end, you can flow value.
+				- Less Is More. Bite off what you can chew and reduce work that’s in flight.
+				- Factor Action from Reference. You should keep your action items separate from reference. This helps reduce the signal-to-noise ratio.
+				- Set Boundaries. Set boundaries in terms of time or energy. Consider boundaries for the following Hot Spots: mind, body, emotions, career, financial, relationships, and fun. The key is to have a minimum in some categories and a maximum in others.
+				- Fix Time, Flex Scope. Treat time as a first-class citizen. First set time boundaries. Next, bite off what you can chew within those boundaries.
+				- Rhythm of Results. Focus on daily, weekly, monthly, and yearly results. Building a rhythm builds a habit that you don't have to think about. The habit becomes a ritual that produces a feeling of accomplishment.
+				- Version Your Results. You can improve your results on each pass. Version 3 will be better than version 2 which will be better than version 1. This helps you fight perfectionism and produce incremental results.
+		- Books on Time Management, Efficency
+			- Getting Things Done by David Allen (workflow and productivity)
+			- Maximum Achievement and Time Power by Brian Tracy (time management)
+			- Eat that Frog - Brian Tracy
+			- The Autobiography of Benjamin Franklin by Benjamin Franklin (personal effectiveness)
+			- Organizing From the Inside Out by Julie Morgenstern (getting organized)
+			- Now, Discover Your Strengths by Marcus Buckingham (finding your strengths)
+			- Is Your Genius at Work? by Dick Richards (finding your genius, book review)
+			- The Power of Less by Leo Babauta (personal effectiveness through simple habits)
+		- Productivity
+			- [](null)http://www.spring.org.uk/2011/09/how-to-fight-the-four-pillars-of-procrastination.php
+			- http://www.spring.org.uk/2013/08/how-to-set-better-goals-avoid-four-common-mistakes.php
+			- http://www.spring.org.uk/2011/02/reaching-life-goals-which-strategies-work.php
+			- http://www.spring.org.uk/2011/03/the-what-the-hell-effect.php
+			- http://www.spring.org.uk/2009/01/how-to-avoid-procrastination-think.php
+				-
+			- Huss • 3 days ago and you start to push yourself harder then you thought possible.
+			- excellence is diligence
+			- "embrace the grind"
+			- Sid • 3 days agoI think men who strive for excellence become dissatisfied by common pleasures. "Call of Duty is boring me. I would rather read Steven Coll's Ghost Wars." "I don't enjoy eating Pringles all that much. I'd rather feel strong than eat Pringles." "This party is so boring. I'd rather be working on my business." In a sense, they do what is hard, tedious or difficult to understand because a life of watching MTV, playing Halo and being around a bunch of dullards gets old real fast.
+			- I twist the pleasures into satisfying work. When I go to a party, I am honing my skills by hitting on girls while having fun with my friends. When I watch entertainment, I consider it rest for my mind so I can work harder in real tasks. When I eat crappy foods or rest, I know I have to do it so I can work out harder in the future and realize the contrast between rest and hard work.
+			- Purple Penguin](http://www.rooshv.com/thoughts-on-being-an-excellent-man#) [ smellyfucker](http://www.rooshv.com/thoughts-on-being-an-excellent-man#comment-1351883962) • [3 days agoI prefer no contrast, hard work seems harder when you contrast it with too much rest and slack, without contrast you get used to hard work, you can then progressively increase the intensity of your work and get used to it everytime. Soon what's is low-intensity work for you is what others call hard work.
+		- Resources - Series/articles
+			- use these resources to rank for a kw, so use a longer title than 'habits 101' e.g. create a habit 101'/good habits
+			- Habits 101
+			- We are what we repeatedly do.
+			- Delivering an incredible speech, being the c
+			- C
+			- Being great is decided when you had the habit of planning, training and preparation
+			- Those hours of work put in
+			- Similarly, bad habits can threaten to destroy success. Smoking, excessive drinking
+			- Here is everything you need to create
+			- Habit Changing is an essential skill to living a good life. We're cognitively limited animals, whenever we repeat something even a few times it starts to be performed more on autopilot each time
+			- - these momentary behaviours are the way we live our lives and these automated behaviours determine our health, wealth and happiness so it's important to have the right ones in place
+			- Don't forget to use some kind of tracking method to keep track of how many pageviews you have, and how many clicks you get for each link. You can use a tool such as http://bit.ly or http://budurl.com in order to do this.
+			- - quotes at top of about page, habit directory (basically an organised Archive of habits to learn? or beginners guide to habits - with some Intermediate and Advanced habits in each area)
+			- How to create successful habits
+			- Creating habits which make you successful
+			- - you can expect to find information on how to create habits, what habits to create as well as inspiration to give you determination and perspective
+		- Seth's Blog: The hierarchy of success
+			- The hierarchy of success
+			- I think it looks like this:
+			- - Attitude
+			- - Approach
+			- - Goals
+			- - Strategy
+			- (Systems - my own addition)
+			- - Tactics
+			- - Execution
+			- We spend all our time on execution. Use this word instead of that one. This web host. That color. This material or that frequency of mailing.
+			- Big news: No one ever succeeded because of execution tactics learned from a Dummies book.
+			- Tactics tell you what to execute. They're important, but dwarfed by strategy. Strategy determines which tactics might work.
+			- But what's the point of a strategy if your goals aren't clear, or contradict?
+			- Which leads the first two, the two we almost never hear about.
+			- Approach determines how you look at the project (or your career). Do you read a lot of books? Ask a lot of questions? Use science and testing or go with your hunches? Are you imperious? A lifehacker? When was the last time you admitted an error and made a dramatic course correction? Most everyone has a style, and if you pick the wrong one, then all the strategy, tactics and execution in the world won't work nearly as well.
+			- As far as I'm concerned, the most important of all, the top of the hierarchy is attitude. Why are you doing this at all? What's your bias in dealing with people and problems?
+			- Some more questions:
+			- - How do you deal with failure?
+			- - When will you quit?
+			- - How do you treat competitors?
+			- - What personality are you looking for in the people you hire?
+			- - What's it like to work for you? Why? Is that a deliberate choice?
+			- - What sort of decisions do you make when no one is looking?
+			- Sure, you can start at the bottom by focusing on execution and credentials. Reading a typical blog (or going to a typical school for 16 years), it seems like that's what you're supposed to do. What a waste.
+			- Isn't it odd that these six questions are so important and yet we almost never talk or write about them?
+			- If the top of the hierarchy is messed up, no amount of brilliant tactics or execution is going to help you at all.
+			- Approach e.g. action bias
+			- always testing - I don't know if this will work, so we might as well test it out
+		- Setting unrealistic goals for creativity
+			- Set unrealistic goals eg becoming a football player. Gets your mind creative - think about habits (medium) you'd use to get there. Eg 10k hours practice, which requires rewards, barriers, motivation all around, a coach for money motivation and social pressure etc
+		- The Action Method | The Bucket List Society
+			-
+			- During the months of February, March, and April 2012, I am trying out a new productivity system each month. After each months is over, I will write about how my experience with it went. In February 2012, I used Scott Belsky's "Action Method" as described in his book ](null)Making Ideas Happen. This is my review.
+			- Before Occupy Wherever picked up the moniker, the top search results for “99%” was a the99percent.com, a well-designed website that advertised itself as “Insights on making ideas happen”. The title banner still betrays the etymology of the name– it’s from Edison’s famous quip “Genius is 1% inspiration and 99% perspiration”.
+			- The 99% is a website that is not about ideas; it’s about making ideas happen. The perspiration part, not the inspiration. ”Too many ideas”, the site boldly proclaims. ”Not enough action”. So they made the Action Method.
+			- The Action Method is a productivity system that I tried out for a month. First I will explain how you use it, then I will tell you whether or not I liked it. Let’s get started.
+			- The Action Method Explained
+			- There are three things you keep track of for each project (a project can be any large-scale task at work or at home):
+				- Action Steps. These are specific concrete tasks. They are the bread and butter of gettin’ stuff done. Action Steps start with a verb, and they don’t require more planning before you can start one.
+				- References. This is project-related material you may want to refer to later– links, videos, articles, books, e-mails, etc.
+				- Backburner Items. These are not actionable now, but they could be future projects or sub-projects. They’re the brilliant ideas you have now but want to remember later.Let’s talk about how this works for a very specific example: writing a blog.
+			- First, potential Action Steps.
+				- Brainstorm post topics
+				- Write a post or two
+				- Pitch a guest post to another blogger
+				- Leave some comments on other related bogsI want you to notice two things.
+				- Each Action Step starts with a verb
+				- Each Action Step requires no further planning before being able to start itSo no “Make sure blog readership continues to grow”. That’s bad. If that’s on your list and you sit down to do it, you’re going to start by doing thinking and research and mulling over. And all of those things take time– time which you didn’t schedule when you made your list.
+			- Stick with simple action verbs.
+			- Typically, you keep Action Steps anywhere you can write a list– like a notebook or a smart phone. You can buy Action Steps notebooks on their site; I used a 99 cent pad to great effect as well.
+			- OK, now what would a Reference for a blog be?
+				- Any article I see online that I might want to blog about
+				- A video that will improve my understanding of the science of goal-achievement
+				- A book on how to accomplish long and difficult projectsIn Making Ideas Happen, Scott says if your project is a manilla folder, the Action Steps are what is taped the front, and the References are what is inside the folder. They are not the first thing I need to see, but they are useful content for me to refer to.
+			- For me, I kept these online. Whenever I find an article online that would be particularly inspirational for writing, I tag it “to_blog” on delicious and move on. Any website I can’t focus on now but may find useful later, I tag “for_later” and keep going. This means I don’t get bogged down in reading these articles and watching these videos when the most important thing is working.
+			- (Oh, and regarding books– whenever I finish a book, I copy the most memorable quotes and ideas into a online “commonplace book” of sorts. That way I can easily find much of the best information from those too)
+			- Now that leaves us with Backburner Items. Here are some examples of what might be Backburner Items for my blog:
+				- Giving a speech at a school, business, or conference
+				- Offering an ebook about achieving goals with strategies not posted on the blog
+				- Writing a magazine article about goal-achievementThese are not directly related to the core mission of my blog, which is to write useful online articles on goal-achieving and expose the world to them. All of these things are sort of projects in themselves, or tangents that shoot off in various directions from the work I’ve already done. If I were to take on any of these, it would require a whole new set of Action Steps.
+			- In general, I kept these at the bottom of the page on which I wrote my Action Steps. Now, when I flip back through my notebook, everything written in the last 5 lines of the page is a separate project or sub-project of a current one that I could devote future time to. Since I have them all recorded, I don’t have to worry about them until I have time.
+			- The Action Method Reviewed
+			- I’ll cut to the chase: for being little more than three lists of stuff, the AM is surprisingly refreshing.
+			- Here’s why it’s so useful.
+			- Let’s say I had only one list keeping track of my blog items. I’d have stuff like “Write a blog post”, “Watch this YouTube video which might be useful” and “Maybe give a talk at a school somewhere down the road” all in one list.
+			- Wow. That list sucks.
+			- It’s completely untenable. What do you do first? Well, maybe the YouTube video is useful, but maybe not– let’s put that off. You write a post, great, but then it’s time for bed. The next day, do you still write to watch the video? Or do you forget about it?
+			- Of course, if you were smart, you’d split your list into two: “Definitely do now” and “Maybe do later”. Your “Definitely do now” list is your Action Items; your “Maybe do later” list is your References and Backburner Items. The things applicable to this project later on are the References. The things that are whole new projects in themselves are your Backburner Items. Split that list into two and bam!, you’ve just invented the Action Method.
+			- No piles of folders. No rearranging my desk. No colored sticky notes.
+			- Just three lists, and one of them is probably online anyways.
+			- That’s how simple it is. Frankly, during the next two months of trying out other productivity systems, I’m not sure how I will be able to keep from keeping these same lists. Hopefully they will allow it. Though in the spirit of the experiment, I should at least try.
+			- So there it is. Two steps above a to-do list, but nothing fancy. My month with the Action Method was a revelation in terms of how naturally I could track my thoughts, ideas, and tasks in this manner. I saw my to-do lists with a clarity and peace of mind that I’ve not had before.
+			- Come May 1, we’ll see if I’m on it again. Hard to say, but at this point, I wouldn’t be surprised.
+		- Weekly/Daily To-Do Lists
+			- Weekly/Daily To-Do Lists ](null)[ The principle behind the WD To-Do List method is simple:At the end of the week, write a list containing everything you want to get accomplished.At the end of the day, write a list containing what parts of that weekly list you want to be finished tomorrow.](null)[After you finish your daily list, you stop. Don’t work on more projects or tasks. You have the rest of the day to relax. And after you finish the weekly list, you’re done for the week. This means if you finish by Friday afternoon, you don’t start work again [until Monday morning.
+			- My system for a few years prior to implementing this method was to use a daily to-do list. Unfortunately, I found that this method made me lose sight of bigger tasks that weren’t urgent. When you already have ten items on your to-do list, adding an eleventh for the day doesn’t seem appealing.
+			- But when you’re writing the weekly list, you’re in a different frame of mind. With six days to finish everything (assuming you take a day off), it is easier to put in those important, but non-urgent tasks.
+			- Daily to-do (we never can estimate time perfectly as there are unforeseen tasks, time-sensitive events e.g. urgent email, emergency meeting or conference callWith a daily to-do list, you spend the night before or the day of listing the things that you want to accomplish. We try to judge how long something will take to complete, so as not to overfill our day and leave us with unfinished jobs on the list.
+			- >instead break project down into sub-tasks.
+			- Focus on the Daily List
+			- The point of the weekly list is to serve as the starting point for writing daily lists. After you’ve broken off the chunk you want to handle tomorrow, the other tasks in the week shouldn’t be on your mind.
+			- Don’t Expand the Lists
+			- If you finish your daily or weekly list earlier than you expected, you might be tempted to expand.
+			- As soon as you create the possibility for expansion, your “everything” goes from being the tasks to finish tomorrow, back to your infinite to-do list. Stress and procrastination soon follow as you're disappointed by the fact 'you could be doing more', where in actuality you need downtime to keep up such a high level of efficiency.
+			- Allocate time each day to tasks and simply tick off tasks (rather than set amount of tasks)
+			- This way better than daily to-do list because:
+			- - stress of mini-deadlines (set some for time-sensitive tasks like blog posts but minimal) and not feeling productive or motivated because goals not completed each day
+			- > stops procrastination as I have a goal to aim for of what to finish
+			- > problem is Tasks expand to the size of the time allotted ie Tim ferriss (timeboxing)
+			- I'm looking for Results vs not effort based work eg entrepreneur vs employee.
+			- - we can never accurately guess how much we'll get done
+			- Instead schedule Constructive Disengagement (Downtime) every day (after dinner onwards) which is guilt-free leisure time
+			- - reduces hours allowed a day increases efficiency (eg steve pavlina, or beyondthestars 2hrs avg) - then increase hours slowly again whilst maintaining efficiency
+		- 2k to 10k: How to Write Better, Write Faster, and Write More of What You Love
+		    https://www.amazon.co.uk/2k-10k-Writing-Faster-Better-ebook/dp/B009NKXAWS
+		- Zapier or IFTTT ideas
+			- http://zapier-downloads.s3.amazonaws.com/ebook-101-ways-use-zapier.pdf
+- Freedom
+    collapsed:: true
+	- Belt weapon post
+	    collapsed:: true
+		- [quote='Valentine' pid='1362014' dateline='1469821068']The problem with these suggestions, particularly that of using long steel bike chains with heavy duty padlocks, is that it has both [b]poor carriability[/b] and [b]poor deployability[/b].
+		- [b]Carriability[/b]Is this a heavy bike chain really going to become an Every Day Carry item for you? If you're headed out for a spot of night or day game, you're unlikely to always be carrying it.
+		- So 1) you won't develop the habit to instinctively use your weapon when the situation arises and 2) you are not likely to have a weapon in the situations when you need it.
+		- [b]Deployability[/b]If you're walking down the street at 2am and a thug comes up to you, are you going to say hold on a minute sir whilst I unzip my bag and get out my trusty bike chain to break your face open? Worse yet if you chose to keep a football sock and D batteries you've got to stuff them all in there whilst punches rain down on you.
+		- No, you need something that you can very easily and quickly get into your hands without ever having to take your eyes off of the threat.
+		- Of course these both have tradeoffs. The more carriable a weapon is, the less lethal it is likely to be. The more deployable it is, the more easily law enforcement and criminals can detect it. Different strokes for different folks.
+		- In my mind however there is a far more carriable and deployable alternative to the bike chain with similar blunt force and that is a simple belt. Ideally a [b]leather belt with a heavy metal belt buckle.[/b] Pretty quick to whip off your trousers, you have to wear one everyday and no bouncer or law enforcement is going to pay any mind to your belt.
+		- As for effectiveness, I sure wouldn't want to be anywhere near a guy who is swinging his belt like this:[video=youtube]https://www.youtube.com/watch?v=QfU8BxiZ9Os[/video][/quote]
+	- Free book downloads
+	    collapsed:: true
+		- http://arouseyourpassion.blogspot.com/
+		- This is a newer thing, but there are bloggers who are putting out books in the Epub and PDF formats that you can download. Again, most of this is rare old stuff, and the blog I listed above is a great example of that.
+		- But...I found that if you do online searches with a book title and "Epub" you can often find a digital copy of the title. Cliched as it may sound, the Pirate Bay is a good source for this. On
+	- UK illegal weapons
+	    collapsed:: true
+		- https://www.gov.uk/buying-carrying-knives
+	- Get a gun
+	    collapsed:: true
+		- [quote='Ski pro' pid='1649029' dateline='1505576172']
+		- [quote='Leonard D Neubache' pid='1648995' dateline='1505569527']
+		- [quote='blck' pid='1648977' dateline='1505566295']
+		- ...if you can't protect or secure yourself how will you protect & secure your family ?
+		- ...
+		- [/quote]
+		- Beyond that, I guarantee that if every British patriot joined a serious martial arts school and also put in the paperwork to get a gun license then the powers that be would shit themselves and either start making forced errors or start back-peddling on their bullshit.
+		- I don't know how any Briton expects to be taken seriously when they cant even be fucked jumping through the hoops needed to get a gun. I know! It's annoying. It's frustrating. But it's not fucking [i]impossible.[/i]
+		- [b]GET.
+		- A.
+		- GUN.[/b]
+		- God forbid shit gets really bad, a great deal of skill in gun handling is universal. If a guy has taken the time and effort to become extremely proficient with a bolt action rifle then a resistance group can hand him an AK47 knowing that a great deal of the skills required to use it will already be second nature to him.
+		- Guns are virtually nowhere to be found until shit gets ugly, [b]and then they're more common than a can of beans.[/b]
+		- If you haven't set in motion a plan to learn how to shoot a gun proficiently at this stage of world politics then I don't know what else to say other than [b]'you don't deserve to survive'.[/b]
+		- [/quote]
+		- Thank you for this. I just added 'join local clay shooting club' and 'get boxing again' to my to do list.
+		- [/quote]
+		- Buy a gun and learn how to use it, then [url=https://exigentcircumstance.wordpress.com/2012/09/06/combative-anatomy-using-a-knife-for-self-defense/]learn how to use a knife[/url] to incapacitate, how to throw [url=https://i.ytimg.com/vi/pKLBMN-HOzA/sddefault.jpg]punches[/url] ([url=http://s2.quickmeme.com/img/ee/eefd982a4cc92e288329ca39373d035ea43973077c98b26ce4e156fc70e4b10d.jpg]stop that faggot looking moisturized hand if you're not hand model[/url]) & kicks and [url=https://i.pinimg.com/736x/1b/07/f0/1b07f095aff01c00501bad40a92e7c59--how-to-defend-yourself-krav-maga.jpg]where to hit that will work on anyone[/url] and only after that you'll be able to diffuse messy situations
+		- A lot of people keep thinking that they're prepared for a fight and get KO'd with one punch, so talking about getting ready for self survival situation without proper education is laughing stock and if you can't protect or secure yourself how will you protect & secure your family ?
+	- Self-defence pose in public e.g. when approached
+	    collapsed:: true
+		- Hand pose either:
+			- Both hands up, palms facing them in the universal "I surrender" pose EXCEPT that they're at chin height
+			- OR
+			- Left arm crossed so that fist is behind right elbow, right fist on chin
+				- What I do is cross my arms, pull my left hand up to rest on my chin, and lower my head down slightly (to protect my chin). It will appear like I'm thinking. The hand on my chin can deflect against a sudden head butt or punch. My right hand is balled into a fist, so if I need to deflect, I can follow with a right.
+				- Kind of like this, but with my chin lower, and my eyes tracking their hands:
+		- Street Defense Tip (Keep Your Hands Up!)
+		- https://www.youtube.com/watch?v=IytpzjJfATU&feature=youtu.be
+	- Dealing with UK police
+	    collapsed:: true
+		- [30/09, 14:49] T_Gianni: Very important video regarding Police Interviews in *English & Wales*
+		- summary:
+		- o 15 minutes long/
+		- https://www.youtube.com/watch?v=BYxSqN4AHHg
+		- [30/09, 14:51] T_Gianni: o Duty Solicitor or legal aid solicitor
+		- o No Comment *and pre-prepared statement* at start of interview
+		- o If you're innocent, give your version of events *without mentioning what other people were doing*
+		- o If you're guilty: give the prepared written statement and "No Comment" to every question.
+		- [30/09, 14:52] T_Gianni: o Do not shake your head or do any other body language. Poker face and "No Comment" only.
+		- o Assume your home is bugged if Police raid your home while you're out.
+		- [30/09, 14:52] T_Gianni: o *Avoid the Prisoner's Dilemna* by using the *same* solicitor. It's against the rules but that rule is not enforced.
+		- [30/09, 14:54] T_Gianni: @⁨T_Franco⁩ watched the video for me (as he is a lawyer and was raided, arrested and interviewed). He approves of the information
+	- New OS (in 2020 when windows 7 security updates stop)
+	    collapsed:: true
+		- Elementary OS
+		- Ubuntu
+		- React OS
+	- Alpraking's OPSEC guide to being a successful kingpin.
+	    collapsed:: true
+		- https://en.reddit.com/r/DarkNetMarkets/comments/4cny7p/alprakings_opsec_guide_to_being_a_successful/
+		- So you want to ship hundred of thousand of pills a week for years and stay safe?
+		- Here's a couple of tips to keep you safe. I've been here since SR 1.0 under various aliases and have, over the course of my-3 years online career , shipped over 10 million pills. I used to press pills myself. Now last time i've seen a press was a year ago. I'm basically just smoking bowls and trolling on reddit now.
+		- 1. Outsource
+		- Outsourcing simply refers to the noble art of hiring other people, "pawns of the checker", to do the dirty work. You want to hire clean people that dont arise suspicions. They will be doing the dirty work so you want to hire someone who isn't already involved in drug trade or has priors. Don't get me wrong, you'll do everything in your power to protect them. Remember, if your guys catch heat, it can propagate to deeper layers fairly quickly and ultimately, to you.
+		- 2. Separate Administration & Execution
+		- Have a layer of people who are doing the "boss" work and another one who is doing the "executive" work. Boss work is mainly paperwork and verifications to ensure everyone is doing his job properly and numbers balance and quality control is in check. Administrators dont get their hand dirty as that they will not handle the drugs themselves, but they will make sure packs are being shipped, tracking codes are being handled, productions are being made correctly and such. Administration is a promotion for executives who have shown a great degree of skill and loyalty. You can't put just anyone to overlook someone else's work. You have to get someone who has done it before and will be able to train new personnel or solve irregular issues. I normally promote my executors to administrators once they have shown that they can handle any issue from their business. I have them hire one of their friend and pay both from my own pocket. Employees kind of like hearing "hey, how about you keep your salary, train your friend to do your job, and you both will earn the same thing, paid from the big boss' pocket." More than money, people want power. Give power to people who want power and keep the money for yourself.
+		- 3. Treat your employees well but do NOT overpay them.
+		- Treat your employees well by giving them insurances, paid vacations & trips, surprises bonuses, gifts and such. Do NOT give them a large payout even if they're pressing or shipping hundreds of thousands of pills. If someone becomes too comfortable with his pay, his quality of work will lower. you have to keep your employees dependant on you. Overpaying employees = Bad work. Double loss. For example in my own company all employees have a health insurance. they are allowed up to 1500/month in private medical, psychological bills paid by my expense) If not used, it will be given as a bonus vacation trip every couple months. Any lawyer time they might need for questions is also paid by the company.
+		- 4. Don't hire people under 30 years old
+		- Both in the administrative and executive field. People under 30 years old are reckless, like to hang out in bars and brag to friends. People over 30 years old (get 40,50+ if you can) tend to be more straight with their shit. Much less likely to steal or botch the work and normally know the value of money. If you can get someone 40 yo+ that doesn't have a record, its most likely someone who already had a full-time job and knows how to work decently and not do dirty shit. Im 20 btw.
+		- 5. Inform your people
+		- Tell them the truth. what they're risking, what to expect, have them meet your own loyal people who already been arrested for you and have them testify about the backup they had for not snitching. People will be much less likely to switch on you if you've told them exactly the truth. Don't go around with "There's no risk!" bullshit. Not only will your guys not believe you but they'll totally go nuts when they get arrested if you do.
+		- 6. Back your own people
+		- Make sure all of your people are properly lawyered up. have them know by heart the name and phone number of their designated lawyer (under your control) and have them meet regularly, all expenses paid by you, in order to strengthen this trust between the lawyer and the employee.
+		- 7. Don't hire people yourself
+		- People close to you, that you love and value, should not be getting their hands dirty on the long run. have them quit, or promote them quickly, if you have them on the field. As soon as they've mastered their work, have them hire their own friend to do your work, and pay both.
+		- 8. Rotate your employees between jobs
+		- By rotating your employees between various work in your company you not only prevent heat from accumulating on one particular place or person, confusing investigations, but you're also contributing to their general training. this has various positive consequences; You are able to better target the quality and flaws of your various employees by having them try numerous different things. Also, if a branch of the operation is arrested, you can quickly reach out to your other personnel who has done similar work in the past to fill the voids.
+		- 9. Have separate different secret workspots, and different labs.
+		- In order to confuse investigations, its mandatory to have different personnel, workspots, and labs. If i feel that heat is growing on one lab, I can quickly clean it up, have the worker stop and lay low for a while, and i simply transfer the workload over another less-heated up lab and production-guy. Its very difficult to see all the connections amongst various people especially when dealing with over 30 employees, but its needed. These connections are what will carry heat. I tend to think of it a bit like a computer would:
+		- 10. Get it down to numbers. (TLDRs; skip this part)
+		- its hard to explain this part with words so I'll give an example with numbers.
+		- You suspect your packs are being profiled. If there is profiling going on, your courier is going to be considered the starting point of the heat. We will give it a 80% heat rating for this very event. Considering the courier access 3 times a week a stash, you will give the stash a 50% heat rating, just from this very link. the stash himself is linked to the lab, but only access it onces every 2 weeks. you will give your lab a 15% heat rating from this very event. Your treshold of risk is 70% (meaning you will shut down someone/somewhere that has over 70% heat rating), at this point you will shut down the courier and have him lay low, but the heat is not yet sufficient to close the stash and the lab, at 50% and 15% respectively
+		- Now a few days later you see a cop car parked on the street of your lab. This very event is worth 50% heat on your lab, and will also drip a 20% heat on your stash and 5% on your courier due to the links.
+		- Now shit got hot. Everything is above 70%. closing the entire branch.
+		- You'll admit it doesn't take math to notice that if your packs are being profiled AND a cop car is seen near your lab, you must be pretty hot as a whole and you SHOULD shut down. All I did was add numbers to follow the flow of heat and decide wisely what is hot and what is not. My objective is to keep all places around 30-40% heat which i consider a stable zone. If 60-70% is reached im going to start investigating very closely, but I will not close it down. If it busts 80% then its being closed down and laid low for a few weeks. Its not accurate because you have to estimate everything with little to no information, but it definitely helps seeing things and calculate your moves. If an event bust 150%, i will completely dismantle the place and move it to another spot.
+		- 11. Trust buffers.
+		- Always have a layer of administration between you and your executives. You don't hire any executives, have your administrators do it. By doing so, NO ONE at risk of being busted knows who you are, let alone that you exist. If employees get caught and want to snitch, all they'll snitch is your administrator, who you should have sufficient trust in to believe he wont snitch you also.
+		- 12. Family links between employees are powerful.
+		- If you testify in court, you don't get to choose who you snitch and who you don't (In Canada at least). You snitch everything or nothing. So it helps if employees get caught with members of their families, because they are much less likely to snitch as it would involve having them snitch on their own family. You can also use the trust between members of a single family to your advantage. You can normally trust your employee's brother or sister pretty much the same as you can trust your employee. assuming both work for you.
+		- 13. Control the money
+		- Do not reveal how much you're making or how much people are making relative to one another. Its none of their business. I normally fund in cash one of my administrators with a lot of cash and he pays everyone by sending them cash in the mail, or bitcoins. He makes comptability records and bring them to me so i can see where the money went, before I handle more cash/btc to him.
+		- 14. Encrypt everything
+		- Have your employees familiar with tails & tor+pgp communications. Anyone minially professional will take some notes. Make sure all your employees from the top to the bottom is familiar with TAILS and has a secure passphrase. Have them place all their documentation and notes there. Any paper hanging around must be burned.
+		- 15. Avoid keeping illegal shit around the "dangerous hours".
+		- I refer to "Dangerous hours" as week-days 5AM to 8AM. My experience has shown me 90% of large drug raids occur during this time period.
+		- 16. Not everyone has to know everyone.
+		- Its everyone's dream to think its like the movies where we gangsta organise "cartel parties" where everyone is invited. It doesn't work that way. If someone doesn't have to meet someone, don't make them meet. Don't take the risk of adding up more "heat rating" by creating un-necessary links between individuals who are not directly connected.
+		- 17. Keep "jokers"
+		- Jokers are last-resort cards that allow you to solve dangerous issues or take-over control of your business in the event of catastrophic problems. Pictures of your employees naked, hacked passwords to their facebooks, knowing their addresses, etc. Anything you can use against them if shit goes wrong helps.
+		- 18. Be diplomat when kicking people out
+		- Always be very diplomat when kicking people out. Give them a nice fat good-bye paycheck and specify you're giving them this paycheck to "forget everything". Keep good terms and explain your decisions with opsec and that you're doing this for their own protection.
+		- 19. If your company screw up, pickup the pieces, dont flee.
+		- Believe me, its worth more in the long run if you admit to being busted/admit to problems, refund everyone, close shop for a few months, and come back, than it is to exit scam and start under a new name. It builds confidence in the long run. Its easy to be honest when your business goes well. But its in the bad moments that you show your true face. If you've been fucked in the past, been honest with everyone then came back, it gives an assurance that the same will happen if there's a fuckup in the future. How many vendors look so perfect until they start having issues? and when they do, most will run with customers money. If you are honest with customers despite problems, it will reward you later. It also helps looking at yourself in the mirror in the morning knowing you haven't fucked over a ton of people with less wealth than you.
+		- 20. Always change
+		- Always change lab locations, stealth, rotate employees, open and closes front or laundering shops. Have several at the same time so you can switch work between places. Its like playing whack a mole with LE. If you stay too long in one single place, you'll get caught. I do not believe in "megalabs" with super OPSEC that are stable for years. A decentralised network of several small labs & dispatch places, constantly changing places, is the best. Its even better when you can afford to change places AND employee at the same time. Literally drops heat rating to 0%
+		- 21. Make sure your team's opsec is always on point.
+		- Meet regularly with your administrators and have them tell you all the problems. Never get angry and don't judge them. They'll be much more open if they do not fear your reaction. Everyone can make mistakes. Your administrators should have the same attitude toward their employees. A transparent company allows you to see more problems and react accordingly.
+		- 22. Don't flash
+		- Don't. Just don't. Fuck nice cars & nice houses as long as you are on the field or know directly people who work on the field. That will get you heated up more than anything else. Pile your money, hide it and work on laundering it with as much care and opsec as you do with your drugs. Fuel it in a legitimate business, with customers, then start laundering it slowly. Remember, as long as your money isn't properly laundered, its virtual. Anything you buy with it is a cursed gift that will increase your own heat and can also potentially be seized by LE. You can start flashing when all your work has been securely outsourced or when you retire.
+		- 23. Dont get high on your own supply
+		- You should actually never even have your own supply in your house or somewhere that could be linked to you. It also impairs your judgement and can worsen paranoia, narcissism and other personality problems you tend to develop being in the drug business. Especially Xanax. Dont take Xanax and take important decisions; you will regret it.
+		- 24. Prepare for an arrest
+		- Prepare yourself, psychologically and with your lawyer, your family, your administrators, in the event of a bust. Make sure you have cash readily accessible by your trusted people and have a plan. You won't be able to interact much with the outside world starting the very moment your door is rammed. And you won't be told when it would happen. Run "simulations" of a scenario where you and several of your administrators are arrested. Make sure someone can take your place or at least handle your personnal stuff, and get yourself a lawyer early on the payroll. Everytime you go to sleep in your bed, it might be the last night you get to pass there for a couple years. And everytime you peacefully wake up in the morning, congrats yourself that you have survived yet another day.
+		- The end
+		- Well not really, I wrote that nonstop just spewing out ideas. I think I could continue until 100. but my coke binge is over and i'm growing tired of writing. Good luck with your high-volume ambition, plebs. >:)
+		- TL;DR: https://anony.ws/image/JYCI
+		- P.S. Whoever is pressing fentanyl in xanax bars; Stop. Please. You're attracting LE attention on my game and making me lose sales due to everyone freaking the fuck out in the streets. And you're killing people. It's wrong.
+	- Make money in the 1st and fuck in the 3rd world
+	- Flag theory
+	    collapsed:: true
+		- not banking in your home country is a big one when it comes to being able to talk your way out of paperwork, and not getting arrested at home is often at least a few extra points in your favor. same with business. it’s getting less advantageous as governments slowly catch up with networked databases, but at the same time better with new ideas like bitcoin and proliferation of info on where to do things like be a tax resident and other previously hard to find info.
+	- 3 months of steroids and basic training will make you a viking[20170112-222334]+
+	    collapsed:: true
+		- Besides - don't confuse the current indoctrinated men with real soldier psyche. If the need truly arose and humanity for example faced an alien armada and truly needed soldiers (unlikely given the technological gap), then most of the current sniveling snowflakes in the West would become mass-murderers within 3 months. 8 weeks basic training and then 4 weeks in the killing fields makes everyone a man - if need be everyone gets steroids to quicken the process. Keep in mind that humans did not devolve. The Swedish men are genetically still Vikings, they are just being taught to be pansies, but beneath the educational veneer is the Viking. 3 months is all it takes. Evolution takes hundreds of thousands of years, and even specialized selection takes centuries.
+	- PHOTOS: EUROPE TERROR CACHE SEIZED 10,000-weapon arsenal including howitzers, machine guns, grenades
+	    collapsed:: true
+		- https://gellerreport.com/2017/03/huge-weapons-cache-bound-europe-terrorists.html/
+	- Soft pressure points
+	    collapsed:: true
+		- https://i.imgur.com/401WowS.png
+		- Approach calmly in a friendly manner. "I need to get through, friend". Place your left hand on their left shoulder, bring your right hand slowly to
+		- their left bicep. Grasp lightly at first and then drive your thumb strongly into the gap between their bicep and their humerus bone while stepping
+		- through the human chain. The pain will make them seek to draw their arm back and uncouple with the person next to them. Since no visible
+		- attack has been made there will be a moment of confusion. Walk ten feet forward before turning around and giving them both middle fingers while
+		- laughing like a madman.
+		- Soft force is great. It doesn't show up on camera but their lunatic responses to it will.
+- Nootropic self-experiments
+    collapsed:: true
+	- http://coornail.net/blog/2013/11/17/nootropic-selfexperiments/#goals
+- Travel
+    collapsed:: true
+	- Dans' south America trip
+	    collapsed:: true
+		- Defo ! I heard the more South we go the more banging latinas will be. Mexico was pretty bad lol like ration of 1:30 one good looking chick to shit loads of butters ones..
+	- Rich people are typically moving away from Europe, South America and China; relocating to USA/Canada and Australia/New Zealand
+	    collapsed:: true
+		- [source] https://alfinnextlevel.wordpress.com/2017/03/01/wealthy-people-go-where-they-feel-safe/
+	- Self reflections after 1.5 year leaving the west
+	    collapsed:: true
+		- https://www.rooshvforum.com/thread-66053.html
+	- China
+	    collapsed:: true
+		- So, you know how chinese people killed all the girls? That's bitten them in the ass in a major way. A lot of people are trying to have daughters instead of sons now cuz they can get CRAZY BIG dowries when they marry their daughters off. This is creating an SMV imbalance in china that's crazy. A lot of families require that the dude their daughter marries has a car, house and business. Most dudes don't have these things. Some dudes go into debt acquiring these things and are going USA-Debt-bonanza to keep up with the Changs and get married and have kids.
+			- but many many dudes are legit priced out of the dating market
+			- the other thing is that the pollution in northern china is out of control and has sterlizied a big portion of men
+		- Average IQ in china is not that high, because they ignore all the farmers and only measure the urban population in elite schools etc
+	- Nomadic travel
+	    collapsed:: true
+		- [ I think mark manson wrote this: the lifestyle has I think mark manson wrote this: the lifestyle has greater highs but greater lows also. Crazy parties and adventures but then also times when you're ill and all alone. Less of the middle ground when you set up long term somewhere. And because of this you lose interest in the "fun" activities back home because you've done more fun stuff but then you also appreciate the quiet times just being able to chill with friends over a drink. The above certainly has been the case for me. After a year away I was realised London has a comparatively worse lifestyle, but there's no replacement for the friends and family I have back home. I didn't really miss it when I was gone but now I'm back I really appreciate it
+	- motivation emotions
+	    collapsed:: true
+		- Aaron: Sells well but isn't effective, overall negative emotions are more motivational IMO. That's why the media constantly publishes FUD, why motivational seminar attendees don't achieve much, why survivalists get thoroughly prepped etc19/08, 18:35] Aaron: On a practical level, visualising your worst case scenario motivates me more than visualising my dreams. Too much of the latter tricks your brain into thinking you've already achieved it
+	- [Make money in the 1st and fukk in the 3rd? Genius.
+	- [Make a book safe out of an old book in house
+	- [ Long flights
+	    collapsed:: true
+		- In the spirit of the forum when you are selecting seats by sitting near the back of the plane will result in much higher chance of sitting next to a hot woman. It's a catch 22 situation as sitting as close to the front is more desirable but this attracts the frequent flyers who by far are predominantly male and middle aged - ( generally find them alcoholics and over weight) Invest is some good noise cancelling headphones - looking to spend about £200 or $300 for a decent pair. Makes watching movies or listening to music so much better and cuts out a lot of the plane noise. A Taiwanese girl gave me some misting air purifiers that she swears by. Just blast it in front of your face when feeling dry and it kills germs and moistens your sinuses.If flying economy then search for the 'J' travel pillow . I've tried every sort of travel pillow out there and by far this the best of the bunch- just look at the Amazon reviews. This cushion greatly improved how much sleep I got on the plane... - LARGE On long flights my nose gets dry. I have read that when the membrane gets dry it provides less protection against germs. So I always try to wet my nose every now and then. It might sound gross but you can be discreet.Quote:2. Travel with nose protection. According to the National Institutes of Health (NIH), airborne germs are one of the top-two sources of cold virus infection. You can't make sure the limited amount of air on a plane is germ-free, but you can try to prevent the germs from getting to you. What helps: Use a saline nasal solution or nasal mist to keep your nasal passages moist (just follow the directions on the bottle), which effectively boosts your body's own germ-flushing action. Or try applying a small amount of Neosporin or petroleum jelly just inside the nostrils (use a Q-tip if your hands aren't freshly washed). Experts say the antibacterial action of Neosporin is unlikely to present much of a barrier when used in this way, but it never hurts to moisturize the inside of the nose. The steam from hot drinks, like tea, coffee, and hot chocolate, is also an effective way to keep the mucous membranes moist. If you'd rather avoid caffeine so you can sleep on the plane, a great solution is to carry your own decaf or herbal tea bags and just ask for hot water
+	- UK flight hacking
+	    collapsed:: true
+		- https://m.reddit.com/r/IAmA/comments/5dfesh/i_am_a_uk_cheap_flight_hacker_here_to_help_you/?st=IVMNTWVU&sh=ed5f2a7c&compact=true
+	- Picking a country criteria
+	    collapsed:: true
+		- travel - picking a country criteria
+		- Certainly things will improve. But nothing changes as for the main reasons I left:
+		- 1) Healthcare. There will never be universal healthcare, because there is no way to pay for it. As previously mentioned, there are millions of parasites in the US who don't contribute anything to society. Not only that, they drink, do drugs, and eat fast food nonstop, so they are in desperate need of constant medical care by about 50-60. Obamacare is a disaster where injured people are forced to go to overcrowded 3rd world hispitals. If you have a job, your $500-$1000 insurance doesn't cover shit. You pay every time you see the doctor, and for every medication and procedure.
+		- I refuse to live in a country where I'm working full time and die when I get sick because I can't get proper care.
+		- 2) Culture and society. Everyone hates each other. There is no such thing as "Americans" anymore, except in the minds of 40 year old Italian cops. People vote along tribal lines and could care less about what is best for the country. Blacks hate whites, hispanics hate blacks, etc, and everyone lives separately. In my former neighborhood there are stabbings and shootings literally every week, if not every day. Just this week a woman was brutally raped and murdered in a "park" built for several million dollars outside my neighborhood. There is no common culture, and no trust. Why should anyone follow the law or contribute, if everyone else is stealing and doesn't give a shit? See: Crooked Hillary.
+		- 3) Rule of law is gone. The constitution is meaningless. Historians will remember 9/11 as the tipping point where Rome (woops, USA) fell. The government is spying on us through our computers, cellphones, and televisions, and yet we aren't even allowed to talk about crime or terrorism without getting censored as bigoted right wingers. We have hard evidence Bush started an illegal war that cost thousands of lives, yet he is free. Obama sends robots to bomb funerals in countries no one has heard of. Hillary wants to just get rid of our borders and dissolve the idea of having a nation altogether. Nearly half the population agrees with her!
+		- 4) Most Americans are stupid as fuck, with no knowledge of history, government, politics, science, or anything else.
+		- What could Trump possibly do to reverse these trends without becoming a despot? I would never start a family in the US, at least not in the area I lived in.
+		- When I see people posting pictures of 1950's America with happy, sane families living in safe communities, I have to ask: is that ever going to come back? Yet that's exactly what I have here in Poland. Normal people. Beautiful women. Happy families with children. Women can walk back at 2 or 3 am from a party and never have to fear getting raped or killed.
+	- best travel cards
+	    collapsed:: true
+		- s https://www.rooshvforum.com/thread-50942.html ](null)[ ](null)[best travel cards ](null)[https://www.rooshvforum.com/thread-50942.html
+			- - Buy travel insurance like World Nomad](https://www.worldnomads.com/), [Medex, etc...
+		- - Buy expat health insurance like IMG Global](http://www.imglobal.com/en/index.aspx), [Cigna Global](https://www.cignaglobal.com/), [Allianz](http://www.allianzworldwidecare.com/), [BUPA
+		- Mail
+			- When planning to go location independent, you want to take these steps regarding mail:
+			- - Go paperless by choosing online statements as opposed to paper mail
+			- - Digitize your existing records and save them in Dropbox or Google Drive
+			- - Sign up for a mail scanning service
+			- Mail scanning pricing schemes vary wildly and it’s difficult to compare apples to apples. Some providers have extra features such as check depositing services. You’ll have to run the numbers yourself and decide which features are most important to you.
+			- Nevertheless, here are a few mail scanning service providers I’ve looked at (no affiliate links here):
+			- - Earth Class Mail
+			- - Traveling Mailbox
+			- - Scan Mailboxes
+			- - Post Scan Mail
+			- - US Global Mail
+			- There are tons more. Use google.
+			- Once you register, they will give you a Form 1583 to sign and notarize. Then they will give you a new mailing address and you direct your mail there.
+		- Important note: Banks want to have a legal home address on your account. You may need to give them two addresses, one for mail and the other for a home residence.
+		- Telecommunications
+			- As a location independent globe trotter, here are some things you will need to stay on the grid:
+			- - A GSM unlocked phone
+			- - Prepaid SIM card
+			- - Free Messaging & SMS apps
+			- - Tethering capability (optional)
+			- Before you go to your destination country, learn the names of the main providers in said country. Pick one, go there, find an airport kiosk, store, or 7-11, and ask for a SIM card with that provider. If your phone supports it, try to get LTE. LTE is the fastest but they don’t usually advertise. If no LTE or it’s a rip off, then get 4G.
+			- Here is a GREAT resource: Wikia: Prepaid Data SIM Card Wiki
+			- Most recent forum thread on travel phones: https://www.rooshvforum.com/thread-52734.html
+			- You can find other threads on the same topic prior to 2015-16, but these are probably outdated.
+	- https://www.selfhacked.com/blog/mtor-natural-mtor-inhibitors/
+- Hacking tools
+    collapsed:: true
+	- https://www.bettercap.org/ - like Metasploit
+- Move into homogenous area
+    collapsed:: true
+	- [quote='Valentine' pid='1576580' dateline='1495535658']Things will soon get to the point where you need to avoid living and working in city centres for your own survival. Yes it can hamper achievement of some goals but you can't make money or game if you're dead.[/quote]
+	- [quote='Leonard D Neubache' pid='1576626' dateline='1495541637']Anyone remaining in these meccas of insanity for whatever reason should consider relocating themselves at very least to the most culturally homogeneous district they can afford to live in. Rural is first best. Suburbs second best. City last best.
+	- If you've got to stay, survivability favours the rural folk or the suburbanite with pre-arranged drop-of-the-hat options to spend time with family on the farm. You might contend that the natives will never go Nazi on the muslims but the muslims will inevitably take a shot at going Nazi on the natives. It's just a matter of time, and when it happens it won't be a bomb or two. It will be street to street, house to house, door to door genocide.
+	- You may think the government will react in time to stop them or that the elites wont let it get that far because it's not part of their plan, but they are not omiscient nor omnipotent.
+	- If an errant solar flare wiped out the grid then a mosque full of AK47s and a few thousand fanatics not even a generation removed from the butchery of their homeland will make short work of every native brit in a five block radius.
+	- Valentine has it right. No job is worth fundamentally compromising your survivability.
+	- Have a plan, have the pieces in place, and when the time comes trust your gut and get out early, because there's no getting out late.[/quote]
+- Investing
+    collapsed:: true
+	- http://wallstreetplayboys.com/time-to-manage-your-own-book/
+	- ((67b1ebc2-5cf2-4a2f-b1fc-bcf9e0ed9105))
+	- Buy stocks easy via Robinhood app http://30daystox.com/robinhood-app-review/
+- Displates for art
+    collapsed:: true
+	- https://np.reddit.com/r/Parahumans/comments/66twu2/endbringer_displates/
+- Interests
+    collapsed:: true
+	- Principles
+	    collapsed:: true
+		- Find activities you can enjoy without other men's approval
+			- Response to 'Ego Sex' post
+			- Samseau
+			    collapsed:: true
+				- It's a great post but I guess I've never shared the problem Roosh has. For me game has always been a hobby to satisfy the basic need for sex, nothing more.
+				- I don't really worry about whether or not I get the hottest women nor do I care if I can get laid regularly. I've always thought Dry Spells were fun challenges
+				- to overcome and I've talked about it in my "Reflections on the No-Dating Challenge."
+				- do my best and go for the hottest girls can, and then accept whatever happens afterwards. Get laid? Great. Go home alone? Time for weed books and/or
+				- a video game. It's all the same to me, I'm just using my leisure time in a way that brings me the most pleasure and satisfaction out of life.
+				- The fact is happiness does not come from accomplishments because accomplishments do not exist without the ego. Accomplishments only hold meaning in a
+				- world where you can compare your results to someone else's accomplishments, thus if there was no one else to show your accomplishments to it would be
+				- impossible to derive any satisfaction from them.
+				- The key is not letting your happiness depend on pur ego - instead, find activities and pastimes you enjoy without anyone else's approval.
+				- For me, one Of my favorite activities in the entire world is playing a good video game. People call it a loser habit but I don't give a fuck What anyone thinks. If
+				- lived in a million dollar penthouse in NYC, I'd still load up my hand-built computer and play a good game. I've enjoyed games since I was two years Old - for
+				- me video games are my salvation.
+			- [Satisfy my basic need for sex, don't worry about looks or even regular sex If I don't get laid, just more free time for Learning/Leisure etc If I have to share a story with someone else to derive satisfaction from it, then that's ego sex. Accomplishments only hold meaning in a world where they can be compared to another. If you can't show anyone else your accomplishments, you can't derive satisfaction from them. Therefore find activities you can enjoy without anyone else's approval e.g. videogames, fiction, Learning, movies, etc
+	- History
+	    collapsed:: true
+		- How much technology has been lost throughout history?
+			- https://www.rooshvforum.com/thread-55250-post-1280718.html#pid1280718
+		- Is Civilization much Older than we're led to Beleive?
+			- https://www.rooshvforum.com/thread-55245-post-1280426.html#pid1280426
+	- Self-experiments
+	    collapsed:: true
+		- [ [not necessary for near future] £45 Bodymedia experiment
+			- Not necessary for near futureTest metabolic rate after LLLT/TULIP It's only sensitive to heat flux from arm, not energy utilisation by brainCold adaptation - try cool temperaturesPossibly, actual adaptation more appropriate thoughTreadmill deskNot gonna get for a long time](null)
+		- [ 30-day HABIT TRIALS
+			- Cold Thermogenesis 4 weeks unobstructed when cutting diet finishedCompare weight (or column for estimated weight) vs cold feelMitochondrial function test Deconditioning Diet30 Days of DisciplineNo ComplaintsRadical Honestymplement small Stickk money trial e.g. £5 for 2 weeks (away from other productivity trials e.g. nootropics, affirmations, sys improv)](null)](null)[
+				- Dual N-Back (fluid intelligence) ](null)[the specific training effect is also related to training timeThe averaged n-back level in the last session is therefore not critical to predicting a gain in Gf; rather, it seems that working at the capacity limit promotes transfer to Gf.
+					- The ](null)[Cattell Culture Fair IQ test](http://en.wikipedia.org/wiki/Cattell_Culture_Fair_III), the [Raven Progressive Matrices](http://en.wikipedia.org/wiki/Raven%27s_Progressive_Matrices) (RPM), and the performance subscale of the [WAIS are measures of Gf.
+				- Stickk money trial e.g. £5 for 2 weeks
+				- Neurofeedback EEG or HEG
+		- Vagus nerve stimulation
+			- https://www.selfhacked.com/blog/32-ways-to-stimulate-your-vagus-nerve-and-all-you-need-to-know-about-it/
+		- https://www.rooshv.com/are-we-alive-to-only-survive-and-reproduce
+		- https://doaj.org/
+		- Heart rate variability
+			- In general, a high HRV indicates dominance of the parasympathetic response, the side of the autonomic nervous system that promotes relaxation, digestion, sleep, and recovery. The parasympathetic system is also known as the “feed and breed” or “rest and digest” system.A low HRV indicates dominance of the sympathetic response, the fight or flight side of the nervous system associated with stress, overtraining, and inflammation.
+			- Therein lies the beauty of HRV: it offers a glimpse into the activity of our autonomic nervous system, an aspect of our physiology normally shrouded in mystery.
+			- That’s why cardiac specialists have been using HRV for decades to track the health and recovery of their patients, and it’s why HRV is a predictive indicator of overall heart health, risk of heart attack, and other cardiac events. For instance, low HRV is associated with the development of coronary heart disease and multiple metabolic syndrome (diabetes, hypertension, high cholesterol). Low HRV is prevalent in people who’ve had heart attacks, and among patients who’ve had a heart attack, those with low HRV are at a higher risk of dying in the subsequent three years. Among the elderly, a high HRV is strongly associated with “healthy longevity,” or the kind of graceful aging relatively free of morbidity we all desire.
+			- But the most enthusiastic proponents (and much of the research) are in the fitness world, where endurance athletes, pro footballers, Olympians, CrossFitters, and other high performance athletes use HRV monitoring to track their rest and recovery periods, pinpoint optimal training and competing times, and avoid overtraining. To understand why top athletes are finding HRV so valuable in their training and performance, read the following excerpt from Module 7 (“Exercise is Ineffective for Weight Management”) of the Primal Blueprint Expert Certification:
+			- Surprisingly, and perhaps counterintuitively, a high HRV score – greater variability in the time gap between heart beats – indicates a healthy, fit, well­-rested heart. Elevating your average HRV values over time is indicative of improved cardiovascular fitness. A low HRV value (a heart beating closer to a fixed rhythm, such as one second apart in the example) is believed to be an indication of a poorly functioning heart–perhaps an overtrained athlete or a person who is unfit, overstressed, or has developed cardiac disease risk factors. By tracking HRV regularly, one can establish a baseline value and then be alerted to excessive stress or insufficient recovery when HRV readings are lower than normal.
+		- https://www.selfhacked.com/blog/ices-the-closest-thing-to-a-fatigue-and-inflammation-cure-upgraded-pemf/
+		- https://www.selfhacked.com/blog/my-cutting-edge-protocol-to-cure-fatigue/
+		- https://www.selfhacked.com/blog/experiments/#I8217ve_Been_Successful_atChemically-Inducing_Love_CINDLOVE
+		- https://www.selfhacked.com/blog/best-way-to-increase-higher-level-thinking/
+		- www.quantifiedbob.com/self-tracking-biohacking-experiments/
+		- Ketone Testing - How To Test for Ketones & Ketone Test Levels
+			- http://cgi.ebay.co.uk/ws/eBayISAPI.dll?ViewItem&item=321343244128&fromMakeTrack=true&ssPageName=VIP:watchlink:top:en
+			- £14/10 strips?
+			- - Consider at a later stage for experiments
+			- http://www.ruled.me/macronutrients-and-ketogenic-diet/
+			- https://www.diabetes.co.uk/diabetes_care/testing-for-ketones.html
+		- Why positive fantasies make your dreams less likely to come true
+			- http://bps-research-digest.blogspot.com/2011/05/why-positive-fantasies-make-your-dreams.html
+	- ((63a9ad6e-af5a-438f-90db-754b4103c55a))
+	  collapsed:: true
+		- Think before you track – the uncertain future of the Quantified Self
+			-
+				- I used to be a self-described adherent of the Quantified Self movement. Like many movements it does not have a strict definition nor formal membership requirements, so everybody brings their own definitions, goals and needs to it. It’s pretty obvious, given the name of my blog, that I’m moving into a different direction, but that’s not to say that I think Quantified Self is fundamentally misconceived. I do however think there are costs and risks to certain Quantified Self approaches that are not immediately apparent, and as more people start tracking behaviors, buy trackers, and buy into the general hype the more those risks will become apparent.
+			- Like I said, there isn’t one definition of Quantified Self. Instead, there a different strands to the movement, serving different purposes, and pull the movement into different directions.
+				- Quantified Self as short-term experiments
+				- These are tracking projects to help answer specific questions, usually over the course of a few weeks. For example, “will this supplement make me more alert?”, “does coffee cause my headaches?”, “will sleeping in a colder room help me sleep longer?”. Ideally, these experiments are simple, testing one variable at a time, with a duration that’s long enough to let you see patterns, but no longer than they need to be. This kind of self-quantification can yield actionable results but does not commit the experimenter to a lifetime of tracking drudgery. This is an enlightening, low-risk activity, as far as I can see.
+				- Quantified Self for goal-directed healthy habit reinforcement
+				- Typical examples of this approach are setting a weight and/or health goal and using tracking to keep yourself honest. Followers will, for example, track their intake (calories) and their output (exercise, steps), and will usually set smaller daily goals in pursuit of the bigger goal. Other measures that often get tracked alongside include body fat, macros, blood sugar and so on. This kind of tracking has been around for a very long time, and popular diet programs like Weight Watchers are built on it. While this tends to work well for many people the challenge is to keep going when you’ve reached your goal. You can treat it as short-term intervention and cease tracking when you achieve whatever you wanted to achieve. The fact is that the vast majority of people find it hard to stay at goal. For example, well over 90% of people who have lost weight on a diet gradually backslide and end up where they started or heavier. The alternative is to keep tracking to keep yourself at goal, potentially for the rest of your life. The cost of perpetual tracking is high – in terms of time consumed (tracking calories in particular is a pain), non-intuitive relationship with food, obsessive exercising after overeating and so on. It can be a life-long commitment. Few people are fully aware what they’re taking on when they embark on a project like this.
+				- Quantified Self as long-range observation in search of correlation
+				- These kinds of one-person “studies” are often gadget-driven, and basically involve generating a multitude of data sets over a relatively long period of time with the idea of discovering interesting patterns and unexpected correlations. The promise is that if you track ten different variables from sleep, to mood, to exercise, to food, to emails, to keystroke quantity, finance, to weight, to day parts, to energy levels, to you-name-it, that the data will give up interesting, surprising insights about you, that will allow you to tweak your behavior, fix problems and optimize your life. In terms of commitment these kinds of projects ask a lot – a lot of time and dedication. While gadgets can log some of the data for you, there is still a lot of data that you have to put in yourself, such as mood, sleep quality, food intake and so on. A certain amount of obsessiveness certainly helps.
+				- There are many people now how have embarked on these kinds of open-ended projects. The continuing proliferation of gadgets will only fuel this particular kind of quest. And yet, of all the different ways of quantifying the self, these are by far the most problematic. In the vast majority of cases they yield only trivial insights: that sleep quality impacts mental acuity, that exercise can boost mood. In other words, they generate the kinds of insights you could have pretty much figured out by observing yourself for a couple of days without the use of any kind of complex gadgetry.
+				- The quest for insight ‘gold’ continues and there are now more apps and services that promise that they’ll sift your data output and find that elusive non-trivial insight, yet the results so far have been less than impressive.
+				- That’s because there’s a fundamental flaw in the thinking. One of the basic principles behind scientific inquiry is that it needs to always be driven by hypothesis. Science is propelled forward by testable theories, around which experiments get designed, which will either confirm a theory or refute it. Science does not happen by watching streams of data unspool, with the hope that an interesting finding will emerge by itself.
+				- And yet it is the two less interesting and less productive streams within Quantified Self that seem to be on the ascendance. This is no doubt driven by gadget manufacturers and tracking app creators who have the most to gain by a population of obsessive, only vaguely purposeful self-trackers. Quantified Self would be well advised to be careful about its new best friends. They might inject excitement and noise in the short term, but dilute the experimental spirit of the movement in the long term.
+				- What really counts?
+				- I am, for reasons too obscure and irrelevant to explain right now, an expert in kitty litter. Having spent a lot of time having to think about it made me appreciate its profound role in people’s lives. Humans have adopted cats in order to fulfill a profound need, to love and to take care of others. This love and care is manifested in many ways, including cat food. All this love and care and affection conveyed by cat food finally ends up and gets absorbed by kitty litter. A $7bn industry that gets absorbed by a $2bn industry. While love, and care and affection are profound, what gets left in the litterbox isn’t. Humans create a lot of data “exhaust”, but not at all of it is interesting and meaningful, and analyzing the aftereffects does not tell you much about the complex human causes.
+					- What I would to love to leave you with is the following:
+				- Think hard before you track.
+				- Obsessive tracking cost me a lot of time, made me obsessive, less adventurous and more harsh on myself, undermined my intuitive relationship with eating, walking and exercise. The “insights” it yielded were trivial and few in number.
+				- If you are going to track, focus on testing interesting hypotheses using simple experiments lasting a relatively short time.
+				- If you must track calories and steps do it for a short time, until you’ve got a good basic idea, and then switch to using your intuition. It’s one of your most precious tools. Don’t mess it up.
+				- As for the Quantified Self movement, it’s been oversold as the cure to all of society’s ills. It is anything but. It doesn’t have much to say about the messes and moral complexities of human emotions and interactions of our everyday lives. Tracking is hard and time-consuming, and the majority of people don’t have the time or discipline to do it. And just because you give someone a tracker doesn’t mean they’ll change their behaviors in the long term. Because that’s hard. Most people will end up tracking for only months, perhaps a few years, which is as it should be.
+				- If you can’t live without self-tracking and quantifying yourself ask yourself where in your life you fear losing control, and face those fears.
+		- Automaic quantified self
+			- * https://exist.io/
+			- * https://zenobase.com/#/
+			- * https://www.tictrac.com/
+		- About measured me
+			- About Measured Me | Measured Me ](null)[](null)[](null)[](null)[](null)[](null)[](null)[](null)[](null)[ About Measured Me ](null)[ Measured Me is an ongoing personal experiment in self-quantification and self-optimization. Its ultimate goal is to empirically demonstrate that any aspect of my everyday life can be quantified and logged on a regular basis, and that the knowledge from these numbers can be used to help me live better. To prove that, I personally select and test different gadgets, apps, questionnaires and other tools and services, and then share my experiences in this blog. I also explore different ways to slice, dice and analyze my personal data in order to reveal meaningful patterns and actionable insights. When simply tracking myself is not enough, I conduct self-experiments, by manipulating variables that already exist in my life, or introducing new ones. Ultimately, I would like to identify a small number of factors (e.g., length of sleep, certain ingredients in my diet, certain habits, mental and psychological states, etc.) that have the most influence on my everyday behavior, mind, and psyche. By controlling and manipulating these factors, I then could optimize my life experiences. The way I currently envision it, Measured Me experiment is comprised of the following phases: Phase 1: Identify the “principal” dimensions of everyday life, and most efficient ways to quantify and track them on a regular basis. These dimensions will comprise the “objective function” (aka utility function).Phase 2: Identify the internal and external factors that influence principal dimensions, and most efficient ways to quantify and track them on a regular basis. These factors will comprise the “lifestyle solution”.Phase 3: Develop a decision support/recommendation system that would optimize the objective function through manipulation of lifestyle internal and external factors. Measured Me is a personal project, and all reviews and opinions are my own. I try to stay as neutral and unbiased, as possible, so I never write “sponsored” posts or officially endorse products for an incentive. It is also my rule not to accept free or discounted products or services in an exchange for reviews. In my choice of tools, I prefer to stick with the ones that are most affordable and easily available to average consumers. As a user of an iPhone, my app reviews are also limited to iOS platforms based. So far, I have been paying and will continue paying for all necessary tools out of my pocket. In order to keep Measured Me sustainable, I make money on displaying ads and affiliate links. Every time you download an app or purchase a product from this site, I get a small compensation. This does not add any extra costs to you: you pay exactly the same amount as if you were buying directly from Amazon or iTunes. But by purchasing stuff via Measured Me or Measured You store, you keep this project running. You can also support this project by donating a small amount via Paypal.
+				- Finally, remember: unlike regular science, Quantified Self is about personalization (as opposed to generalization): you use your own data in order to learn about yourself. What works for me, may not necessarily work for you; the only way to find out is to start your own self-tracking projects and self-experiments. I hope this is where Measured Me can help you, by inspiring and motivating you. Please feel free to comment, share, follow me on Twitter and Facebook. You can also contact me anytime using the form below.
+		- DATA ANALYSIS
+			- Data Analysis ](null)[ ](null)[Pivot Table
+				- ](null)[www.statwing.com
+				- Discovering SPSS www.spss.en.softonic.com/‎
+				- http://arcolano.com/2013/01/5-things-ive-learned-about-data-science/
+			- I propose a Coursera class, which I’m happy to teach, on something like “personal analytics.” In it, we learn how to design, implement, analyze, interpret, and draw confident conclusions from self-tracking data. Without jargon, we would learn to interpret data with a healthy dose of skepticism. All data is equal to truth (the thing we care about and wish we knew) plus error (random or otherwise), and the trick to being a confident data analyst is to learn how to separate truth from error, based on data.
+			- 1. Name and contact information.
+			- 2. Would you be willing to share data with the class for group analysis?
+			- 3. Would you be interested in helping to design / administer the course? If so, in what capacity?
+			- This is how my data looks (click on image to enlarge).The average number of calories burned on “gym” days is 3043, versus 3461 burned on average on “bike & walk” days. It looks like I do burn whopping 400 more calories on “bike & walk” days! But is this difference statistically significant? Now, if you remember the Intro Stats test, you will probably suggest the good old t-test, which is readily available in Excel. To which I will respond: bad idea. You see, Quantified-Self data are somewhat different from what you may have encountered in Psychology 101 course:
+				- data comes from “single subject” experiments
+				- data is not normally distributed](http://en.wikipedia.org/wiki/Normal_distribution), and in most cases not even [symmetric
+				- number of data points is usually small (n <30)In order to check for statistical significance, you will need a more robust, non-parametric test, appropriate for single-subject experimental data with small sample sizes. I recommend using non-parametric version of Hedge’s g test, applied to the ranks instead of the actual values (if you like stats and need more technical details, see the end of this post). To calculate g and check if it is statistically significant, follow these steps:
+			- Preparing Essential Components of the Formula.Step 1a. Combine both groups into one, and calculate ranks for caloric expenditure values using Excel’s RANK function (make sure to rank values in the ascending order). Then split the ranks by groups (click on the image to enlarge):
+			- Step 1b. Add numbers of data points, means (using AVERAGE function in Excel), and standard deviations SD (using STDEV function):
+			- Computing Hedge’s g.Step 2a. Using cells, highlighted in light blue and the following formula, compute SD Pooled value:
+			- In my example, standard deviations (SDE)and (SDC) are located in cells I16 and J16, respectively. The corresponding (nE)and (nC) are in cells I14 and J14. I ended up with Pooled SD of approximately 1.80.
+			- Step 2b. Using the cells highlighted in light red, with the means (ME)and (MC)in cells I15 and J15, and N in cell G14, you can now calculate value of g:
+			- My g was approximately 1.76 (if you end up with negative sign, ignore it. It only shows direction of the difference, which we already know).
+			- Computing confidence interval.Step3a. Using the CONFIDENCE function in Excel, compute the following number: = CONFIDENCE(.05,<insert your Pooled SD here>, insert total N here). In my case, this value was 1.18.
+			- Step 3b. Compute the lower and upper bounds of confidence interval, by subtracting and adding the g and the number above:
+			- lower bound = 1.76 - 1.18 = 0.58upper bound = 1.76 + 1.18 = 2.94
+			- The 95% confidence thus is (0.58;2.94). It tells me that if I replicate my experiment again and again, in 95% cases the number of calories burned, when expressed as a g, will be between 0.58 and 2.94:
+			- The good news is that the zero 0 (no differences) is not in this interval, which means that in 95% I will always burn more calories on “bike & walk” days than on “gym” days. In other words, the difference is statistically significant. Which means I will have to increase the intensity of my gym workouts
+			- PS. If you are into stats, here are some references behind this post:
+			- The standardized means difference as a best choice for reporting effect size in single subject studies was suggested by Olive M.L., Smith B.W. , Effect size calculations and single subject designs. Educational Psychology 2005; 25:313-324.
+			- Applying Cohen's d formula to rank-transformed data for robustness was described in Schacht, A., Bogaerts K., Bluhmki E, Lesaffre E, A New Nonparametric Approach for Baseline Covariate Adjustment for Two-Group Comparative Studies. Volume 64, Issue 4, pages 1110-1116, December 2008.
+			- Finally, screenshots of formulas for Hedge's adjustment of Cohen's d formula were shamelessly lifted from Joseph A. Durlak, How to Select, Calculate, and Interpret Effect Sizes, Journal of Pediatric Psychology, 34,9, pages 917-928 (link here) .
+			- See also:
+			- The Scientific Method
+			- http://en.wikipedia.org/wiki/Scientific_method
+			- Design of Experiments
+			- http://en.wikipedia.org/wiki/Design_of_experiments
+			- Keeping a Scientific Logbook
+			- http://personal.ee.surrey.ac.uk/Personal/D.Jefferies/logbook.html
+			- Single Subject Design
+			- http://en.wikipedia.org/wiki/Single-subject_design
+				- Seth Roberts says:
+			- September 20, 2012 at 7:27 pm
+			- I don’t think that QS data is much different from other data: 1. all experimental data has n = 1 in dozens of ways, such n = 1 school or n = 1 company or n = 1 month, etc. Why you think n = 1 person is importantly different from n = 1 school or n = 1 whatever is unclear. 2. almost all data is non-normal and asymmetric. 3. A QS dataset may be large or small. Lots of non-QS data involves small datasets. When faced with non-normal data, I usually transform the data to near-normality and then use parametric tests. There are many advantages to working with near-normal data (e.g., more informative graphs), not just ease of statistical testing. You omit the most important data analysis step: plot the data.
+			- Hello Dr. Roberts,
+			- Thanks a lot for your comment! What I was trying to achieve with this post is to describe the test that would be appropriate in any conditions, regardless of the data; hence, the choice of non-parametric test, and Hedge’s adjustment (which won’t affect results if the sample size is large, but will be helpful in case of small n). I guess, the choice of data for the example was a bit misleading; I should have chosen one of the attitudinal scales (e.g., RPE of workouts, or mood), to demonstrate the flexibility of non-parametric test. But I completely agree, transformation to normal improves the visual representation of data. I will definitely cover the ways to transform distributions in my future posts. I also love your use of plots in your papers, and will try to include some plots in the future!
+			- http://www.gwern.net/Nootropics#TOC
+		- Data visualisation
+			- https://docs.google.com/document/d/1hbOAzf8cTXasf0ZaK9Or6nKGQp1LMmRYNIbwugM6kEQ/edit
+		- Double-blind studies
+			- DOUBLE-BLIND TRIALS ](null)[ Randomised Controlled Double-Blind Studiesmake some sort of blinding index: for example, each day you could write down after the testing what you think you got, and then when it’s done, check to see if you outperformed a coin flip. If you did, then the blinding failed and it’s just randomizedOnly after all data have been recorded (and in some cases, analyzed) do the researchers learn which participants were whichADDERALL BLIND TESTING
+			- BLINDING YOURSELF
+			- But how to blind myself? I used my pill maker to make 9 OO pills of piracetam mix, and then 9 OO pills of piracetam mix+the Adderall, then I put them in a baggy. The idea is that I can blind myself as to what pill I am taking that day since at the end of the day, I can just look in the baggy and see whether a placebo or Adderall pill is missing: the big capsules are transparent so I can see whether there is a crushed-up blue Adderall in the end or not. If there are fewer Adderall than placebo, I took an Adderall, and vice-versa. Now, since I am checking at the end of each day, I also need to remove or add the opposite pill to maintain the ratio and make it easy to check the next day; more importantly I need to replace or remove a pill, because otherwise the odds will be skewed and I will know how they are skewed. (Imagine I started with 4 Adderalls and 4 placebos, and then 3 days in a row I draw placebos but I don’t add or remove any pills; obviously the next day, there’s only a small chance I will get a placebo…)
+			- This is only one of many ways to blind myself; for example, instead of using one bag, one could use two bags and instead blindly pick a bag to take a pill out of, balancing contents as before. (See also my Vitamin D](http://www.gwern.net/Zeo#vitamin-d) and [day modafinil
+			- at the end of the day when I have written down my impressions and guess whether it was one of the Adderall pills, then I can look in the baggy and count and see whether it was. there are many other procedures one can take to blind oneself (have an accomplice mix up a sequence of pills and record what the sequence was; don’t count & see but blindly take a photograph of the pill each day, etc.)
+			- but I think I’d guess it was Adderall with 40% confidence.
+			- So, a change to the protocol. I will take a pill every other day - a day to washout and reacclimate to baseline, and then an experimental day. In subsequent entries, assume there was either a at least one intervening break or placebo day.
+				- 90% confidence
+			- My predictions were substantially better than random chance7, so my default belief - that Adderall does affect me and (mostly) for the better - is borne out. I usually sleep very well and 3 separate incidents of horrible sleep in a few weeks seems rather unlikely (though I didn’t keep track of dates carefully enough to link the Zeo data with the Adderall data)
+			- If it was active (modafinil-creatine), take a break the next day; if placebo (theanine-creatine), replace the placebo and try again the next day
+			- So with these 8 results in hand, what do I think? Roughly, I was right 5 of the days and wrong 3 of them. If not for the sleep effect on #4, which is - in a way - cheating (one hopes to detect modafinil due to good effects), the ratio would be 5:4 which is awfully close to a coin-flip. Indeed, a scoring rule ranks my performance at almost identical to a coin flip: -5.49 vs -5.5423. (The bright side is that I didn’t do worse than a coin flip: I was at least calibrated.)
+			- (yes, Noopept may be as good as piracetam, but since I still have a ton of piracetam from my 3kg order, I am primarily interested in whether Noopept adds onto piracetam rather than replaces). 10mg doses seem to be on the low side for Noopept users, weakening the effect, but on the other hand, if I were to take 2 capsules at a time, then I’d halve the sample size; it’s not clear what is the optimal tradeoff between dose and n for statistical power.
+			- If the effect size is positive, regardless of statistical-significance, I’ll probably think about doing a bigger real self-experiment (more days blocked into weeks or months & 20mg dose)
+			- http://www.gwern.net/LLLT
+			- Followup experiment
+			- How I would modify Nattzor’s self-experiment to deal with my concerns, in roughly descending order of importance:
+				- switch to much shorter blocks: closer to 3, maybe even just randomize daily; this helps minimize any learning/guessing of condition
+				- omit any breaks and intervals, and do the experiment steadily to eliminate selection concerns
+				- use a wider range of randomized doses: for example, 0.5 minutes, 1 minute, 2 minutes / place, or maybe 1/2/3 to see where the benefits being to break down
+				- run the measurements on each day, even days without LLLT. I’m interested in the fadeout/washout - in the first experiment’s data, it looks like the effects of LLLT are almost instantaneous, which isn’t very consistent with a theory of increased repair and neural growth, which should take longer
+				- upgrade to 808nm-wavelength LEDs for greater comparability with the research literature
+		- How to create a self-experiment
+			- How to Create a Self-Experiment ](null)[ General QS Life PrinciplesFocus on the metrics have the biggest impact:time required for measurement/analysis ratio Best ones include blood testMost time-consuming are food intake, cognitive measurement, mood, Implement only one change at a time to see the effectMeasurement: Scientific quantification (objective) over subjective wherever possible How to Create a Self-ExperimentCreate a hypothesis E.g. “if I do X then there will be change in Y”In defining your goals, choose objectives that are: 1. really important to you and 2. achievable with relatively minor lifestyle changes. Then commit to them for a period of time. You’re not going to see your weight drop within a couple of days of starting a new diet–improvements will always take a degree of patience.Decide on an interventionOperationalisation (how to measure variable of interest) Preferably a direct measurement, otherwise use a surrogatePreferably a quantifiable objective tool eg heart rateOften subjective quantification necessary e.g. how do I feel Remove bias by having others rate youRemember that others have probably tried to empirically research this before - use google scholarReduce measurement error through standardisation of measurementCreate a blog post for lock-in + setting timeframing rather than data minining + update Experiments page with current experiment and end dateBaselineCreate a double-blind, randomised protocol Otherwise do ABAThe ultimate specificity for you is so-called n=1But this properly refers to the statistical parameter representing the number of (independent) observations. In a self-experiment, if you, for example, pop a happy pill one day and feel happy that day. Not because there is just one subject, but because there is just one observation of one trial (one pill, one day). It would be poor logic to conclude from one trial that a treatment is effective Run conditions until you get 5-40 days of flat results (flat = what you are measuring is not going up or down). Ideal is 10-20 days. Suppose I want to compare Treatments A and B (e.g., different amounts of butter). I decide to make one measurement/day. The first step would be to do A for several days. I keep doing A until whatever I am measuring (e.g., sleep) stops steadily increasing or decreasing and then run several more days — ideally, 10-20. Then I do B for several days. I keep doing B until my measurement stops changing, then I do 10-20 more days of B. If the B measurements looked different from the A measurements, I would then return to Treatment A. It’s always a good idea to run a treatment until your central measurement stops changing, and then run it longer. How much longer? I’ve found that less than 5 days makes me nervous. Whereas running a condition for more than 40 days of flat results is a wasted opportunity to learn more by trying a different treatment. When you add data, look again at all the data. Each time I collect new data, I plot all of the data, or at least a large chunk of it. This helps spot unexpected changes. For example, each time I measure my weight I look at a plot of my weight over the last year or so. Recently I found that cold showers caused me to gain weight, which I hadn’t expected. If I hadn’t looked at a year of data every time I weighed myself, it would have taken longer to notice this.](null)[](null)[http://en.wikipedia.org/wiki/Factorial_experiment
+			- The objective is the primary thing that you want to influence with your biohack. In the clinical science jargon, an objective is called a clinical endpoint. These days the top medical journals will only publish results from clinical trials that register their trial before it runs. 1 This includes naming and submitting their clinical endpoint (usually restricted to just one primary endpoint) in advance. These precautions help limit biased data mining of the trial results (naming the objective after the fact allows one to measure many things and pick one that happened to have changed a lot, possibly by chance). They also insure that negative trial results are in fact reported to journals. These rules are just as wise for an individual running a self-experiment to follow as they are for big scientific trials.
+			- It helps if your objectives are quantities that can be measured easily. This enables you to track these value before, during and after the biohack, so that they can later be analyzed for statistical significance
+			- Often our objectives won’t be quantities themselves but will have good surrogate objectives that are quantities. A surrogate objective is an objective that we use for practical evaluation purposes instead of the objective that we would actually like to influence. e.g. longevity biomarkers
+			- 1. One test at a time. Keep it simple. Don’t try to test too many new variables at once, or your results will not be meaningful. Change one thing and one thing only, trying to keep everything else the same, and see what happens..
+			- 2. Define your outcome variables. What do you want to measure? If you want to see if something is affecting your mood or sleep, track how happy you are or how many hours you sleep. If your new treatment is to help with pain, track pain levels. Try to keep the things you measure to a minimum too – identify the one or two things you really want to change and see if they are changing..
+			- 3. Track these over time (longitudinally). One day of data isn’t enough to see how well something is working. Depending on what you’re measuring, you might need a few weeks of data to start seeing patterns. Or you might notice a change sooner than that. Ideally, start measuring yourself BEFORE you start the treatment, so you’ll have a baseline measurement to compare your new results to. For example, if you want to lower your blood pressure, start by knowing what your blood pressure is, then you’ll know if it’s improving or not..
+			- 4. Do an N=1 randomized controlled trial on yourself. Here’s where you can start to get fancy if you want more scientific results. CureTogether will soon be able to set up a randomization schedule for you, where you take a treatment some days and a placebo on other days. This might not work for some medications where not taking them would mean severe withdrawal or other side effects, but would probably work fine for things like lifestyle or dietary interventions ..
+			- 5. Self-blind your study. For uber-geeks, you could even go so far as to create your experiment so that you don’t know whether you’re taking a treatment or not. This would eliminate any placebo effect and give you the most definitive results from your self-experiment..
+			- On the other hand, if this is getting complicated, watch Professor Seth Roberts’ “Stop Worrying and Start Experimenting” talk on experiment design and keeping it simple.
+			- I learned that self-experimentation has three uses:
+				- To test ideas. I tested the idea that tetracycline helps acne. I tested ideas about how to sleep better. And I’ve tested ideas derived from surprises. A few years ago, while trying to put on my shoes standing up, I realized my balance was much better than usual. I’d been putting on my shoes standing up for more than a year; that morning it was much easier than usual. The previous evening I’d swallowed six flaxseed-oil capsules. I did self-experiments to test the idea that flaxseed oil improves balance. (It did.)
+				- To generate new ideas. By its nature, self-experimentation involves making sharp changes in your life: you don’t do X for several weeks, then you do X for several weeks. This, plus the fact that we monitor ourselves in a hundred ways, makes it easy for self-experimentation to reveal unexpected side effects. This has happened to me five times. Moreover, daily measurements—of acne, sleep, or anything else—supply a baseline that makes it even easier to see unexpected changes.
+				- To develop ideas. That is, to determine the best way to use a discovery and to learn about the underlying mechanism. After I found that flaxseed oil improved balance, I used self-experimentation to figure out the best dose (three to four tablespoons per day).One complaint about self-experimentation is that you’re not “blind.” Maybe the treatment works because you expect it to work. A placebo effect. I have never seen a case where this appeared to have happened. When treatment 10 helps after treatments 1 through 9 have failed to help (my usual experience), it’s unlikely to be a placebo effect. Accidental discoveries cannot be placebo effects.
+			- My experience has shown that improve-your-life self-experimentation is remarkably powerful. I wasn’t an expert in anything I studied—I’m not a sleep expert, for example—but I repeatedly found useful cause-and-effect relationships (breakfast causes early awakening, flaxseed oil improves balance, etc.) that the experts had missed. This isn’t supposed to happen, of course, but it made a lot of sense. My self-experimentation had three big advantages over conventional research done by experts:
+				- More power. Self-experiments are far better at determining causality (does X cause Y?) than conventional experiments. Obviously they’re much faster and cheaper. If I have an idea about how to sleep better, I can test it on myself in a few weeks for free. Conventional sleep experiments take a year or more (getting funding takes time) and cost thousands of dollars. A less obvious advantage of self-experimentation is that more wisdom is acquired. We learn from our mistakes. Fast self-experimentation means you make more mistakes. One lesson I learned stands out: Always do the minimum—the simplest, easiest experiment that will make progress. Few professional scientists seem to know this. Finally, as I mentioned earlier, self-experimentation is much more sensitive to unexpected side effects.
+				- Stone Age–like treatments are easy to test. I repeatedly found that simple environmental changes, such as avoiding breakfast and standing more, had big and surprising benefits. In each case, the change I’d made resembled a return to Stone Age life, when no one ate breakfast and everyone stood a lot. There are plenty of reasons to think that many common health problems, such as diabetes, high blood pressure, and cancer, are caused by differences between modern life and Stone Age life. Modern life and Stone Age life differ in many ways, of course; the fraction of differences that influence our health is probably low. If so, to find aspects of Stone Age life that matter, you have to do many tests. Self-experiments, fast and cheap, can do this; conventional experiments, slow and expensive, cannot. In addition, conventional research is slanted toward treatments that can make money for someone. Because conventional research is expensive, funding is needed. Drug companies will fund research about drugs, so lots of conventional research involves drugs. Elements of Stone Age life (such as no breakfast) are cheap and widely available. No company will fund research about their effectiveness.
+				- Better motivation. I studied my sleep for 10 years before making clear progress. That sort of persistence never happens in conventional health research. The reason is a difference in motivation. Part of the difference is how much the researcher cares about finding solutions. When you study your own problem (e.g., acne), you care more about finding a solution than others are likely to care. Acne researchers rarely have acne. And part of the motivation difference is the importance of goals other than solving the problem. When I studied my sleep, my only goal was to sleep better. Professional scientists have other goals, which are enormously constraining.
+			- Fear of loss of job, grant, or status also makes it hard for professional scientists to propose radical new ideas. Self-experimenters, trying to solve their own problem on their own time, are not trapped like this. They can’t do it because the research would be hard to fund (no one makes money when patients avoid dairy) and because the trial and error required would take too long per publication. They don’t want to do it because it would be low-tech, low-cost, and very useful—and therefore low-status. While research doctors in other specialties study high-tech expensive treatments, they would be doing low-cost studies of what happens when you avoid certain foods. Humiliating.
+			- when one wants to cause a change in a health or performance objective that is not as directly under our control, it’s generally insufficient to merely measure the objective and hope that it improves. Testing well-thought-out treatments is more efficient and effective. In order to truly gain insight from these tests it’s best to use a scientifically valid process, namely a properly run self-experiment. Ideally such an experiment would incorporate: repetition (of observations), randomization (of the experimental treatment), controlling (for other variables), self-blinding (you don’t know when you are receiving the treatment), and statistical analysis of the results - See more at: http://biohackyourself.com/biohacking-101-why-self-experiment/#sthash.Wx94cxbR.dpuf
+		- How to run a nootropic experiment
+			- How to Run a Nootropic Experiment ](null)[ First, establish a baseline: Take a 2-week period where you take nothingAt the minimum you want to do at least Cambridge Brain Sciences on 3 separate occasions, at 3 different times of day.DISCLAIMERI am not a medical doctor, all this article was hacked together by fanatic googling. Although these supplements are generally quite safe, you can still hurt or even kill yourself by taking stupid doses. Before you take any supplements based on this article (or in general), always consult your doctor!](null)[](null)[http://coornail.net/blog/2013/11/17/nootropic-selfexperiments/
+			- http://www.gwern.net/Nootropics
+			- http://www.numberwatch.co.uk/significance.htm
+			- http://www.physics.csbsju.edu/stats/anova.html - within subjects, repeated measures
+			- Subjective (qualitative): i.e. what I noticed, thought
+			- Scientific: productivity (measure by actual no of hours)
+			- It's great that you provide the R source code (and heck, that you're doing the analysis and collecting systematic data at all, that makes your page worth more than anything I've seen on /r/nootropics in a while), but you also need to provide the data. I suggest just a data-frame with each row being a day, 2 columns for Mood & Productivity, and columns for every intervention where 0 means you did not take any that day and 1 means you did.
+			- Although mood is inherently subjective, there are mood questionnaires which have been scientifically shown to be effective at detecting mood disorders like depression http://devepi.duhs.duke.edu/.%5Cinstruments%5CMFQ%20user.pdf
+			- http://devepi.duhs.duke.edu/instruments/MFQ%20%20Adult%20Self-Report%20-%20Short.pdf
+			- short-term effec nootropics e.g. piracetam, caffeine, modafinil
+		- MATLAB
+			- http://www.mathworks.co.uk/products/matlab/
+		- QS resource guide
+			- QS Resource Guide ](null)[ ](null)[](null)[](null)[](null)[](null)[](null)[](null)[](null)[Quantified Self (QS) was originally defined as self knowledge through numbers. More precisely, it is the process of extracting personal meaning from personal data.As the Quantified Self movement has grown, information has become scattered and difficult to find. The purpose of this post is to collect all the information about Quantified Self, organize it, and update it as the QS landscape continues to adapt. This will be a “living list” of QS information.Start HereMain site: QuantifiedSelf.com Join the community! Find the closest Quantified Self Meetup.
+			- Getting Started with QS
+				- Quantified Self 101 – 9 slides to help you get started without any tools
+				- Simple Tracker using Google Docs - quick, simple way to start tracking anythingGeneral Information
+			- An Overview of Quantified Self
+				- Know Thyself: Tracking Every Facet of Life, from Sleep to Mood to Pain, 24/7/365 - QS founder, Gary Wolf, explains the origins and promising potential of the self-tracking movement
+				- Wired’s Gary Wolf & Kevin Kelly Talk the Quantified Self – A great overview of QS
+				- TED Ed – The quantified self by Gary Wolf – In this 5 min TED video, Gary provides a quick introduction to the quantified self
+				- Slideshare presentation – ultimate guide to Quantified Self – Narrato put together a easily-digestable presentation about what QS is, why people self-track, and some common tools to get started
+				- Know Thy Quantified Self - 5 step plan to start self-tracking
+				- Monitor Me - BBC documentary about the growing self-monitoring revolution and its implications for our health
+				- Map of Meetups - 100+ countries and growing!
+				- Beginners Guide to Quantified Self - an introduction targeted to entrepreneurs
+				- http://www.quantifiedscience.com/2012/08/22/beginners-guide-to-quantifying/Experimental design
+				- How to Self-Experiment - by Seth Roberts
+				- Designing Good Experiments: Some Mistakes and Lessons - by Matthew Cornell
+				- Designing Self-Experiments - by Konstantin Augemberg
+				- Biohacking 101: Why Self-Experiment - by Winslow Strong
+				- The Value of Self-Experimentation, by Tim Ferriss at fourhourworkweek
+					- http://fora.tv/2012/10/16/4-Hour_Everything_How_Tim_Ferriss_Tracks_His_Lifes_DataInspiration
+				- Quantified Self Video List - search here for different topics and watch some amazing people tell their stories for how they found meaning from their data
+				- Cesar Kuriyama: One second every day – TED talk that touches on the value of lifelogging
+				- Ari Meisel on Curing the Incurable Through Self-Experimentation - Ari Meisel talks about how he cured himself of Crohn’s Disease
+				- Stephen Wolfram – The Personal Analytics of My Life - Stephen Wolfram, the creator of the mathematical computation tool Wolfram Alpha, has been tracking personal data for 20 years
+				- IBM 5 in 5: Sensors - a look at emerging sensor technologies that will enhance and augment our senses
+				- http://www.scoop.it/t/quantified-self-lifestyle-design
+				- Gordon Bell, legendary lifelogger at Microsoft and author of Total Recall, gave a candid, engaging talk on his MyLifeBits project [http://vimeo.com/14282561](http://vimeo.com/14282561) People - there are many more, but trying to keep the list short.
+				- Gary Wolf - co-founder of Quantified Self
+				- Kevin Kelly - co-founder of Quantified Self
+				- Nicolas Feltron](https://twitter.com/feltron) - obsessive self-tracker and creator of the famous [Feltron Annual Reports
+				- Seth Roberts - sometimes called the “champion of self-experimentation”
+				- Tim Ferriss](https://twitter.com/tferriss) - author of [The 4-Hour Body and famous self-tracker
+				- Dave Asprey - well-known biohacker and prominent QSer
+				- Stephen Wolfram - creator of Mathematica and Wolfram Alpha, and has been tracking personal data for 30 years
+				- Buster Benson - behavior change fanatic and deliberate quantified-selfer
+				- MeasuredMe - blogs about trends in self-experimentation and personal analytics
+				- Tim Chang](https://twitter.com/timechange) - investor with a focus on QS. Read his [3-part series about QS.Data Privacy
+				- The Scary Future of Quantified Self - data privacy is a large concern for people as they voluntarily create so much personal data about themselves
+				- How Target Figured Out A Teen Girl Was Pregnant Before Her Father Did - as large companies begin to use our personal data in new ways, what crosses the line?
+				- Can Big Data Change Who You Are - short video on big data and its implications
+				- Big Brother is a Technology Company - how big tech is using your personal informationQS Statistics
+				- Pew Internet self-tracking research - 69% of adults track at least one health indicatorOther Resources and Lists
+				- QS Tool Guide - exhaustive list of apps, but is not up to date
+				- TrackYourself! - a beginner’s map of digital qs tools
+				- Drivers of Change – Self Surveillance - discussion of self-tracking and collection of relevant articles
+				- Pinterest for Quantified Self and Lifelogging - excellent visual source of QS products
+				- The QS Facebook group.
+				- LinkedIn QS group
+				- Quora - plenty of good discussion topics to follow related to QS
+				- Relevant Book ListIndustries
+			- For Entrepreneurs & Investors
+				- Nike+ Accelerator - supporting companies that leverage the Nike+ platform to inspire healthy lifestyles
+				- AngelList – Quantified Self - Investors, companies, jobs in QS
+				- Startup Health - helping healthcare and qs-related startups
+				- Rock Health - funding and support to launch digital health startups
+				- 2012 Funding – VC funding doubled in this space last year
+				- List of hardware incubatorsFor Developers
+				- Singly - allows developers to bring social data into their apps
+				- Validic - a simple connection to dozens of mobile health apps and devices
+				- HumanAPI - access multiple data streams through one APIFor Bio Hackers
+				- Bulletproof Exec - using QS principles to upgrade your body and mind
+				- 4-Hour Everything: How Tim Ferriss Tracks His Life
+				- The Quantified Brain of a Self-Tracking Neuroscientist - a neuroscientist is getting a brain scan twice every week for a year to try to see how neural networks behave over timeFor DIYers
+				- Arduino - open-source electronics prototyping platform
+				- Raspberry Pi - credit-card-sized single-board computer
+				- BITalino
+				- Flutter
+				- TrueSense DIY Kit - simple sensor for measuring EEG, ECG, EMG, motion, posture, and more
+				- Funf - open source framework for data collection
+				- Hacking stations - community-run places where anyone can meet and work on their projectsFor Healthcare
+				- WebMD and Qualcomm Life team up - WebMD and Qualcomm are partnering up to help consumers sync and analyze data from wireless health and fitness devices
+				- Open mHealth - non-profit startup building an open software architecture to break down the barriers in mobile health
+				- Ginger.io - behavioral analytics platform that turns smartphone data into health insights
+				- TEDMED video about small data - Deborah Estrin talking about small data, N=me, and our digital traces
+				- The Quantified Doctor - better medicine through self-tracking
+				- Making Sense of Sensors - how new technologies can change patient careFor Kids
+				- Digital Health Tools to Help Kids Form Better Habits - self-tracking tools for kids
+				- Sqord - activity tracking turned into a game for kidsFor Artists
+				- Laurie Frick - experiments in self-tracking turned to beautiful art
+				- Stephen Cartwright - representing 15 years of personal data in sculptures
+				- Body. By Stanza - sculpture which responds to the emergent properties of the environmentUniversity Research
+				- Affective Computer research at MIT - list of interesting QS projects
+				- MIT Media Labs health care hackathon - MIT hosted a health and wellness hackathon where many of the results were focused on personalized data
+				- QS Research and Scholars on Mendeley - collection of academic papers related to self-tracking and Quantified SelfFor Marketing
+				- Why Brands Should Care About the Quantified Self Movement - 5 reasons QS is important to brands
+				- Marketing to the Quantified SelfFor Corporations
+				- What if Your Boss Tracked Your Sleep, Diet, and Exercise? - one company’s attempt at a Quantified Self-based corporate wellness program
+				- The Quantified Self Movement and What It Means for Corporate Wellness – what does the proliferation of health-related biometric devices and mobile apps mean for employee wellness programs?
+				- Can Technology Make You Happy? - bringing happiness research, new technology, and the workplace togetherWebsites / Conferences
+				- IndieWebCamp – A gathering of creators to further open web technologies for personal data
+				- ISWC – International Symposium on Wearable Computers
+				- Living by Numbers – Conference put on by Wired to learn how better data can lead us to better health
+				- Open You - Provides news and resources about open source app for health devices
+				- Personal Digital Archives - PDA 2014 explores the intersections between individuals, public institutions, and private companies engaged in the creation, preservation, and ongoing use of the digital records of our daily lives.
+				- Personal Data Ecosystem - A consortium for the ethical integration point for data from different sources
+				- Strata Conference - Not specific to Lifelogging but a conference about data that can crossover in several areas
+		- Quantified Self: The Ultimate Beginner's Guide and List of the Best Personal Data Tools Out There
+			- [The Beginner’s Guide to Quantified Self (Plus, a List of the Best Personal Data Tools Out There) A transformation is happening. People, like you, are taking control of something conventional wisdom has told us is not ours to understand: our health. Why are we fat? What makes us feel sluggish? What causes our disease? How can I improve? Today, we ask our doctors. Tomorrow, we will ask our data.
+			- Watch Ari Meisel explain how he cured his Crohn’s disease by following data. Here’s Larry Smarr doing it as well . Even Tim Ferriss tracks data in his life to hack his way to better health.
+			- This is the Quantified Self . In short, it is self-knowledge through self-tracking.
+			- This is not new. Benjamin Franklin famously tracked 13 personal virtues in a daily journal to push himself toward moral perfection. He shared this insight in his autobiography: “I was surprised to find myself so much fuller of faults than I had imagined, but I had the satisfaction of seeing them diminish.”
+			- The only difference today is the technology. Advancements have not only made data collection cheaper and more convenient, but is allowing us to quantify biometrics we never knew existed. Want to know your insulin or cortisol levels, or sequence your DNA, or learn what microbial cells inhabit your body? You can quantify that now.
+			- Self-trackers are pushing the limits of personal health. By using a scientific approach, they are shedding light into a dark unknown. As they discover hidden insights, it is the entrepreneurs who are bringing their findings—and their tools—to the masses.
+			- As self-trackers are pushing the movement forward, entrepreneurs are helping it scale.
+			- Why this matters
+			- Where there are trends, there are opportunities. About 69% of US adults track at least one health metric; however, almost half are still tracking in their heads. This is a problem entrepreneurs are looking to fix and venture capitalists are funding. In fact, VC funding in this space doubled last year.
+			- Crowdfunding sites are often a good indicator of market trends, and quantified self tools are among the most successful. The Misfit Shine , an elegant activity tracker, raised $446k. uBiome , a startup that can sequence your microbiome, raised $351k. Pebble , a customizable watch that can track and analyze activity, raised $10 million. Amiigo , an automated fitness and workout tracker, raised $580k. These products are grabbing the interest and money of early adopters. Many of these, and more, also made an appearance at the Consumer Electronics Show and this year’s SXSW .
+			- Making it personal
+			- Are you becoming happier over time? Are your mind and body performing better? Are your days more productive than they were a year ago?
+			- Unfortunately, happiness, performance, productivity, and other variables in our lives are complex, confusing, and chaotic processes. Every day we blindly make decisions we hope lead to improvement. To make matters worse, we judge success based on imperfect and biased feelings. If our world is dark, it seems we are also covering our eyes.
+			- What about your startup? It began with a problem. You recognized it and believed, “I can fix this.” How? You likely tested your solution, tracked key measures of success, and adjusted course when necessary.
+			- In other words, instead of relying on intuition or feelings, you use data. Your company’s growth rate, web traffic, conversions, and even the way users interact with your homepage are all measured and analyzed. If you aren’t measuring key metrics you won’t manage progress and you can’t make the best decisions.
+			- Our daily lives are no different. We want to make the best decisions, yet we lack appropriate data to guide us.
+			- Let’s change that.
+			- How to get started
+			- You are busy, so here are a few templates to start.
+				- Want to lose weight? Keep a food log. Use MyFitnessPal ](http://www.myfitnesspal.com/), pen and paper, or just take a picture. Tracking your food intake will lead to interesting insights about your diet and health. A [2008 study also showed that the act of tracking food further facilitates weight loss.
+				- Searching for happiness? Track your mood. I used AskMeEvery ](http://askmeevery.com/) (a site I now run) to track my mood for 3 months and it proved that I was unhappy with my job. Soon after, I quit. Other good apps include [MercuryApp ](https://www.mercuryapp.com/) and [TrackYourHappiness . We often are not mindful of our changing moods or the factors that affect them. Tracking them daily keeps us self-aware.
+				- Need to move more? Track your activity. There are tons of great tools including Fitbit ](http://www.fitbit.com/), [Nike Fuelband ](http://www.nike.com/us/en_us/c/nikeplus-fuelband), [Jawbone UP ](https://jawbone.com/up), [Basis ](http://www.mybasis.com/), [Omron ](http://www.omron.com/), and more. Your iPhone can also track your activity. I use an app called [Moves . Let’s begin
+			- Track something that matters to you.
+			- It doesn’t need to be structured or complex. In fact, keep it simple. Track one thing for one week in the easiest way. Pick something that is important to you—maybe you keep a tally every time you drink a glass of water or you record how many hours you slept last night. The act of tracking increases your awareness, which has immediate benefits. After a few days, the data will highlight trends and behaviors you may not have known.
+			- If you prefer structure, you can follow a framework, similar to the lean methodology, to ensure validated learning. This framework starts with a hypothesis. Through planning, it becomes an experiment. Data is then collected and analyzed which triggers insights that iterate the cycle.
+			- For more details on these steps, read this article on designing QS experiments .
+			- The future
+			- I am consistently humbled by the adventurous and curious spirit of self-trackers. As entrepreneurs, we’re no different. We’re all wired to solve problems.
+			- We are fortunate to live at a time when technology is enabling the exploration of solutions. Suddenly, we are all scientists and our discoveries are limited only by our imaginations. As sensors are added to our phones, glasses, clothing, and even implanted within our bodies , the potential for what is imaginable is growing.
+			- As a self-quantifier, I see the potential to control my own health and to modify my behaviors to optimize the length and quality of my life. As an entrepreneur, I see a revolution of the healthcare industry. Soon, technology will be spotting trends and diagnosing problems far quicker and more accurately than doctors.
+			- As data from people around the world are aggregated, explored, and decoded into bits of knowledge, imagine the discoveries that become possible, the mysteries of the human experience that can be solved. With hands at our sides and eyes open, our world becomes that much brighter.
+			- So close that KISSmetrics tab, put down your sales projections, and archive your marketing statistics. Answer this question: what is important to you?
+			- Now go track it.
+			- Top tools for data collection and visualization
+			- The lists below include some, but not all devices. Be sure to do your research when picking the best device for you.
+			- Track anything To start: Use pen and paper or a digital spreadsheet (Google Drive or Excel). My recommendation: AskMeEvery – Simple tracking of meaningful data via email or text Alternatives: IFTTT – Connect your online services (ie. Save foursquare checkins to Google Drive). Daytum – Collect, categorize, and communicate everyday data.
+			- Activity To start: Moves – free mobile app My recommendation: Fitbit . They are one of the few activity tracking companies that promote an open API. Alternatives: Nike Fuelband , Amiigo , Bodymedia , Omron , Misfit Shine , Jawbone Up , RunKeeper , Strava
+			- Sleep To start: SleepCycle – mobile app My recommendation: Zeo Alternatives: Wakemate , Lark
+			- Mood My recommendation: Happiness Alternatives: MoodPanda , Moodscope , Moodjam , MercuryApp
+			- Heart To start: Cardiio – uses the iPhone camera to measure heart rate My recommendation: Emwave2 – heart rate variability tracking and stress reduction Alternatives: Polar , Mio , Basis , Myithlete , Adidas miCoach – training shirt with heart rate sensors, Tinke – heart rate variability
+			- Blood Pressure / Weight My recommendation: Withings Alternatives: Blipcare , iHealth
+			- Blood Testing My recommendation: WellnessFX Alternatives: ((67375dd4-358c-46cf-a50e-ab45c643562d)), Talking20
+			- Miscellaneous
+				- 23andMe – DNA sequencing
+				- uBiome – microbiome sequencing
+				- Lumoback – posture
+				- Nike Hyperdunk – shoes with sensors
+				- Spectracell – micronutrient testing
+				- Dexcom – continuous blood glucose monitor
+				- Quantified-mind – cognitive tracking
+				- Muse – brain sensor
+				- Hapilabs – a fork that tracks eating behaviors
+				- MyFitnessPal – nutrition and diet
+				- RescueTime – productivity Visualization tools: Excel, Tictrac , Nineteen . Indiemapper
+			- Inspiration: FlowingData , Feltron Reports , Visualizing.org
+			- If you want to learn what others are tracking or share your own experiences, join the Quantified Self meetup community.
+				- About the author Mark Moschel
+				- Mark Moschel is a co-organizer for the Chicago Quantified Self meetup community . He also runs a technology startup called AskMeEvery with office space at 1871, is a mentor at the Starter League, and is known on a first name basis at his local Chipotle.
+				- Join the Starter Movement!
+			- Find out for yourself why starters love our newsletter so much. Only the articles and news you want and need, delivered weekly.
+		- Three Temporal Patterns That May Affect Your Quantified Self Insights
+			-
+			- In this post, I will discuss three invisible temporal patterns that are likely to be present in your self-tracking data and which, if ignored during analysis, may lead to erroneous conclusions and interpretations. I am talking about trends, social rhythms and intra-day variability. Trends
+				- The most common mistake that people make when analyzing their self-tracking data is treating it as stationary. In other words, they assume that the variables that they track are independent of time, and are affected only by changes in the treatment or routines. The variables, however, may be slowly changing over time due to some other major, unrelated long-term forces (e.g., learning effect, lifestyle changes, etc.). As a result, they share a common factor – time, which becomes a confounding factor and thus often results in correlation between otherwise unrelated variables.
+				- A good example would be tracking weight and weather during spring and summer. Many people start dieting and working out at the first signs of spring. As a result, they start losing weight. If they were to look at the correlations between the average daily temperature and body weight, they would find a moderate negative correlation: as the temperature increases, their body weight is decreasing. This may lead to erroneous conclusion that warmer temperature is associated with (or even causes) weight loss. In reality, the “relationship” between weight and daily temperature is nothing more but a statistical artefact due to the third “lurking” variable that they have in common: time. Both weight loss and rise of temperature are in fact functions of time, and association between these two is merely a spurious relationship.
+				- Thus, before analyzing your data, it is important to test it for trends and remove potential long-term effects in order to flash-out more . If significant trend is detected, you can transform data by detrending it. There are several ways to detrend data, with the simplest technique (can be done in Excel) called “1-order differencing”. Basically, you take score on day S(t+1) and subtract from it the score from the previous day S(t)). In rare occasions, 1-order differencing is not enough, and you may have to do it again, but most often, one pass should remove the time effect completely.
+				- In the future posts, I will discuss how to perform trend analysis and detrending of your self-tracking data in Excel. In the meantime, here is an chart of my physical energy scores during the summer, original showing trend (blue) and detrended (orange). I am still trying to figure out what caused small but significant and steady decline in my energy levels over the course of summer.
+			- Detecting Trend in Physical Energy Levels and Detrending Data
+				- Social Rhythm
+				- In 1990s, several scientists from Western Psychiatric Institute in Pennsylvania developed a questionnaire for measuring regularity of major daily behaviors, called Social Rhythm Metric. The idea behind the SRM is that certain everyday routines, like waking up, having breakfast/lunch/dinner, going to bed, etc. are performed at a relatively consistent schedule. The deviations from the normal rhythm may be due to major changes in lifestyle, cognitive or psychological health, etc. Unless you are Tim Ferris
+			- , you most likely have different SRM values for 9 to 5 work days vs. weekends and holidays. Your work days are more structured, consistent and “streamlined” when it comes to sleep, meals, and social schedule, whereas weekends and holidays are more flexible and unpredictable. This often translates into differences in patterns of relationships among the same variables when looking at work days vs. weekends data. Here is just one example, using data from my “100 Summer Days” project. If you look at the correlations between the time slept and daily average alertness (I used detrended data because both variables exhibited linear trend), you will see that the correlation on off-workdays was noteworthy and statistically significant (rho = .51), whereas on workdays, there was no statistically significant association. In other words, if I sleep more on holidays and weekends, I am more alert during the day, however, on workdays this pattern disappears. The most obvious explanation for such discrepancy is .. caffeine. I tend to drink a lot of coffee and Yerba Mate throughout the day while at work. As a result, the effect of caffeine masks effects of sleep on my mental alertness.
+				- In the future blog posts, I will discuss how to track and compute Social Rhythm Metric, both passively and manually.
+				- Intra-day Variability
+				- When it comes to tracking traits and other relatively unstable variables, I am a proponent of bi-daily and tri-daily measurements. The reason for that is simple: some variables may have different values when measured at different times of the same day, due to circadian rhythms, lifestyle or other factors. A lot of self-trackers assume that such instability is typical only for subjective variables, like mood or fatigue, but many objectively measured variables (e.g., alertness, body temperature) may also exhibit intra-day differences.
+				- The best way to assess intra-day variability is to track variable bi- or tri-daily for a couple of weeks or even a month, then look at the data. Sometimes, simple chart in Excel is enough to spot the patterns; often, however, you may have to employ statistical analysis to test the differences. Here is, for example, my average alertness scores (measured using Mind Metrics app) logged four times a day: in the early morning (around 8 am), late morning (around noon), afternoon (around 4 or 5 pm), and evening (around 9-10 pm). That peak in the late morning and drop in the evening on workdays are actually statistically significant.
+			- Mental Alertness Throughout the Day
+				- In summary, it important to take in consideration these potential temporal patterns when analyzing your self-tracking data. Plus, the patterns themselves can help you learn more about yourself.
+		- Types of QS projects
+			- Types of QS Projects ](null)[ Quantified-Self projects fall under one of the following categories:
+				- SELF-TRACKING PROJECTS
+				- Progress Measurement (e.g., tracking weight loss, improvement in attention)Habits Design/Behavior Modification (e.g., reinforcing habit of brushing teeth by recording it every time)Accountability (e.g., tracking expenses, or amount of fat in daily mealsSELF-KNOWLEDGE PROJECTS: looking at the relationship between various life variables (e.g.,, comparing mood on Mondays and Fridays, or comparing acid reflux symptoms after consuming different types of meals) SELF-OPTIMIZATION PROJECTS: introducing new variables or manipulating existing variables in order to improve certain aspects in your life (e.g., self-experimenting with herbal remedies to improve quality of sleep)
+				- Most of the apps that I have seen during my search were made with an intention to assist with Self-Tracking projects. As a result, they often offer some kind of visual feedback in form of trendline, so users could track their progress on the chart. What is missing in many cases, however, is the ability to retrieve data. After entering my data for a month, all I would get is just a couple of trendlines in pretty colors. But data portability is crucial when it comes to Self-Discovery and Self-Optimization projects: I want to be able to download my data in order to manipulate and analyze it myself. Preferably, I want my data back in comma separated values (CSV) format.
+				- The most convenient way to export data, at least in my personal opinion, is to simply email it to myself. This is where ](null)[Track & Share actually beats [rTracker. In order to export data from rTracker, I would need to use iTunes. TrackNshare, on the other hand, allows you to email your data right from the app.
+			- or use DAYTUM?
+			- There are a lot of folks trying to bring order to all of this collected data.
+			- Many people are collecting literally thousands of data points every minute, and there are a number of commercial and open-source initiatives underway to aggregate and display this data in actionable ways such as TicTrac, Fluxstream/BodyTrack, and MyMee.
+		- What is qs
+			- What is QS? ](null)[ ](null)[What is QS?
+			- Quantified Self is not expensive devices, or meet-ups, or videos, or even ebooks telling you what to do. Those are tools to an end. If reading this page does anything, my hope is to pass on to some readers the Quantified Self attitude: a playful thoughtful attitude, of wondering whether this thing affects that other thing and what implications could be easily tested.Science without the capital S or the belief that only scientists are allowed to think.
+			- That’s all Quantified Self is, no matter how simple or complicated your devices, no matter how automated your data collection, no matter whether you found a pedometer lying around or hand-engineered your own EEG headset.
+			- Quantified Self is simply about having ideas, gathering some data, seeing what it says, and improving one’s life based on the data. If gathering data is too hard and would make your life worse off - then don’t do it! If the data can’t make your life better - then don’t do it! Not every idea can or should be tested.
+			- The QS cycle is straightforward and flexible:
+				- Have an idea
+				- Gather data
+				- Test the data
+				- Make a change; GOTO 1Any of these steps can overlap: you may be collecting sleep data long before you have the idea (in the expectation that you will have an idea), or you may be making the change as part of the data in an experimental design, or you may inadvertently engage in a natural experiment before wondering what the effects were (perhaps the baby wakes you up on random nights and lets you infer the costs of poor sleep).
+			- The point is not publishable scientific rigor. If you are the sort of person who wants to run such rigorous self-experiments, fantastic! The point is making your life better, for which scientific certainty is not necessary: imagine you are choosing between equally priced sleep pills and equal safety; the first sleep pill will make you go to sleep faster by 1 minute and has been validated in countless scientific trials, and while the second sleep pill has in the past week has ended the sweaty nightmares that have plagued you every few days since childhood but alas has only a few small trials in its favor - which would you choose? I would choose the second pill!
+			- To put it in more economic/statistical terms, what we want from a self-experiment is for it to give us a confidence just good enough to tell whether the expected value of our idea is more than the idea will cost. But we don’t need more confidence unless we want to persuade other people! (So from this perspective, it is possible to do a QS self-experiment which is too good. Much like one can overpay for safety and buy too much insurance - likeextra warranties on electronics such as video game consoles, a notorious rip-off.)
+			- WHAT QS IS NOT: (JUST) DATA GATHERING
+			- One failure mode which is particularly dangerous for QSers is to overdo the data collection and collect masses of data they never use. Famous computer entrepreneur & mathematician Stephen Wolfram exemplified this for me in March 2012 with his lengthy blog post The Personal Analytics of My Life in which he did some impressive graphing and exploration of data from 1989 to 2012: a third of a million (!) emails, full keyboard logging, calendar, phone call logs (with missed calls include), a pedometer, revision history of his tome A New Kind of Science, file types accessed per date, parsing scanned documents for dates, a treadmill, and perhaps more he didn’t mention.
+			- Wolfram’s dataset is well-depicted in informative graphs, breathtaking in its thoroughness, and even more impressive for its duration. So why do I read his post with sorrow? I am sad for him because I have read the post several times, and as far as I can see, he has not benefited in any way from his data collection, with one minor exception:
+			- Very early on, back in the 1990s, when I first analyzed my e-mail archive, I learned that a lot of e-mail threads at my company would, by a certain time of day, just resolve themselves. That was a useful thing to know, because if I jumped in too early I was just wasting my time.Nothing else in his life was better 1989-2012 because he did all this, and he shows no indication that he will benefit in the future (besides having a very nifty blog post). And just reading through his post with a little imagination suggests plenty of experiments he could do:
+				- He mentions that 7% of his keystrokes are the Backspace key.
+			- This seems remarkably high and must be slowing down his typing by a nontrivial amount. Why doesn’t he try a typing tutor to see if he can improve his typing skill, or learn the keyboard shortcuts in his text editor? If he is wasted >7% of all his typing (because he had to type what he is Backspacing over, of course), then he is wasting typing time, slowing things done, adding frustration to his computer interactions and worst, putting himself at greater risk of crippling RSI.
+				- How often does he access old files? Since he records access to all files, he can ask whether all the logging is paying for itself.
+				- Is there any connection between the steps his pedometer records and things like his mood or emailing? Exercise has been linked to many benefits, both physical and mental, but on the other hand, walking isn’t a very quick form of exercise. Which effect predominates? This could have the practical consequence of scheduling a daily walk just as he tries to make sure he can have dinner with his family.
+				- Does a flurry of emails or phone calls disrupt his other forms of productivity that day? For example, while writing his book would he have been better off barricading himself in solitude or working on it in between other tasks?
+				- His email counts are astonishingly high in general:
+			- Is answering so many emails really necessary? Perhaps he has put too much emphasis on email communication, or perhaps this indicates he should delegate more - or if running Mathematica is so time-consuming, perhaps he should re-evaluate his life and ask whether that is what he truly wants to do now. I have no idea what the answer to any of these questions are or whether an experiment of any kind could be run on them, but these are key life decisions which could be prompted by the data - but weren’t.
+			- Another QS piece(It’s Hard to Stay Friends With a Digital Exercise Monitor) struck me when the author, Jenna Wortham, reflected on her experience with her Nike+ FuelBand motion sensor:
+			- The forgetfulness and guilt I experienced as my FuelBand honeymoon wore off is not uncommon, according to people who study behavioral science. The collected data is often interesting, but it is hard to analyze and use in a way that spurs change. It doesn’t trigger you to do anything habitually, said Michael Kim, who runs Kairos Labs, a Seattle-based company specializing in designing social software to influence behavior…Mr. Kim, whose résumé includes a stint as director of Xbox Live, the online gaming system created by Microsoft, said the game-like mechanisms of the Nike device and others like it were not enough for the average user. Points and badges do not lead to behavior change, he said.One thinks of a saying of W. Edwards Deming: Experience by itself teaches nothing. Indeed. A QS experiment is a 4-legged beast: if any leg is far too short or far too long, it can’t carry our burdens.
+			- And with Wolfram and Wortham, we see that 2 legs of the poor beast have been amputated. They collected data, but they had no ideas and they made no changes in their life; and because QS was not part of their life, it soon left their life. Wortham seems to have dropped the approach entirely, and Wolfram may only persevere for as long as the data continues to be useful in demonstrating the abilities of his company’s products.
+			- Why QS?
+			- 1) Awareness of our current self
+			- 2) Is that who we want to be? get intentional and deliberate to become your best self
+				- 5 Reasons why you should be self-tracking
+			- August 15, 2013 | Posted in Self-tracking
+			- Watching ‘Monitor Me’, the BBC Two documentary on self-tracking, got me reflecting on my reasons for leading a quantified life. The documentary did a decent job of outlining some benefits of self-tracking, but I’m not sure it hit home to the layman just how the pursuit helps us be more awesome. So here’re my top five reasons for why you should hop aboard the quantified self bandwagon.
+			- 1. Motivation Lack of motivation it the number one obstacle hampering our pursuit of better health. It takes motivation to hit the gym after eight hours in the office. Motivation helps us swap that doughnut for a diet soda, and it turns 15 minutes of regular meditation from a chore into a habit.
+			- Data showing exactly where you’ve come from and how you’re currently performing is a powerful antidote to poor motivation. As the trajectory of your weight creeps upwards, or your sleep quality tanks, it’s hard not to be forced into action.
+			- 2. Achieving Goals In our ongoing pursuit of better health and wellbeing, we all have goals we’d like to achieve –whether it’s an ideal physique, more quality time spent with our family or smoking less. We all have personal destinations we’d like to reach.
+			- Without self-tracking, goals are mushy and ethereal – it’s hard to work towards a target number, if you’re not entirely sure what your numbers currently look like. By associating a number with your goal – add 1cm to my biceps, keep my blood glucose below 5.5mmol/L – a blurry target comes sharply into focus and your current tracking data shows a clear path to the finish line.
+			- 3. Modifying Behaviour We all suspect that certain behaviours trigger a negative reaction – that glass of wine might be the reason for my crappy sleep; driving to the office instead of cycling is probably the cause of my more stressful day. But for most of us, these suspected triggers remain just that – ‘suspected’.
+			- Quantified Self turns ‘suspecting’ into ‘knowing’. And when you know that a certain action will trigger a specific reaction, it strengthens our awareness and makes it psychologically easier to avoid detrimental behaviour to begin with.
+			- 4. Self-Awareness The Greeks got it right more than ten centuries ago with the famous aphorism, “Know thyself”. An intrinsic understanding of what makes us tick – what makes us happy, what causes us stress – should be a top pursuit, simply because it allows us to optimise our lifestyle to achieve a constant state of awesomeness.
+			- A profound sense of self-awareness is a by-product of the quantified experience. Trends in your behaviour become clearer, and will likely influence your future actions. Think about it….what happens when you notice you’re reporting lower happiness whenever you’re with your spouse; or discover that 85% of your day is spent in the office? The data doesn’t lie. These realisations might be uncomfortable and force some tough decisions, but the change will be for the better.
+			- 5. Better Diagnosis Doctors make their diagnoses with the information they have available – a combination of patient records, reported symptoms and lab results. But this is an incomplete dataset. With access to a patient’s self-tracking numbers, doctors are equipped with a more holistic view of their state of health, enabling the practitioner to make better diagnoses and decide more optimal lines of treatment.
+			- Doctors will probably be resistant to introduction of this new patient data. The effective use of self-tracking data is not yet taught in medical school. But as the cost-saving potential of QS data is increasingly exploited by healthcare trusts, hospitals and insurance companies, and technologies emerge to help practitioners extract meaning from the deluge of patient data, the medical community will come to embrace it.
+			- ==
+			- So there you go….five reasons for you to get started on your quantified self journey. Buckle up and enjoy the ride.
+			- You’re a Quantified Self-er and don’t even know it
+			- July 4, 2013 | Posted in Latest News, Quantified Self
+			- As with any new phenomenon that’s gradually emerging into the mainstream, the concept of self-tracking, or self-quantification, is not widely understood. The term can mean different things to different people and different communities. The quantified self (QS) movement would consider the regular measurement of any personal detail, regardless of how obscure, as a form of self-tracking. But my aunt recording her weight, exercise and diet sees this as simply part of achieving her goal of shedding a few pounds.
+			- Defining ‘self-tracking’
+			- Crystallizing out a definition for ‘self-tracking’ as it pertains to the new QS movement is important because it allows people to recognize that they’re in fact part of this growing community. So, I thought it’d be worth having a stab at defining what exactly self-tracking is:
+			- “Self-tracking is the process of recording any aspect of your physical activity, cognition, wellbeing, lifestyle and environment as quantifiable data on a regular, ongoing basis, with the intention of identifying actionable changes that lead to self-improvement.”
+			- Let’s break this definition down:
+			- I think the categories of “activity, cognition, wellbeing, lifestyle and environment” are sufficiently broad to include virtually any personal aspect that someone would want to quantify and track about themselves, although I’m sure there’re individual metrics that fall between the gaps.
+				- Activity covers all physical exercise and movement
+				- Cognition relates to mental functions like memory and alertness
+				- Wellbeing is perhaps the broadest category, covering all aspects of health – mood, blood markers, pain, medical conditions etc. – diet, medication and supplementation
+				- Lifestyle is another broad category, and includes activity on Facebook, time spent commuting, or vices like smoking and gambling
+				- Environment relates to your surrounding conditions, such as the weather (was it humid today?), pollen count and background noiseA fundamental aspect about personal measurements is that they’re quantifiable in some way. This is obvious for a metric like body weight, which is always expressed as a value with associated units (76kg), but less obvious for a cognitive metric like memory. Ultimately, whatever the metric, the measurement must be translatable into a numerical value. So, expressing memory on a particular day as “poor” can, for example, be numerically rated as 2 out of 5, on a scale where a value of 1 is ‘bad’ and 5 is ‘excellent’.
+			- It might seem obvious, but there must be some degree of regularity in taking measurements. Noting your sleep duration a couple times, weeks apart, cannot be considered as self-tracking. But there needs to be some flexibility with frequency – a metric like sleep is best recorded daily, but applying the same regularity to your LDL cholesterol is probably overkill.
+			- The final component of the definition might prove controversial: the aim of self-tracking, the reason for collecting these regular measurements, is to instigate some form of personal change. I think this aspect is necessary because, without it, rudimentary or incidental forms of data collecting, like a child’s height as it grows or your record of FourSquare check-ins, all become forms of self-tracking. But if these are not leveraged for self-improvement, they’re not strictly ‘self-tracking’.
+			- With this definition it’s obvious QS is a much larger phenomenon than is recognized. Take a look at your own behavior. Are you tracking your weekly jog on Runkeeper? Is there a Jawbone UP or Nike Fuelband strapped to your wrist, or a fitbit in your pocket? Perhaps you’re using RescueTime to measure your productivity, or mappiness to track your mood? You might not know it, but you’re probably a Quantified Self-er. So, on behalf of the movement…welcome! Things are about to get pretty exciting.
+		- Value of Information (VOI)
+			- VALUE OF INFORMATION (VOI) ](null)[ ](null)[
+			- See also the discussion as applied to ordering modafinil and testing nootropicsWe all know it’s possible to spend more time figuring out how to save time on a task than we would actually save time like rearranging books on a shelf or cleaning up in the name of efficiency (xkcd even has a cute chart listing the break-even points for various possibilities,Is It Worth The Time?), and similarly, it’s possible to spend more money trying to save moneythan one would actually save; less appreciated is that the same thing is also possible to do with gaining information.
+			- The value of an experiment is the information it produces. What is the value of information? Well, we can take the economic tack and say value of information is the value of the decisions it changes. (Would you pay for a weather forecast about somewhere you are not going to? No. Or a weather forecast about your trip where you have to make that trip, come hell or high water? Only to the extent you can make preparations like bringing an umbrella.)
+			- Wikipedia says that for a risk-neutral person, value of perfect information is value of decision situation with perfect information - value of current decision situation. (Imperfect information is just weakened perfect information: if your information was not 100% reliable but 99% reliable, well, that’s worth 99% as much.)
+			- The decision is the binary take or not take. Melatonin costs ~$10 a year (if you buy in bulk during sales, as I did). Suppose I had perfect information it worked; I would not change anything, so the value is $0. Suppose I had perfect information it did not work; then I would stop using it, saving me $10 a year in perpetuity, which has a net present value8 (at 5% discounting) of $205. So the best-case value of perfect information - the case in which it changes my actions - is $205, because it would save me from blowing $10 every year for the rest of my life. My melatonin experiment is not perfect since I didn’t randomize or double-blind it, but I had a lot of data and it was well powered, with something like a >90% chance of detecting the decent effect size I expected, so the imperfection is just a loss of 10%, down to $184. From my previous research and personal use over years, I am highly confident it works - say, 80%9.
+			- If the experiment says melatonin works, the information is useless to me since I continue using melatonin, and if the experiment says it doesn’t, then let’s assume I decide to quit melatonin10 and then save $10 a year or $184 total. What’s the expected value of obtaining the information, giving these two outcomes? (80. Or another way, redoing the net present value: 10−0ln1.05×0.9×0.2 At minimum wage opportunity cost of $7 an hour, $36.8 is worth 5.25 hours of my time. I spent much time on screenshots, summarizing, and analysis, and I’d guess I spent closer to 10-15 hours all told.
+			- This worked out example demonstrates that when a substance is cheap and you are highly confident it works, a long costly experiment may not be worth it. (Of course, I would have done it anyway due to factors not included in the calculation: to try out my Zeo, learn a bit about sleep experimentation, do something cool, and have something neat to show everyone.)
+			- VALUE OF INFORMATION (VOI)
+			- See also the discussion as applied to ordering modafinil & evaluating sleep experiments.The amphetamine mix branded Adderall is terribly expensive to obtain even compared to modafinil, due to its tight regulation (a lower schedule than modafinil), popularity in college as a study drug, and reportedly moves by its manufacture to exploit its privileged position as a licensed amphetamine maker to extract more consumer surplus. I paid roughly $4 a pill but could have paid up to $10. Good stimulant hygiene involves recovery periods to avoid one’s body adapting to eliminate the stimulating effects, so even if Adderall was the answer to all my woes, I would not be using it more than 2 or 3 times a week. Assuming 50 uses a year (for specific projects, let’s say, and not ordinary aimless usage), that’s a cool $200 a year. My general belief was that Adderall would be too much of a stimulant for me, as I am amphetamine-naive and Adderall has a bad reputation for letting one waste time on unimportant things. We could say my prediction was 50% that Adderall would be useful and worth investigating further. The experiment was pretty simple: blind randomized pills, 10 placebo & 10 active. I took notes on how productive I was and the next day guessed whether it was placebo or Adderall before breaking the seal and finding out. I didn’t do any formal statistics for it, much less a power calculation, so let’s try to be conservative by penalizing the information quality heavily and assume it had 25%. So 200−0ln1.05×0.50×0.25=512! The experiment probably used up no more than an hour or two total.
+			- Vaniver argues that since I start off not intending to continue Adderall, the analysis actually needs to be different:
+			- In 3, you’re considering adding a new supplement, not stopping a supplement you already use. The I don’t try Adderall case has value $0, the Adderall fails case is worth -$40 (assuming you only bought 10 pills, and this number should be increased by your analysis time and a weighted cost for potential permanent side effects), and the Adderall succeeds case is worth $X-40-4099, where $X is the discounted lifetime value of the increased productivity due to Adderall, minus any discounted long-term side effect costs. If you estimate Adderall will work with p=.5, then you should try out Adderall if you estimate that 0.5×(X−4179)>0 -> X>4179. (Adderall working or not isn’t binary, and so you might be more comfortable breaking down the various how effective Adderall is cases when eliciting X, by coming up with different levels it could work at, their values, and then using a weighted sum to get X. This can also give you a better target with your experiment- this needs to show a benefit of at least Y from Adderall for it to be worth the cost, and I’ve designed it so it has a reasonable chance of showing that.)One thing to notice is that the default case matters a lot. This asymmetry is because you switch decisions indifferent possible worlds - when you would take Adderall but stop you’re in the world where Adderall doesn’t work, and when you wouldn’t take Adderall but do you’re in the world where Adderall does work (in the perfect information case, at least). One of the ways you can visualize this is that you don’t penalize tests for giving you true negative information, and you reward them for giving you true positive information. (This might be worth a post by itself, and is very Litany of Gendlin.)
+			- Either way, this example demonstrates that anything you are doing expensively is worth testing extensively.
+			- VOI
+			- For background on value of information calculations, see the Adderall calculation.
+				- Cost:
+			- This would be a very time-consuming experiment. Any attempt to combine this with other experiments by ANOVA would probably push the end-date out by months, and one would start to be seriously concerned that changes caused by aging or environmental factors would contaminate the results. A 5-year experiment with 7-month intervals will probably eat up 5+ hours to prepare <12,000 pills (active & placebo); each switch and test of mental functioning will probably eat up another hour for 32 hours. (And what test maintains validity with no practice effects over 5 years? Dual n-back would be unusable because of improvements to WM over that period.) Add in an hour for analysis & writeup, that suggests >38 hours of work, and 38×7.25=275.5. 12,000 pills is roughly $12.80 per thousand or $154; 120 potassium iodide pills is ~$9, so 365.25120×9×5=137.
+				- The time plus the gel capsules plus the potassium iodide is $567.
+					- Benefit:
+			- Some work has been done on estimating the value of IQ, both as net benefits to the possessor (including all zero-sum or negative-sum aspects) and as net positive externalities to the rest of society. The estimates are substantial: in the thousands of dollars per IQ point. But since increasing IQ post-childhood is almost impossible barring disease or similar deficits, and even increasing childhood IQs is very challenging, much of these estimates are merely correlations or regressions, and the experimental childhood estimates must be weakened considerably for any adult - since so much time and so many opportunities have been lost. A wild guess: $1000 net present value per IQ point. The range for severely deficient children was 10-15 points, so any normal (somewhat deficient) adult gain must be much smaller and consistent with Fitzgerald 2012’s ceiling on possible effect sizes (small).
+				- Let’s make another wild guess at 2 IQ points, for $2000.
+					- Expectation:
+			- What is my prior expectation that iodine will do anything? A good way to break this question down is the following series of necessary steps:
+				- how much do I believe I am iodine deficient?
+			- (If I am not deficient, then supplementation ought to have no effect.) The previous material on modern trends suggests a prior >25%, and higher than that if I were female. However, I was raised on a low-salt diet because my father has high blood pressure, and while I like seafood, I doubt I eat it more often than weekly. I suspect I am somewhat iodine-deficient, although I don’t believe as confidently as I did that I had a vitamin D deficiency. Let’s call this one 75%.
+				- If deficient, how likely would it help at my age?
+			- (The effect may exist only at limited age ranges - like height, once you’re done growing, few interventions short of bone surgery will make one taller or shorter.) So this is one of the key assumptions: can we extend the benefits in deficient children to somewhat deficient adults?
+				- Fitzgerald 2012 and the general absence of successful experiments suggests not, as does the general historic failure of scores of IQ-related interventions in healthy young adults. Of the 10 studies listed in the original section dealing with iodine in children or adults, only 2 show any benefit; in lieu of a meta-analysis, a rule of thumb would be 20%, but both those studies used a package of dozens of nutrients - and not just iodine - so if the responsible substance were randomly picked, that suggests we ought to give it a chance of 20 of being iodine! I may be unduly optimistic if I give this as much as 10%.
+					- If it would help at my age, how likely do I think my supplementation would hit the sweet spot and not under or overshoot?
+			- (We already saw that too much iodine could poison both adults and children, and of course too little does not help much - iodine would seem to follow a U-curve like most supplements.) The listed doses at iherb.comoften are ridiculously large: 10-50mg! These are doses that seems to actually be dangerous for long-term consumption, and I believe these are doses that are designed to completely suffocate the thyroid gland and prevent it from absorbing any more iodine - which is useful as a short-term radioactive fallout prophylactic, but quite useless from a supplementation standpoint. Fortunately, there are available doses at Fitzgerald 2012’s exact dose, which is roughly the daily RDA: 0.15mg. Even the contrarian materials seem to focus on a modest doubling or tripling of the existing RDA, so the range seems relatively narrow. I’m fairly confident I won’t overshoot if I go with 0.15-1mg, so let’s call this 90%.
+				- Conclusion: 75% times 10% times 90% is 6.3%.
+					- EV of taking iodine
+				- Now, what is the expected value (EV) of simply taking iodine, without the additional work of the experiment? 4 cans of0.15mg x 200 versus a 20% chance of $2000 or $400. So the expected value is greater than the NPV cost of taking it, so I should start taking iodine.
+					- Value of Information
+			- Finally, what is the value of information of conducting the experiment?
+			- With an estimated power of 75%, and my own skeptical prior of 20% that there’s any effect worth caring about, and a potential benefit of $2000, that’s 0.75×0.063×2000=95. We must weigh $95 against the estimated experimentation cost of $567. Since the information is worth less than the experiment costs, I should not do it.
+			- But notice that most of the cost imbalance is coming from the estimate of the benefit of IQ - if it quadrupled to a defensible $8000, that would be close to the experiment cost! So in a way, what this VoI calculation tells us is that what is most valuable right now is not that iodine might possibly increase IQ, but getting a better grip on how much any IQ intervention is worth.
+			- So the overall picture is that I should:
+				- start taking a moderate dose of iodine at some point
+				- look into cheap tests for iodine deficiency
+				- One self-test suggested online](http://altmedangel.com/iodine.htm) involves dripping iodine onto one’s skin and seeing how long it takes to be absorbed. This seems plausible, but according to [Derry](http://thyroid.about.com/library/derry/bl2a.htm) and [Abraham, it is unreliable.
+				- Home urine test kits of unknown accuracy are available online (Google iodine urine test kit) but run $70-$100+ eg. Hakala Research.
+			- try to think of cheaper experiments I could run for benefits from iodine
+			- VOI
+			- For background on value of information calculations, see the Adderall calculation.Low-dose lithium orotate is extremely cheap, ~$10 a year. There is some research literature on it improving mood and impulse control in regular people, but some of it is epidemiological (which implies considerable unreliability); my current belief is that there is probably some effect size, but at just 10mg, it may be too tiny to matter. I have ~40% belief that there will be a large effect size, but I’m doing a long experiment and I should be able to detect a large effect size with >75% chance. So, the formula is NPV of the difference between taking and not taking, times quality of information, times expectation: 10−0ln1.05×0.75×0.40=61.4, which justifies a time investment of less than 9 hours. As it happens, it took less than an hour to make the pills & placebos, and taking them is a matter of seconds per week, so the analysis will be the time-consuming part. This one may actually turn a profit.
+	- Hobbies
+		- Camping/backpacking thread
+		    collapsed:: true
+			- https://www.rooshvforum.com/thread-48922-post-1060891.html#pid1060891
+		- Coffee shop routine
+		    collapsed:: true
+			- coffee shop routine
+				- * Don't get into caffeine habit for drug effect + teeth staining
+				- * Useful for approaches + socialising vibe
+				- * Can only be done for short periods though as going to the bathroom can result in laptop disappearing
+				- *
+					- * But padlock on bag zippers + bike lock through chair
+			- After the shower I will shave, apply deodorant, then get dressed in nice, fresh, clean clothes.
+			- Then I will put on a $500 watch and I will go upstairs to my home office to catch up on emails and start my work for the day.
+			- At some point during mid-morning I will get on my motorbike and go to a local coffee shop to work.
+			- I like to get some fresh air from the bike ride (even though I wear a mask) and, unlike the Vietnamese who cover every piece of skin, I wear light shirts so my body can soak in some vitamin D from the sun.
+			- I make it a point to leave the house daily because it’s not good to be cooped up inside all day, even if you do live in a mansion, and I enjoy the chilly air and the feeling of freedom as I approach 80 km/h on the wild highways of Saigon.
+			- At the coffee shop I will order a cappuccino, a water and a fresh pineapple juice.
+			- I will continue working until I feel the wooden chair become uncomfortable, at which point I will ask for the check and I will leave. As a tip I will leave whatever small money they give back to me.
+		- Cryotherapy
+		    collapsed:: true
+			- Cryotherapy (3 mins like Bond)
+			- - Rapid deep breathing technique produces heat
+		- Cards
+		    collapsed:: true
+			- How to Riffle and Bridge Shuffle
+			  id:: 644c0a30-cef5-4f70-83aa-4429b6e896ad
+				- http://www.pokerology.com/articles/how-to-shuffle-cards/
+				- http://www.wikihow.com/Riffle-and-Bridge-Shuffle
+				- [- YouTube](https://youtu.be/NdCia_d1u5c)
+					- {{video https://youtu.be/NdCia_d1u5c}}
+					-
+	- Other
+	- Travel
+		- Gov debt as % of GDP https://i.imgur.com/p6yoGmQ.png
+		- Day of flight - create reminders 3 hours before (to leave) and 4 hours before (finish packing)
+- Credit card arbitrage
+    collapsed:: true
+	- ((649b1370-ef5b-44a2-80e1-140e09661957))
+	- https://wwvv.rooshvforum.com/ thread-35892.html
+		- Here's the one I was talking about
+		- It introduces the idea of manufactured
+		- spend, which is really the core concept of
+		- the hustle
+		- isaac_jordan
+		- 19:36
+		- Flyer talk and all those sites are great
+		- but they can be information overload
+		- for guys new to the hustle. I generally
+		- recommend grabbing a few Chase cards
+		- with the big sign up bonuses (Sapphire
+		- Preferred, Freedom, Ink Plus should
+		- get you about 130k points, which can
+		- be shared across various airlines and
+		- multiplied by 1.25 when booked through
+		- the chase website), and then another
+		- card or two for regular expenses (varies,
+		- depending on how their monthly budget
+		- looks)
+		- The 130k chase points should get you
+		- 2-3 international flights or 5-6 domestic,
+		- and the cost of hitting the spend will
+- OCR
+    collapsed:: true
+	- tesseract-ocr
+	- Tesseract is probably the most accurate
+	- open source OCR engine available.
+	- leptonica
+	- Leptonica is a pedagogically-
+	- oriented open source site containing
+	- software that is broadly useful for
+	- image processing and image analysis
+	- applications.
+	- hocr2pdf from exactCODE
+	- hocr2pdf is a command line front-end for
+	- the image processing library to create
+	- perfectly layouted, searchable PDF files
+	- from hOCR, annotated HTML, input
+	- obtained from an OCR system.
+- Guns
+    collapsed:: true
+	- http://i.imgur.com/mYOSMtmh.jpg
+	- Concealed carry Short Barrel Rifleshttp://shortbarrelshepherd.com/i-carried-a-rifle-to-work-for-over-two-years-and-you-wouldnt-believe-what-happened/
+- Phone innovation
+    collapsed:: true
+	- [24/11, 13:18] Aaron: It's interesting to see how phones are going to innovate now that normal specs are reaching peak utility for a mobile[24/11, 13:18] Aaron: https://youtu.be/Lc1Qq5LZPCw this liquid metal design might become big[24/11, 13:20] Aaron: Thats their previous model too
+	- Their new one:Turing Robotics Industries (TRI) announced the Turing Phone Cadenza in a mailing list, according to a report in AndroidPolice. On paper, it is easily the best smartphone in the world. The phone is powered by not one but two of the rumoured Qualcomm Snapdragon 830 chipsets, supported by 2 6GB RAM modules, giving the phone a total of 12GB RAM. The rear camera is 60 megapixels, and the front camera is 20 megapixels. Perhaps to compensate for the lower megapixel count on the selfie shooter, there are two front cameras included.
+	- Also 1TB space, hydrogen battery etc
+	- https://blog.torproject.org/blog/mission-improbable-hardening-android-security-and-privacy
+	- Directional antenna in one direction to throw off triangulation
+	- Takes multiple SIM cards and can be used with Tasker to switch between them based on time/location. Also needs baseband processor isolation, IMEI spoofer (think IMEI is located baseband processor), SIM card isolation and IMSI spoofer app
+- Productivity
+    collapsed:: true
+	- http://wallstreetplayboys.com/goals-cause-depression/
+	- Do work in blocks of one hour - Roosh
+		- Your brain can not handle continuous, neverending work. Like a muscle that becomes tired of exertion, it needs frequent periods of rest. Therefore you should only do work in blocks of one hour. During this hour, do not check your phone for messages, do not go on the internet, and do not socialize. The hour is sacred in that you must stay on your task until the timer says you are done. Even if you don’t want to do the work, you are only allowed to stare blankly at the task before you instead of seeking out entertainment or distraction.
+		- This is the main strategy I use to write books. A significant portion of my one hour blocks is spent staring at the blinking cursor on my screen, but I prevent myself from doing anything else. It actually happens that staring becomes more boring than working, so gradually I pile words onto the document. Compare that to most normal people who perform work in short 10 or 15 minute increments. It takes them 3 hours to do 1 genuine hour of work.
+- [ subscription to a lawn mowing service
+    collapsed:: true
+	- I suppose I don't "own" this, as it's a s subscription to a lawn mowing service. I suppose I don't "own" this, as it's a service, but nonetheless, I'll include it, because it's within the scope of the subject matter. Not having to mow your own lawns is fantastic. Getting out there, sometimes in the sun, and getting dehydrated, then spending the rest of the day re-hydrating, was a waste of productive time. Automating that task has resulted in increased productivity, and increased happiness. Again, it allows me to focus on the important things.
+- There are five elements for success in all human endeavors:
+    collapsed:: true
+	- 1. A morally just cause (Selling products or services needed by the people - providing for the peoples health happiness and common defense - providing safe roads and cities and towns for the people etc etc)
+	- 2. A competent General (Leader, Chairman, CEO etc)
+	- 3. A disciplined organization (Countries, Armies, Corporations)
+	- 4. A knowledge of the cycles of life, power, modern markets, wealth creation and the seasons.
+	- 5. An adequate war-chest (Treasure or Money is a necessary tool to accomplish anything of merit).
+- Lifestyle improvement
+    collapsed:: true
+	- I will avoid ________, ______, and __ because those situations drain me. I will seek out _____, ________, and ________ because, while those situations are stressful, they lead me to personal growth and enlightenment.
+- Deflect or Agree with Everything (a Huge Time Saver with Regular People)
+    collapsed:: true
+	- Post
+		- [](http://wallstreetplayboys.com/deflect-or-agree-with-everything-a-huge-time-saver-with-regular-people/)
+		- This blog is essentially regular people repellant. The average person takes one look at the name of the website and eyes begin to roll. Instead of reading through and finding out we’ve already met several people in real life and this is not run by a bunch of broke people, the average person moves along quickly. In essence, this website encapsulates what we call “rapport breaking”. Everything about it is set up to push away and detract regulars (also known as mosquitoes).
+		- Now unfortunately… you’re going to have to interact with regulars on a daily basis and no one should take on the tone that we use in this blog (although it’s what we actually think!). We’ll go ahead and summarize the best way to go about your day to decrease your interactions with these value leeches …. Deflect or Agree.
+		- Two Key Principles
+		- Principle #1 – The Blame or Praise Game: The average person believes in superstitions. Make no mistake about it. The typical person has lucky socks or lucky shirts or some insane item categorically unrelated to success or failure. This is an absolute necessity to understand. People will attribute “value” to obscure objects that are unrelated to success or failure.
+		- If you said hi to someone in the hallway and they got fired 20 seconds later… There is a chance they will blame you for the event! In addition, if you said hi to that same person 20 seconds before getting a promotion, they might view you as “lucky”.
+		- There is a reason why weather women routinely get hate email in volatile climate areas and it has nothing to do with logic or reason. They are just looking for someone to blame.
+		- This strange phenomenon is also known as “Shooting the Messenger” or blaming the person who delivers bad news. Unfortunately, the phrase is not entirely correct. The correct way to understand this phenomenon is “Shoot or Praise the Messenger”. If you need an example of praising an unrelated messenger… just look at Television Game shows where people hug and kiss the host of the show even though he had nothing to do with them winning the prize. All of the people who win the prize will say “the host was amazing!”.
+		- Hopefully, with the short paragraphs above, you’ve already identified a few people who view you favorably or unfavorably for unrelated reasons.
+		- Principle #2 – Forced Connections Cause More Hate: This is the second most important item to understand. Due to some sort of “sixth sense” people do not like it when others attempt to become the messenger (or avoid being the messenger). If a good event happens and an individual comes out of the woodwork to praise them… a baseline value of contempt is built. In the reverse scenario, if you witness a negative event and run away suddenly, the person will then believe you had something to do with it and… a baseline value of contempt is built.
+		- Now we see the clear conundrum. Fortunately, there is an answer which is the *Deflect or Agree* framework.
+		- Deflect or Agree
+		- Deflection Points:
+		- Avoiding the Blame or Praise in the First Place: Once we all agree that there is an implicit blame or praise dynamic at play the first step is to play offense. Like practically everything else in life, playing offense sure beats playing defense because you can continue to put the pressure on the opposing team to recover. Playing offense in this case requires you to *deflect* situations where Blame or Praise will take place. The last thing you want to do is have a group of regular people blaming you for their problems (regular people have a TON of problems with nothing to lose). In addition, you don’t want them asking you for help either (time suck).
+		- #1 Steer the Conversation: Since you’ll develop a solid baseline set of sales skills, you will have solid conversational abilities to help steer any and all conversations. You’ll naturally find yourself mirroring the body language of everyone you speak with, helping you establish a baseline level of rapport and nothing more. Now your goal is to avoid being associated with anything positive or negative. *Deflect* the conversation to irrelevant pop culture or headline items.
+		- For one reason or another, this seems to work and there is always some meaningless article on Yahoo, Twitter moments or otherwise to pull from. The most consistent item to use is a “widget description” conversation. During the rare times where you’re forced to interact with regulars you will ask them about the latest “widget” that came out. New iPhone, New Oculus Rift, New Restaurant… so on and so forth. Now you’ll see what we’ve done with this set up!
+		- After steering the conversation to something “new” that came out you get to ask questions about it since 90% of people will know about it. Pretend you don’t know much about it and have them *explain* the widget or what food the restaurant serves, so on and so forth. This is key as you become the “student” in this situation and the person will feel like they added value by giving you information. Importantly, do not ask them for any actual advice. All you are doing is asking for *descriptions*. This will make it extremely difficult for them to claim that they added any value to your life since all they did was regurgitate something you could have learned with a five second google search.
+		- In short, ask for descriptions of innocuous items and be happy/jovial about the response so you can be the “normal” guy in their eyes.
+		- #2 Deflect All Advice Related Topics: Unless you’re asked for it, never give any advice. People don’t want advice they just want to hear what they already believe. Since you’ll rarely be asked for any advice (a good thing), don’t dig your own grave by giving out advice on any topic. Never have an opinion on sports games, politics, making money or otherwise. In fact, if at all possible, your default deflection response is “I don’t know anything about XXXX to be honest, I really wish I knew but I’ve never learned about XXXXX”.
+		- There is a strange part of human nature where it is difficult to watch someone do something incorrectly (your instinct is to help)… Don’t do it! They won’t want the help and even if you’re right they typically won’t listen. Again, don’t give any advice and deflect all advice related topics.
+		- You know you’re moving in the *wrong* direction when regular people are asking you questions all the time in your day to day life. Deflect *all* topics away from anything opinionated.
+		- #3 Physical Deflection: You know who regular people don’t trust? They don’t trust clumsy people (psychology). So you’ve guessed it! Appear a bit clumsy. If you know you’ll be forced into a regular person interaction mess things up a bit. Make your collar unaligned, carry a glass of water far too full of liquid so you’re walking around carefully and spilling a tad and of course carelessly drop irrelevant items here and there.
+		- People will not ask for advice from someone they view as clumsy so physically acting the part can certainly help deter any questions. To add to the clumsy-ness you can ramble when asked basic questions so people become a bit frustrated that it takes you five sentences to say something that could have been communicated in 10 words.
+		- Final Note on Deflection: While we’ve kept it short, these three items alone will make it excruciatingly difficult to be involved in any blame or praise situation. We’d wager you’re safe 90% of the time if you follow those cardinal rules: 1) steer to description related conversations – them talking not you, 2) avoid opinions by pointing to a certain aspect where you know “nothing about it” and 3) physically act a bit off or clumsy to avoid direct questions (bonus: they will talk secretly about how they can’t believe you’re so clumsy!)
+		- Agreement Points:
+		- De-coupling the Connection: Life isn’t fair. No matter what you do you’re going to have “regular” people ask for your opinion at some point. There is no escaping this situation. Sure we would all rather physically peel back each and every nail from our fingernails to our toenails than be in this situation… but… like paying your taxes, you’re going to be forced into this situation from time to time. We’re now in agreement mode to avoid the contempt framework where you’re associated with some sort of an event where you want no responsibility.
+		- #1 Guess Their Opinion: This requires a lot of quick thinking but you may be able to knock it out quickly. Anyone who asks for advice just wants to hear their own opinion as stated above (reason for avoiding advice). Your goal is to guess their opinion… the one that they have *already* formulated. Typically the structure is *start small and agree*.
+		- If someone is asking about making money, start with some outrageously small way to earn money off their current skill set (time for money exchange for the win!). If it is about physical change add some meaningless item that adds a couple minutes to their exercise routine (add a few sprints!). So on and so forth.
+		- Notice… the framework is exactly the same as advertising directed towards regular people. It involves some small “trick” that will “transform or shock” the person. What this really means is that people are looking for small changes. No one wants real advice that requires work, they just want some tiny change that will “change things”. The enormous benefit of this line of thinking is that your small edit or suggestion won’t hurt or help them. It will be neutral. This helps you avoid future requests and helps you avoid contempt (their feelings towards you).
+		- #2 Suggest a Third Party: Have a quick list of large popular websites and forums to refer the person to. This is a great way to avoid repeat advice. You’re going to bank on herd mentality. By recommending a large popular website or forum for the answer you can guarantee at least one person on the website/forum knows what they are talking about and you avoid burning one of your actual contacts who knows the answer inside and out.
+		- #3 Keep the Smile and Nod Consistent: Keeping everything together, once you find that you’re in “agreement” with some innocuous change lock into the smile and nod set up. “Hmm yeah that makes a lot of sense” should be your gut reaction and make it seem like they got something out of the conversation.
+		- Final Note on Agreement: You’re going to find yourself in this situation a few times and you’ll be forced to provide an opinion. If you can zero in and agree on some small meaningless change you’ll reap the following benefits: 1) no impact in being blamed or praised and 2) correct deflection to a “good source” saving you time
+		- Concluding Remarks
+		- – This set up is specifically for dealing with regular people since they will not change
+		- – Regular people are extremely emotional and irrational and will blame or praise you for association
+		- – Don’t try to be involved positively or negatively *stay neutral*. If you try to swing it to be a positive you could build contempt and on the flip side they may ask you for more advice (time suck!). No winning in swinging the pendulum.
+		- – Play offense by deflecting all conversations to description based items when possible. If you’re forced into those boring topics like sports then go ahead and play “neutral” which is something regional based (home team fan for example).
+		- – If forced into advice situations, start SMALL. No regular person actually wants to improve their life they want some small trick that could change everything for them. By making small irrelevant changes the impact is neutral and you can refer them to a larger resource beyond yourself.
+		- Good luck in dealing with regulars, it isn’t easy! It took many years to avoid arguing with idiots on the internet and giving advice to people who desperately need it. Remember these rules and you’ll save hours of your life (more likely months or years).
+		- As usual NO questions. A new Q&A will be sent to email subscribers shortly (this week).
+	- Comments
+		- February 22, 2017 at 10:37 amNod and smile, this is the way to deal with regular people, just nod and smile. I figured that one a long time ago. We have an expression *don’t throw your pearls to pigs*, it is just not worth your time and energy.Now if some friend genuinely ask you for this or that advice and need your help, I say go for it, but in most cases just play dumb. Or better, cut regular people from your life completely. You are average of people you hang out with, so choose your friends wisely.Reply
+			- Wall Street Playboys saysFebruary 22, 2017 at 2:34 pmIt becomes easier to avoid regular people as time passes, but it’s practically inevitable. Smile and nod leaves them happy about the Interaction, we prefer complete deflection as well to avoid the occurance from ever happening again.As you know, zero value is gained from those interactions and your time just goes down the tube.Reply
+		- Marco saysFebruary 22, 2017 at 2:48 pmThis is pretty much how I dealt with idiots in high school (which were 99% of the people there). The weird thing about it is, not only did I never get into trouble, people praised me as a ”legend” and ”so smart”… LMAO. A little manipulation added onto that got everyone to vote for me as valedictorian.Now in university (I’m Canadian), this is hard to pull off, as nobody really asks about this stuff, but I’ll test this out on a few people & see what happens.Reply
+		- Katavasis saysFebruary 22, 2017 at 3:33 pmI just double down,laugh and steer the conversation elsewhere.To tell you the truth,i don’t even have real conversations.I am just performing.And most regular people don’t even pay attention to what you are saying.Solipsism.Reply
+		- Mike saysFebruary 22, 2017 at 3:35 pmGreat Post,However it does take time and practice for it to come naturally. For me it was the smile and nod part for some time if I ever heard some bs I always had to open my mouth or was engaged. Took some time for me to realize that in the end they won’t listen and I had justed wasted my valuable time.Great place to practice for me was in the gym. How many times are you working out and that 30 year old beer belly guy walks over and starts giving his fitness advice or concerns. Smile, nod and go right back to what your doing or turn up the volume with the headphones when that “guy” is around.Reply
+			- Wall Street Playboys saysFebruary 22, 2017 at 4:01 pmThe faster the skill is mastered the more time is saved!Should be a required skill to learnReply
+		- JL saysFebruary 22, 2017 at 5:29 pmFunny how much like meeting women (where you for screen for fly girls worth your time, and have a flowchart in your head on swooping them from point A to B)..It also makes sense to screen men (if they’re also worth your damn time), and in this case, a highly accurate 3-step formula flowchart on how to get rid of them in case they’re not!Reply
+			- Wall Street Playboys saysFebruary 22, 2017 at 5:30 pmHa yes exactly right! Just creat a “sales funnel” or “flow chart” for all interactions to reduce time wasted on bad “leads”.See everything is sales.Reply
+			- JL saysFebruary 22, 2017 at 5:49 pmYup yup lol
+			- JL saysFebruary 22, 2017 at 5:48 pmPS: This has happened to me bunch of time before I realized it.I meet new friends, be it male and female, and somewhere along the line of course over drinks and snacks we’ll get to talk on where ya’ll asses wanna be within the next 3/5/10 years in our lives.Being a conceited smart dude of course I got this knack of throwing insightful WSP-level life-changing step-by-step guides and advice right at their faces.TL;DR: I’m not friends with them anymore lmao what else can you expect.Not about bragging about my current lifestyle standing being better than theirs, but generally the takeaway is there are actually certain social adjustments to make when you’re about that life of getting bigger shares in the pie.Playing dumb; steering the unnecessary attention and spotlight FROM you; still being able to relate, make people feel understood and still feel comfortable around you, not to mention nodding and agreeing on blabbers and shitThat’s the realest unspoken shit that takes balls lolI even ponder about it sometimes if it’s something biological / innate that social psychologists have overlooked, but good lord gotta admit the whole dynamic in the big picture is insane Reply
+		- AW saysFebruary 22, 2017 at 6:18 pmThis is an eye opener. Damn. Time to learn not carrying good intentions on a sleeve.Reply
+			- Wall Street Playboys saysFebruary 22, 2017 at 6:21 pmTrying to help them just makes them dislike you more.Cardinal rule is regular people are always right. About everything.Reply
+			- Anonymous saysFebruary 22, 2017 at 8:23 pmOMG! I stumbled across your website through a series of “lucky” events; one of the big ones being that it took me a little too long to realize that giving advice is a no-no. A lot of what I’ve read on prior posts is probably going to save me years of time searching for the information.
+			- Marc saysFebruary 23, 2017 at 11:57 amTrue.Hell, last october my mum came back from the doctor. The doc told her if that if she didn’t change her diet she would develop diabetes. She had 5 months to change her diet before it would be too late.Kept eating like a pig, cheese, chocolate, drinking alcohol all day. Yesterday she came back home and broke down crying because she now has diabetes.I spent those five months trying to coach her and all she gave me was hate and resentment “I’m tired let me enjoy my TV with my cheese!”, just some “poor me I’m so sad and you are so mean to me” – whut? I’m trying to HELP you, how is that mean?!But of course, it’s not her fault. Nothing could have been done.And she doesn’t even do her injections because “that’s too much of a hastle”.I love my mum, but hell…come on…And each time I try to help her, she hates me. But when I tell her she is right she loves me. Same with the doc. She doesn’t go to see him anymore because “he is such an asshole for telling me I’m too fat”.That’s insane. Insane.
+		- Houston Portfolio saysFebruary 22, 2017 at 6:57 pmNice. Been going through this a lot the past few months, just never had it broken down like this before.Ever since I’ve been in sales and focusing primarily on $$$, every time I’ve found myself having to deal with regular people I literally talk about something either mainstream and/or related to them and take on the role of “student” as they laugh and react like “dude I can’t believe you didn’t know that!!” And I’m thinking “yeah because I don’t give a f*ck about the new PS4” or whatever it is.However, to get them out of my presence so I can focus on my activity, I find myself imitating their body language and leading them away from my place of work and then politely exiting the conversation on a high note or if I see a gap in the conversation.Reply
+			- Wall Street Playboys saysFebruary 22, 2017 at 7:05 pmCorrect, in addition they think you’re uninformed because you didn’t know anything about that cool new useless widget that came out!Makes them ask less of you in the future.Reply
+		- YM saysFebruary 22, 2017 at 8:40 pmActually laughed out loud at asking about innocuous items and walking around while spilling water.While its funny, its so true.I commonly see that successful guys who enjoy just screwing around when they aren’t working and do whatever they want are viewed as “immature” and the “dumb one” in a group of regular people. Typically that person actually the most successful in business and with women. “I don’t know why girls like him!”Lastly, given readers of this blog are interested in online sales – do not even try and tell a regular person about online sales or how much money you can make in it. It doesn’t register.Can’t wait to try the water trick.Reply
+			- Wall Street Playboys saysFebruary 22, 2017 at 9:01 pmYep always appear to be a bit clumsy to avoid the attention. If you’re in front of successful people no need for any of this!Reply
+		- Mariano saysFebruary 22, 2017 at 11:58 pmHow to avoid regular people:Easy, the moment they approach you just START SCREAMING like you have seen the demon and then run away.Next time they will think you are crazy and will try to avoid you.Reply
+		- Ambitious saysFebruary 23, 2017 at 12:12 amGreat post.Problem is when they are inside your company….I definitely need to do some re-structuring. Built a large team, and I think im going to make less than when it was just me, but I have the freedom to take time off, BUT I have to deal with them.Not really worth it.Reply
+			- Wall Street Playboys saysFebruary 23, 2017 at 1:25 amNot worth it.Reply
+		- Magnus saysFebruary 23, 2017 at 8:48 amSince taxi drivers are talktative where i live , the first thing I do when I take one is to put my earphones and plug to my own world so I can read your blog, keeps my mood excellent, and helps me avoid broke people discussions.Reply
+		- Marc saysFebruary 23, 2017 at 11:51 am“Yeah you are right bro, she is such a bitch, not your fault”“Yeah I guess you are right, it’s tough to make money in your situation”“Yeah it’s sure the fault of your genes that you can’t lose weight”“Yeah man, eating ice-cream and crying is the way to go”“Yeah man, he is such an asshole to her, keep playing nice and she will eventually understand you were meant for each other”“Yeah marriage is wonderful, go for it mate I’m happy for you”They love when you give them that kind of advice and end up respecting and liking you more, while when you give them actual helpful advices, they hate and ressent you.I figured, why care about them? The only way they will learn is if they are burnt enough. So I let them burn. And then if they ask me for advices I will give them real advices (and keep doing so only if they apply them).Reply
+		- NE saysFebruary 23, 2017 at 1:42 pmthx for the great time-saving tips,I find saying things along the lines of “I heard XXX say YYY” or “I’ve read ZZZ” a great way to take the responsibility from yourself in occasions where you are pushed to give advice (direct questions at work for example)as a bonus, it will also signal any successful people that may be in witnessing (work meeting etc. ) a signal to recognize – many successful people seem to quote while regular people always state their opinion.Reply
+			- Wall Street Playboys saysFebruary 23, 2017 at 8:38 pmYes making recommendations as if coming from a third party works, also better if it’s a forum so they go away and “research” themselvesReply
+		- Mastermind saysFebruary 23, 2017 at 3:00 pmInteresting post. Can relate – I find it hard with my old group of friends to talk about what i do now without the room going quiet and everyone carefully listening and asking questions. Assuming best thing to do here is lie down a little.Reply
+			- Wall Street Playboys saysFebruary 23, 2017 at 8:39 pmThe best answer is to drop Those people! Sounds like a time suckReply
+		- Simon saysFebruary 24, 2017 at 1:09 amThis is something I struggled with a lot. For the majority of my life I would assume people really wanted help and good advice (because I would)…what a massive timesuck.While these are all great tips, if you still have some faith in rationality of regular people, read a book “Extraordinary Popular Delusions and the Madness of Crowds”. Cernovich recommended it awile ago, and recently I finally got to read it. It’s bit long, 499 pages. But to get the gist of it, you only need to read first 50-60 pages. Every page after that will only crush your faith in humanity even more.The main takeaway: “Men think in herds; it will be seen that they go mad in herds, while they only recover their senses slowly, and one by one.”Oh yeah, it was published in 1841. It’s chilling to see how little has changed.
+- Be a jack of all trades/be broad, not deep
+    collapsed:: true
+	- when businesses groom individuals to later own and manage companies they rotate them around all departments, doesnt have to know every aspect just basicscant have a general who doesnt even know what a gun is
+	- i love personal development, but I love other aspects such as improving health/fitness, travel, finances, business - internet marketing and diversifying income streams, etc
+	- be interesting, have many different interests
+	- if you specialise in a certain area what if you're talking to someone who has no interest in it? they see you as just a 'xxx job title' if thats all you specialise in
+	- be too complex to categorise.
+	- Such a Jack of all trades may be a master of integration, as such an individual knows enough from many learned trades and skills to be able to bring their disciplines together in a practical manner. This person is a generalist rather than a specialist. A person who is exceptional in many disciplines is known as a polymath or a "Renaissance man"; a typical example is Leonardo da Vinci. The phrase became increasingly cynical in connotation during the 20th century.
+	- http://en.wikipedia.org/wiki/Polymath
+- [How to clean keyboards (getting grease off keys, cleaning between keys
+- [ Countries to live on $2k/mo in
+    collapsed:: true
+	- https://www.rooshvforum.com/thread-58337.html
+- Time of day analysis
+    collapsed:: true
+	- Partial structure. . Or divide it by habit learning/book reading
+		- +2hr Next Action in evening? 4 hours total would be useful as Analysis if inbox or Review encourages too stimulated problem-solving mind before sleep Though mind is uninhibited and creative
+		- - reduce no of routine gTask reminders (especially on weekends) as i want routine to shape to wake time
+		- Consider moving socialising to evening
+		- Afternoon
+			- Analysis as low willpower in evening
+		- Evening
+			- Next Action - As known problems+simple solution (not high willpower needed?
+			- Socialising - (buffer, twitter, email, comments) as I'm used to socialising at night and it doesn't require future focus or stimulated problem solving like Analysis: or Next Action
+		- Check leisure and Curiosity-Driven Learning distribution for May
+		- ime of day - leave evenings for socialising eg masterminds, skype group, commenting on influencers blogs, replying to emails/comments, talking to VAs, hearthstone with Tom, xbox with David, family, Meet etc? Next Action progress might be slower though since less hours dedicated to it. This would be an ideal routine once my job is quit as then everyday I can still finish my writing in the morning
+		- Systems method would be to actually book certain events on each night of the week to avoid going out (already made 'excuse')
+			- - Eg every other week on Fri no matter what I have a 'webinar' booked. I'll have to miss out on some fun Meets because the cost will add up too much.
+	- There are patches of time which most men waste
+	- Data from Dec - Jan shows I'm more likely to start procrastinating from 3pm
+	- > Switch to Functional activities at this point? Or Exercise? Productive socialising e.g. Fastlane forums/mastermind/phone call? Nap?
+		- also related to zeo/modafinil experiment + blue blocking glasses
+- Antifragility - if HRC becomes prez
+    collapsed:: true
+	- Contract for the use of an offshore server in a country that has minimal influence from the United States government, and move your web pages there.
+	- Get set up for encrypted e-mail. (The free GPG software installed on your local PC works quite well. And for those who are less tech savvy, the paid Unseen.is service in Iceland works fine.)
+	- Post provisos on your web site that are similar to my own
+	- Buy an Iridium satellite telephone and a set of Iridium international power adapters
+	- Buy several inexpensive prepaid “burner” cell phones. Pay greenback cash for these phones, and use an assumed name when you eventually activate them.
+	- Buy a nondescript camping trailer or RV and quietly (via face-to-face contacts only) develop a “hospitality list” of like-minded families who own parcels of land that you can bounce between, in the event that you need to take refuge.
+	- Buy a spare laptop computer (preferably one that is ultra-reliable, such as a Panasonic Toughbook]([https://www.amazon.com/gp/product/B01DIB7F14/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B01DIB7F14&linkCode=as2&tag=survivalcom-20&linkId=fb52b30dd599b6d128f387d8b771e3c7)](https://www.amazon.com/gp/product/B01DIB7F14/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B01DIB7F14&linkCode=as2&tag=survivalcom-20&linkId=fb52b30dd599b6d128f387d8b771e3c7))), a [12 VDC car adapter](<a href="https://www.amazon.com/gp/product/B006MZ3V30/ref=as_li_tl?ie=UTF8&tag=survivalcom-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B006MZ3V30&linkId=964e02a4e5e4a13d2d4c187ce0e27ecd">https://www.amazon.com/gp/product/B006MZ3V30/ref=as_li_tl?ie=UTF8&tag=survivalcom-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B006MZ3V30&linkId=964e02a4e5e4a13d2d4c187ce0e27ecd</a>), and a [set of international power adapters.
+	- Buy a USB external long range Yagi wireless antenna
+	- Buy a batch of at least 40 inexpensive 2 GB USB memory sticks digital content, to keep your locale secret.
+	- Make sure that your passport is updated.
+	- Do some research to develop a short list of countries where you would consider relocating. Ideally, a country should have respect for the freedom of speech, minimal taxation, minimal influence from the United States government, and NO rendition (extradition) treaty with the United States.
+	- Establish an offshore bank account.
+	- Beyond just offshore residency, if you can afford it, then buy a second passport. (Typically, this is done with a “Citizenship Through Investment” program.)
+	- Via encrypted e-mail, develop contacts with foreign bloggers, and get their tentative agreement to post your ghost-written articles, if circumstances change.
+- Lifestyle and mindset of millionaires
+    collapsed:: true
+	- I can answer this one. For some reason, I attract these people into my life. I d
+	- I can answer this one. For some reason, I attract these people into my life. I don't do anything super extraordinary. I am not famous. But I count many peoplewith ultra high net wealth among my close friends and I have spent more time than even I can believe with 8 different billionaires. This is not just meet-and-greet time. This is small group and even one-to-one time. I dated the daughter of one billionaire several decades ago. So I have gotten a peek into this life.
+	- Let's get one thing out of the way. There are gradations of rich. I see four major breaking points:
+	- Worth $10mm-$30mm liquid (exclusive of value of primary residence). At this level, your needs are met. You can live very comfortably at a 4-star/5-star level. You can book a $2000 suite for a special occassion. You can fly first class internationally (sometimes). You have a very nice house, you can afford any healthcare you need, no emergency financial situation can destroy your life. But you are not "rich" in the way that money doesn't matter. You still have to be prudent and careful with most decisions unless you are on the upper end of this scale, where you truly are becoming insulated from personal financial stress. (Business stress exists at all levels). The banking world still doesn't classify you as 'ultra high net worth'
+	- Net worth of $30mm-$100mm
+	- At this point, you start playing with the big boys. You can fly private (though you normally charter a flight or own a jet fractionally through Net Jets or the like), You stay at 5 star hotels, you have multiple residences, you vacation in prime time (you rent a ski-in, ski-out villa in Aspen for Christmas week or go to Monaco for the grand Prix, or Canne for the Film Festival--for what its worth, rent on these places can run $5k-20k+ per NIGHT.), you run or have a ontrolling interest in a big company, you socialize with Conressmen, Senators and community leaders, and you are an extremely well respected member in any community outside the world's great cities. (In Beverly Hills, you are a minor player at $80 million. Unless you really throw your weight around and pay out the nose, you might not get a table at the city's hottest restaurant). You can buy any car you want. You have personal assistants and are starting to have 'people' that others have to talk to to get to you. You can travel ANYWHERE in any style. You can buy pretty much anything that normal people think of as 'rich people stuff'
+	- $100mm-$1billion
+	- I know its a wide range, but life doesn't change much when you go from being worth $200mm-$900mm. At this point, you have a private jet, multiple residences with staff, elite cars at each residence, ownership or significant control over a business/entity that most of the public has heard of, if its your thing, you can socialize with movie stars/politicians/rock stars/corporate elite/aristocracy. You might not get invite to every party, but you can go pretty much everywhere you want. You definitely have 'people' and staff. The world is full of 'yes men'. Your ability to buy things becomes an art. One of your vacation home may be a 5 bedroom villa on acreage in Cabo, but that's not impressive. You own a private island? Starting to be cool, but it depends on the island. You just had dinner with Senator X and Governor Y at your home? Cool. But your billionaire friend just had dinner with the President. You have a new Ferrari? Your friend thinks their handling sucks and has a classic, only-five-exist-in-the-world-type of car. Did I mention women? Because at this level, they are all over the place. Every event, most parties. The polo club. Ultra-hot, world class, smart women. Power and money are an aphrodisiac and you have it in spades. Anything thing you want from women at this point you will find a willing and beautiful partner. You might not emotionally connect, but damn, she's hot. One thing that gets rare at this level? friends and family that love you for who you are. They exist, but it is pretty damn hard to know which ones they are.
+	- $1billion
+	- I am going to exclude the $10b+ crowd, because they live a head-of-state life. But at $1b, life changes. You can buy anything. ANYTHING. In broad terms, this is what you can buy:
+	- Access. You now can just ask your staff to contact anyone and you will get a call back. I have seen this first hand and it is mind-blowing the level of access and respect $1 billion+ gets you. In this case, I wanted to speak with a very well-known billionaire businessman (call him billionaire #1 for a project that interested billionaire #2. I mentioned that it would be good to talk to billionaire #1 and B2 told me that he didn't know him. But he called his assistant in. "Get me the xxxgolf club directory. Call B1 at home and tell him I want to talk to him." Within 60 minutes, we had a call back. I was in B1's home talking to him the next day. B2's opinion commanded that kind of respect from a peer. Mind blowing. The same is true with access to almost any Senator/Governor of a billionaires party (because in most cases, he is a significant donor). You meet on an occassional basis with heads-of-state and have real conversations with them. Which leads to
+	- Influence. Yes, you can buy influence. As a billionaire, you have manyways to shape public policy and the public debate, and you use them. This is not in any evil way. the ones I know are passionate about ideas and are trying to do what they feel is best (just like you would). But they just had an hour with the Governor privately, or with the Secretary of Health, or the buy ads or lobbyists. The amount of influence you have can be heady.
+	- Time. Yes, you can buy time. You literally never wait for anything. Travel? you fly private. Show up at the airport, sit down in the plane and the door closes and you take off in 2 minutes, and fly directly to where you are going. The plane waits for you. If you decide you want to leave at anytime, you drive (or take a helicopter to the airport and you leave. The pilots and stewardess are your employees. They do what you tell them to do. Dinner? Your driver drops you off at the front door and waits a few blocks away for however long you need. The best table is waiting for you. The celebrity chef has prepared a meal for you (because you give him so much catering business he wants you VERY happy) and he ensures service is impeccable. Golf? Your club is so exclusive there is always a tee time and no wait. Going to the Superbowl or Grammy's? You are whisked behind velvet ropes and escorted past any/all lines to the best seats in the house.
+	- Experiences. Dream of it and you can have it. Want to play tennis with Pete Sampras (not him in particular, but that type of star)? Call his people. For a donation of $100k+ to his charity, you could probably play a match with him. Like Blink182? There is a price where they would simply come play at your private party. Love art? Your people could arrange for the curator of the Louvre to show you around and even show you masterpieces that have not been exhibited in years. Love Nascar? How about racing the top driver on a closed track? Love science? Have a dinner with Bill Nye and Neil dGT. Love politics? have Hillary Clinton come speak at a dinner for you and your friends, just pay her speaking fee. Your mind is the only limit to what is available. Because donations/fees get you anyone.
+	- The same is true with stuff. You like pianos? How about owning one Mozart used to compose music on? This is the type of stuff you can do.
+	- IMPACT. Your money can literally change the world and change lives. It is almost too much of a burden to think about. Clean water for a whole village forever? chump change. A dying child need a transplant? Hell...you could just build and fund a hospital and do it for a region.
+	- RESPECT. The respect you get at this level is just over-the-top. You are THE MAN in almost every circle. Governors look up to you. Fortune 500 CEOs look up to you. Presidents and Kings look at you as a peer.
+	- PERSPECTIVE. The wealthiest person I have spent time with makes about $400mm/year. i couldn't get my mind around that until I did this: OK--let's compare it with someone who makes $40,000/year. It is 10,000x more. Now let's look at prices the way he might. A new Lambo--$235,000 becaome $23.50. First class ticket internationally? $10,000 becomes $1. A full time executive level helper? $8,000/month becomes $0.80/month. A $10mm piece of art you love? $1000. Expensive, so you have to plan a bit. A suite at the best hotel in NYC $10,000/night is $1/night. A $50million home in the Hamptons? $5,000. There is literally nothing you can't buy except.
+	- Love. Sorry to sound so trite, but it is nearly impossible to have a normal emotional relationship at this level. It is hard to sacrifice for another person when you are never asked to sacrifice ANYTHING. Money can solve all problems for someone, so you offer it, because there is so much else to do. Your time is SOOOO valuable that you ration it. And that makes you lose connections with people.
+	- Anyway, that is a really long answer, but I have a very unique perspective because I have seen behind the curtain of the great and mighty OZ. just wanted to share
+	- EDIT: Wow! An unbelievable response to this (8x gold and 6000 upvotes. OMG) Thank you for all the comments and PMs. I am working 14 hour days right now, so I can't answer most, but to answer the most common PMs:
+	- Seeing all of this doesn't make me want to get into the top tier. Different lives have the same emotional degree of difficulty: I met Sylvester Stallone at a party a few months back for the first time. Great guy. Has a beautiful, smart wife and a great career. He had a special needs son who died young. Nobody has it all. Nobody.
+- Books to read
+    collapsed:: true
+	- Class, by Paul Fussell
+		- guides you through America’s social caste system, showing you how people (on all levels) behave; examples:
+			- Most wealthy people keep their money “out of sight.” Instead of bragging, they signal status subtle nonchalance. They don’t say “Mansion,” they say “House.”
+			- You’ll discover who luxury clothing is actually marketed towards (hint, it’s not wealthy people)
+			- why tattoos are becoming mainstream
+			- how museum curator is the ultimate prestige job (it has nothing to do with old bones or classic art).
+		- https://amzn.to/2t99vCl
+		- rec by 30daystox
+	- How To Stop Worrying And Start Living by Dale Carnegie
+	- Writing Philosophy: A Student’s Guide To Writing Philosophy Essays, by Lewis Vaughn
+		- riting Philosophy is a quick, easy read (just under 200 pages) which teaches you how to craft argumentative essays. Additionally, you learn essential skills for analyzing other people’s arguments. You’ll learn the power of persuasion and the ability to pick apart faulty theories, all in the span of one book.
+			- Writing Philosophy bases itself around logic, something which isn’t always used in consumer marketing but is crucial in more “high-level” transactions (trading stocks, arguing legal cases, business to business sales, spreading ideologies).
+			- If you’re looking to study higher forms of persuasion, this is an excellent book.
+			- rec by 30daystox
+			- https://amzn.to/2M4BOZA
+- http://thenopoomethod.com/styling-products/
+- https://en.m.wikipedia.org/wiki/Draft_evasion
+- Material Possessions That Bring Happiness
+    collapsed:: true
+	- This was a hard thread to search for so could be a repeat.
+		- Contrary to blue pill thinking money if well spent can indeed increase happiness dramatically.
+		- What some are things that have great value (bang for the $) that bring happiness and contentment?
+		- I am trying to avoid things like "plane tickets" or "language classes" or "organic food". Avoiding all the no-shit Sherlock stuff.
+		- I am sure there will be many hobby items like "my motorcycle", "my gun", "my guitar", "my surfboard", "my custom suit" etc... I am trying to keep things general that all men could be into as there are plenty of threads on masculine hobbies that are fulfilling. This is about positive materialism.
+		- Here is a little list:
+		- 1. Large bay windows at your dwelling. Light and being able to see outside easily with good views is a huge boost to my happiness. I lived in a basement room with a tiny garden window for a few months it turned me miserable all due to the room.
+		- 2. Vaulted ceilings and open areas like lofts have increased my happiness.
+		- 3. A sizable kitchen with counter space. Bonus for a center island to set things on. The better my kitchen the more likely I will cook and eat better food. Also it makes it more likely women will want to cook for me at my residence. Both big deals. Health and sex life.
+		- 4. At my current residence there is a shower room that is all tile. It is connected to an outdoor porch with a huge bay window facing a plateau. It is a great place to shower and wake up in the morning. Vast difference than being crammed behind a shower curtain, especially in a bathroom without windows and views.
+		- 5. Dim lighting that is only from lamps with good shades. No light coming down from the ceiling. Lighting has a huge affect on my mood.
+		- 6. Indoor plants. Whenever I see these in someone's workspace or home, I give pause because of the maintenance. Buying succulents is a happy middle ground. Having plants really helps the feel of a place. I envy people that have them and feel brightened inside when I walk into a place that has them.
+		- 7. I have been at a friend's house in my college years that had an indoor sauna room. I could tell that brought that house plenty of happiness from their stories.
+		- 8. A great piece of art on a wall you truly find something different about everytime. These are hard to find and often expensive. Most people just throw something in the cart from IKEA and say "well that looks nice". I think the art I am talking about is the one you still walk up to and peer at for the 1000th time. Art for you. Art with a memory attached.
+		- Maybe we could get a consensus on what items really have brought the biggest happiness and do a $ / happiness comparison so maybe guys that have never thought about this or consider themselves "minimalists" (which I don't believe in because I think it is anti abundance mindset) will open their minds to things that are not for status, instead are for day to day happiness and productivity.
+- Even buying in cash isnt anonymous due to facial recognition
+    collapsed:: true
+	- Trying to make yourself untraceable while still using modern technology is not an easy task. People have thought that they could avoid being tracked by buying an item with cash, but there are numerous cases of store security cameras recording purchases at the checkout counter and these images used to identify the culprets of a variety of alleged offenses. Combined with facial recognition software and the increasing cross-linkage of databases, such as photos from your driver's license or passport; combined with the fact that your face is probably online somewhere, such as your own Facebook page, or your friend's Facebook page if you avoid using facebook, or Flickr, or one of hundreds of image intensive online depositories, it is only a matter of time and effort to track you down. Even using a laptop you bought a garage sale and public wifi can't guarantee anonymity since surveilance cameras can show you within the vicinity of the wifi hotspot at the time of a particular event - such has already been used to identify "cyber-crooks" on more than one occasion.
+	- Best defense is security by obscurity - don't do anything that will make you a target. If for sure you are going to be a target, then I'm not sure what will help you. If you try to live in some remote area with no technology at all, chances are people will be talking about you for miles around where you set up camp. "Ya, he's the guy living in the middle of that forest with nothing but a cabin and messenger pigeons."
+- Man's purpose
+    collapsed:: true
+	- Is to anything BUT his wife His children, his legacy whateverBut not to his wife above all
+	- Women hate being pedestalled and detest the man who says 'yes honey' to everything without any backboneThere needs to be things he'll put above her and say 'no' about
+- plastic and cosmetic surgery Colombia and South Korea are the places to go
+- https://blog.workflowy.com/2016/06/02/tag-navigation/
+- LimeSDR
+    collapsed:: true
+	- http://hackaday.com/2016/07/29/the-problem-with-software-defined-radio/
+- if youre not part of the solution then you are part of the problem
+    collapsed:: true
+	- [quote='Valentine' pid='1436354' dateline='1478564695'][quote='armenia4ever' pid='1436350' dateline='1478564256']Im not as much of a libertarian as I used to be, but Ron Paul is a man of principle. He didnt endorse Romney last election and he wont endorse Trump for the same reasons.
+	- Perhaps he is misguided, but he is no cuck. While some of us have awoken from the libertarian dream and realized that we must fight fire with fire, Paul isnt there yet.
+	- Maybe he will one day see that the left will use any tactic at its disposal to won, and that if free markets and speech are ever to survive, we must escalate our methods and veracity to match that of the left.
+	- I still respect him though. Sure he had his issues, but men of principle are rare. They may be misguided because of it, but they dont deserve scorn.[/quote]
+	- You try telling the rest of the legal citizens of the US that when they are plagued with the flood of rapefugees, mass amnesty and Hillary starting war with Russia.
+	- If he's not part of the solution, he's part of the problem. If good men stand by the sidelines as the world crashes into flames in front of them, they are just as much the cause.[/quote]
+- How would you use $1000 to improve yourself?
+    collapsed:: true
+	- https://www.rooshvforum.com/thread-54822-post-1265182.html#pid1265182
+- [ How I read 3-5 books per week!
+    collapsed:: true
+	- https://www.youtube.com/watch?v=qNHFr3DUrZY
+- How I Went From Writing 2,000 Words a Day to 10,000 Words a Day
+    collapsed:: true
+	- When I started writing The Spirit War (Eli novel #4), I had a bit of a problem. I had a brand new baby and my life (like every new mother's life) was constantly on the verge of shambles. I paid for a sitter four times a week so I could get some writing time, and I guarded these hours like a mama bear guards her cubs - with ferocity and hiker-mauling violence. To keep my schedule and make my deadlines, I needed to write 4000 words during each of these carefully arranged sessions. I thought this would be simple. After all, before I quit my job to write full time I'd been writing 2k a day in the three hours before work. Surely with 6 hours of baby free writing time, 4k a day would be nothing....
+	- But (of course), things didn't work out like that. Every day I'd sit down to add 4000 words to my new manuscript. I was determined, I was experienced, I knew my world. There was no reason I couldn't get 4k down. But every night when I hauled myself away, my word count had only increased by 2k, the same number of words I'd been getting before I quit my day job.
+	- Needless to say, I felt like a failure. Here I was, a professional writer with three books about to come out, and I couldn't even beat the writing I'd done before I went pro. At first I made excuses, this novel was the most complicated of all the Eli books I'd written, I was tired because my son thinks 4am is an awesome time to play, etc. etc. But the truth was there was no excuse. I had to find a way to boost my word count, and with months of 2k a day dragging me down, I had to do it fast. So I got scientific. I gathered data and tried experiments, and ultimately ended up boosting my word count to heights far beyond what I'd thought was possible, and I did it while making my writing better than ever before.
+	- When I told people at ConCarolinas that I'd gone from writing 2k to 10k per day, I got a huge response. Everyone wanted to know how I'd done it, and I finally got so sick of telling the same story over and over again that I decided to write it down here.
+	- So, once and for all, here's the story of how I went from writing 500 words an hour to over 1500, and (hopefully) how you can too:
+	- [](null)
+	- A quick note: There are many fine, successful writers out there who equate writing quickly with being a hack. I firmly disagree. My methods remove the dross, the time spent tooling around lost in your daily writing, not the time spent making plot decisions or word choices. This is not a choice between ruminating on art or churning out the novels for gross commercialism (though I happen to like commercial novels), it's about not wasting your time for whatever sort of novels you want to write.
+	- Drastically increasing your words per day is actually pretty easy, all it takes is a shift in perspective and the ability to be honest with yourself (which is the hardest part). Because I'm a giant nerd, I ended up creating a metric, a triangle with three core requirements: Knowledge, Time, and Enthusiasm. Any one of these can noticeably boost your daily output, but all three together can turn you into a word machine. I never start writing these days unless I can hit all three.
+	- Update! The talented Vicky Teinaki made a graphic of this metric and let me use it! She is awesome!
+	- [](http://www.rachelaaron.net/images/writingmetric.gif)
+	- Side 1: Knowledge, or Know What You're Writing Before You Write It
+	- The first big boost to my daily wordcount happened almost by accident. Used to be I would just pop open the laptop and start writing. Now, I wasn't a total make-it-up-as-you-go writer. I had a general plot outline, but my scene notes were things like "Miranda and Banage argue" or "Eli steals the king." Not very useful, but I knew generally what direction I was writing in, and I liked to let the characters decide how the scene would go. Unfortunately, this meant I wasted a lot of time rewriting and backtracking when the scene veered off course.
+	- This was how I had always written, it felt natural to me. But then one day I got mired in a real mess. I had spent three days knee deep in the same horrible scene. I was drastically behind on my wordcount, and I was facing the real possibility of missing my deadline... again. It was the perfect storm of all my insecurities, the thought of letting people down mixed with the fear that I really didn't know what I was doing, that I wasn't a real writer at all, just an amateur pretending to be one. But as I got angrier and angrier with myself, I looked down at my novel and suddenly realized that I was being an absolute idiot. Here I was, desperate for time, floundering in a scene, and yet I was doing the hardest work of writing (figuring out exactly what needs to happen to move the scene forward in the most dramatic and exciting way) in the most time consuming way possible (ie, in the middle of the writing itself).
+	- As soon as I realized this, I stopped. I closed my laptop and got out my pad of paper. Then, instead of trying to write the scene in the novel as I had been, I started scribbling a very short hand, truncated version the scene on the paper. I didn't describe anything, I didn't do transitions. I wasn't writing, I was simply noting down what I would write when the time came. It took me about five minutes and three pages of notebook paper to untangle my seemingly unfixable scene, the one that had just eaten three days of my life before I tried this new approach. Better still, after I'd worked everything out in shorthand I was able to dive back into the scene and finish it in record time. The words flew onto the screen, and at the end of that session I'd written 3000 words rather than 2000, most of them in that last hour and a half.
+	- Looking back, it was so simple I feel stupid for not thinking of it sooner. If you want to write faster, the first step is to know what you're writing before you write it. I'm not even talking about macro plot stuff, I mean working out the back and forth exchanges of an argument between characters, blocking out fights, writing up fast descriptions. Writing this stuff out in words you actually want other people to read, especially if you're making everything up as you go along, takes FOREVER. It's horribly inefficient and when you get yourself in a dead end, you end up trashing hundreds, sometimes thousands of words to get out. But jotting it down on a pad? Takes no time at all. If the scene you're sketching out starts to go the wrong way, you see it immedeatly, and all you have to do is cross out the parts that went sour and start again at the beginning. That's it. No words lost, no time wasted. It was god damn beautiful.
+	- Every writing session after this realization, I dedicated five minutes (sometimes more, never less) and wrote out a quick description of what I was going to write. Sometimes it wasn't even a paragraph, just a list of this happens then this then this. This simple change, these five stupid minutes, boosted my wordcount enormously. I went from writing 2k a day to writing 5k a day within a week without increasing my 5 hour writing block. Some days I even finished early.
+	- Of the three sides of the triangle, I consider knowledge to be the most important. This step alone more than doubled my word count. If you only want to try one change at a time, this is the one I recommend the most.
+	- Side 2: Time
+	- Now that I'd had such a huge boost from one minor change, I started to wonder what else I could do to jack my numbers up even higher. But as I looked for other things I could tweak, I quickly realized that I knew embarrassingly little about how I actually wrote my novels. I'd kept no records of my progress, I couldn't even tell you how long it took me to write any of my last three novels beyond broad guesstimations, celebratory blog posts, and vague memories of past word counts. It was like I started every book by throwing myself at the keyboard and praying for a novel to shoot out of my fingers before the deadline. And keep in mind this is my business. Can you imagine a bakery or a freelance designer working this way? Never tracking hours or keeping a record of how long it took me to actually produce the thing I was selling? Yeah, pretty stupid way to work.
+	- If I was going to boost my output (or know how long it took me to actually write a freaking novel), I had to know what I was outputting in the first place. So, I started keeping records. Every day I had a writing session I would note the time I started, the time I stopped, how many words I wrote, and where I was writing on a spreadsheet. I did this for two months, and then I looked for patterns.
+	- Several things were immediately clear. First, my productivity was at its highest when I was in a place other than my home. That is to say, a place without internet. The afternoons I wrote at the coffee shop with no wireless were twice as productive as the mornings I wrote at home. I also saw that, while butt in chair time is the root of all writing, not all butt in chair time is equal. For example, those days where I only got one hour to write I never managed more than five hundred words in that hour. By contrast, those days I got five hours of solid writing I was clearing close to 1500 words an hour. The numbers were clear: the longer I wrote, the faster I wrote (and I believe the better I wrote, certainly the writing got easier the longer I went). This corresponding rise of wordcount and writing hours only worked up to a point, though. There was a definite words per hour drop off around hour 7 when I was simply too brain fried to go on.
+	- But these numbers are very personal, the point I'm trying to make is that by recording my progress every day I had the data I needed to start optimizing my daily writing. Once I had my data in hand, I rearranged my schedule to make sure my writing time was always in the afternoon (my most prolific time according to my sheet, which was a real discovery. I would have bet money I was better in the morning.), always at my coffee shop with no internet, and always at least 4 hours long. Once I set my time, I guarded it viciously, and low and behold my words per day shot up again. This time to an average of 6k-7k per writing day, and all without adding any extra hours. All I had to do was discover what made good writing time for me and then make sure the good writing time was the time I fought hardest to get.
+	- Even if you don't have the luxury of 4 uninterrupted hours at your prime time of day, I highly suggest measuring your writing in the times you do have to write. Even if you only have 1 free hour a day, trying that hour in the morning some days and the evening on others and tracking the results can make sure you aren't wasting your precious writing time on avoidable inefficiencies. Time really does matter.
+	- Side 3: Enthusiasm
+	- I was flying high on my new discoveries. Over the course of two months I'd jacked my daily writing from 2k per day to 7k with just a few simple changes and was now actually running ahead of schedule for the first time in my writing career. But I wasn't done yet. I was absolutely determined I was going to break the 10k a day barrier.
+		- I'd actually broken it before. Using Knowledge and Time, I'd already managed a few 10k+ days, including one where I wrote 12,689 words, or two chapters, in 7 hours. To be fair, I had been writing outside of my usual writing window in addition to my normal writing on those days, so it wasn't a total words-per-hour efficiency jump. But that's the great thing about going this fast, the novel starts to eat you and you find yourself writing any time you can just for the pure joy of it. Even better, on the days where I broke 10k, I was also pulling fantastic words-per-hour numbers, 1600 - 2000 words per hour as opposed to my usual 1500. It was clear these days were special, but I didn't know how. I did know that I wanted those days to become the norm rather than the exception, so I went back to my records (which I now kept meticulously) to find out what made the 10k days different.
+	- The answer was head-slappingly obvious. Those days I broke 10k were the days I was writing scenes I'd been dying to write since I planned the book. They were the candy bar scenes, the scenes I wrote all that other stuff to get to. By contrast, my slow days (days where I was struggling to break 5k) corresponded to the scenes I wasn't that crazy about.
+	- This was a duh moment for me, but it also brought up a troubling new problem. If I had scenes that were boring enough that I didn't want to write them, then there was no way in hell anyone would want to read them. This was my novel, after all. If I didn't love it, no one would.
+		- Fortunately, the solution turned out to be, yet again, stupidly simple. Every day, while I was writing out my little description of what I was going to write for the knowledge component of the triangle, I would play the scene through in my mind and try to get excited about it. I'd look for all the cool little hooks, the parts that interested me most, and focus on those since they were obviously what made the scene cool. If I couldn't find anything to get excited over, then I would change the scene, or get rid of it entirely. I decided then and there that, no matter how useful a scene might be for my plot, boring scenes had no place in my novels.
+	- This discovery turned out to be a fantastic one for my writing. I trashed and rewrote several otherwise perfectly good scenes, and the effect on the novel was amazing. Plus, my daily wordcount numbers shot up again because I was always excited about my work. Double bonus!
+	- Life On 10k A Day
+	- With all three sides of my triangle now in place, I was routinely pulling 10-12k per day by the time I finished Spirits' End, the fifth Eli novel. I was almost 2 months ahead of where I'd thought I'd be, and the novel had only taken me 3 months to write rather than the 7 months I'd burned on the Spirit War (facts I knew now that I was keeping records). I was ahead of schedule with plenty of time to do revisions before I needed to hand the novel in to my editor, and I was happier with my writing than ever before. There were several days toward the end when I'd close my laptop and stumble out of the coffee shop feeling almost drunk on writing. I felt like I was on top of the world, utterly invincible and happier than I've ever been. Writing that much that quickly was like taking some kind of weird success opiate, and I was thoroughly addicted. Once you've hit 10k a day for a week straight, anything less feels like your story is crawling.
+	- Now, again, 10k a day is my high point as a professional author whose child is now in daycare (PRICELESS). I write 6 - 7 hours a day, usually 2 in the morning and 4-5 in the afternoon, five days a week. Honestly, I don't see how anyone other than a full time novelist could pull those kind of hours, but that doesn't mean you have to be a pro to drastically increase your daily word count.
+	- So 10k might be the high end of the spectrum, but of the people I've told about this (a lot) who've gotten back to me (not nearly as many), most have doubled their word counts by striving to hit all three sides of the triangle every time they write. This means some have gone from 1k a day to 2k, or 2k to 4k. Some of my great success with increasing my wordcount is undoubtedly a product of experience, as I also hit my million word mark somewhere in the fifth Eli novel. Even so, I believe most of the big leaps in efficiency came from changing the way I approached my writing. Just as changing your lifestyle can help you lose a hundred pounds, changing they way you sit down to write can boost your words per hour in astonishing ways.
+	- If you're looking to get more out of your writing time, I really hope you try my triangle. If you do, please write me (or comment below) and let me know. Even if it doesn't work (especially if it doesn't work) I'd love to hear about it. Also, if you find another efficiency hack for writing, let me know about that too! There's no reason our triangle can't be a square, and I'm always looking for a way to hit 15k a day :D.
+	- Again, I really hope this helps you hit your goals. Good luck with your writing!
+	- - Rachel Aaron
+	- [](http://4.bp.blogspot.com/-9AZj36MOPT0/UHYL5NymJkI/AAAAAAAAAPE/OoCA0J2qIVc/s1600/2kto10k.jpg)
+	- ETA: If you liked this post, you'll love the book it spawned! 2k to 10k: How to Write Better, Write Faster, and Write More of What You Love combines several writing posts from my blog, cleaned up and expanded, with all new content, and all for under a buck. Check it out at Amazon.com!
+		- And if you want to read more of my free writing posts, check these out:
+	- 12 Days of Glory](http://thisblogisaploy.blogspot.com/2011/08/12-days-of-glory.html) (or how I wrote a novel in 12 days, complete with daily numbers!), [How I Plot A Novel in 5 Steps](http://thisblogisaploy.blogspot.com/2011/09/how-i-plot-novel-in-5-steps.html), and [Editing for People Who Hate Editing](http://thisblogisaploy.blogspot.com/2012/02/editing-for-people-who-hate-editing.html)! I add new writing posts all the time, so feel free to follow me on [Twitter](https://twitter.com/Rachel_Aaron), [Facebook for updates and information.
+		- Thanks as always for reading and spreading the word!
+- Do The Opposite Of What Everyone Else Does
+    collapsed:: true
+	- Do The Opposite Of What Everyone Else Does
+	- “15 Tips For Carb-Free Dieting”
+	- vs.
+	- “Why Doughnuts, Beer, And A Cigarette Are The Perfect Post-Workout Meal”
+	- “Why Saturday Night Is The Best Time To Meet Women”
+	- vs.
+	- “Why Saturday Night Is The Best Night To Stay Home And Play Video Games”
+	- “How To Make Money Online”
+	- vs.
+	- “Starting A Website Is The Dumbest Way To Make Money, Here’s Why:”
+- H1N1 advice
+    collapsed:: true
+	- external pressures > goals/deadlines - arbritrary,
+		- customers, launches, waiting on others to finish tasks, meet orders
+		- thrive under stress
+		- entrepreneurs vs employees - do well under stress vs diligent work
+	- Why/goals: Ambition for more? to multi-bill
+		- Expectations of self
+		- Surrounded by top performers/rich/successful people, and being a top performer around them
+			- Everyone had high ambitions
+			- Average of 5 people around you
+		- Opportunity to test yourself and get lots of reinforcing feedback
+- Habit: Make things easy for yourself. Everyone wants to pretend they're a monolith
+    collapsed:: true
+	- Habit: Make things easy for yourself. Everyone wants to pretend they're a monolith of willpower, and everything will be achieved if they "just do it". That's never been true though, and no winner has ever had to constantly fight themselves every day to "just do it". Once you accept this, and know thyself, you can plan ahead to reduce your willpower requirements.
+	- Specific examples:
+	- Any entrenching actions. If I say "I'll just do 100 pushups etc today, here in my room", I will do 0 pushups that whole week. If I instead drive to the gym, I will do a massive free-weight session that leaves me weak. Once you're there, you enter "gym mode". In my room, I'm in "laptop mode". All that "comfort of your own home / easier & faster than driving somewhere" stuff is bullshit and has the wrong attitude. You can even take this a step further an invent new modes, i.e. "Cafe X is where I do my blog writing (and nothing else)". Result: increased associated productivity and results. The other day I was checking one of my arms and thinking, "wow, it's actually starting to look good now".
+	- Note: buying a years gym subscription is a useless entrenchment. Statistically, it's just throwing your money in the bin. Entrenchment applies only to your focus, which operates in the realm of hours, not months. I go to pay-per-visit gyms if I can, and grungier the better.
+	- Pre-preparation. I fucking hate tedium. The idea of wasting time and effort every day cooking and washing dishes and mixing bulking shakes pisses me off. So if I can't just eat out 100%, I will buy a stack of takeaway containers and cutlery and bottles, and have a massive cooking and mixing session one day which fills a freezer for a month. Then all I need to do is: microwave 2 minutes -> shove in my mouth -> throw in bin. Result: currently at my greatest weight ever.
+- You need the habit of *taking action* without caring about the results.
+    collapsed:: true
+	- Does a writer beat himself up over not finishing a book in one day? No, they just focus on getting in a good 5000 words every day.
+	- Does a golfer tear his hair out for not getting a hole in one? No, they just keep practicing to get better and better.
+	- Does a player get pissed about not getting the exact response they want every time? No, they just put in the work, because they know at the end of the day this is just a numbers game and eventually all the effort you put in will bring you the sweet, juicy reward you have earned.
+	- When in doubt, say yes https://web.archive.org/web/20160514143055/http://www.stevepavlina.com/blog/2011/04/action-bias/
+- Walden by Henry David Thoreau notes
+    collapsed:: true
+	- Walden by Henry David Thoreau notes
+		- What you are born into or easily acquire is a burden - due to entitlement making it hard to downgrade, loss aversion, maintenance cost (dust, rust), opprtunity cost, longevity, cost to protect from thieves, from damage, to replace, dependence costs eg lost cold adaptation etc.
+			- Categorise everything as essential, nice to have, luxury
+			- Essentials - Food, shelter, Clothing, Fuel (heater, cooking (supplies). Also note that I have free shelter in London and Portugal
+				- These all concern heating our bodies
+					- In warm countries we need far less
+					- Cold adaptation helps here, as does eating raw foods
+					- People trade 20 years of their life just to keep warm
+	- Shelter
+		- It would be well perhaps if we were to spend more of our days and nights without any obstruction between us and the celestial bodies
+	- A shed perhaps 6x3 wouldn't be the worst way to sleep, and there would be ridiculous rent
+		- Modern compact ultralight tents, or jakpak jacket/sleeping bags. or make a wigwam or sleep in a stealth van
+		- A comfortable house for a rude and hardy race, that lived mostly out of doors, was once made here almost entirely of such materials as Nature furnished ready to their hands.
+		- Why do you deserve a noble dwelling if you act have the pursuits of a savage?
+		- See maslow hierarchy
+		- Self-image - grooming
+		- Internet, smartphone, Social, Electricity (light, AC/fan)
+		- Money - for travel, internet, updating technology/clothes,
+		- To attract women - fashion, shelter, smartphone, haircut, grooming
+		- Learn to live with less
+		- Higher entitlement and need for comforts will keep you forever poor
+		- The price of anything is the amount of life you exchange for it
+		- when the farmer has got his house, he may not be the richer but the poorer for it, and it be the house that has got him.
+		- Too much Work makes it difficult to enjoy certain Leisure
+		- It also degrades quality of his relationships as he cannot afford to invest high time/money/emotions with man or women when he has Work obligations
+		- Even our games expose our servitude to Work
+		- We are controlled more by private than public opinion
+		- Experience/simulate many lives - history, poetry, mythology. Fiction, games
+		- We are made to exaggerate the importance of what work we do; and yet how much is not done by us!
+		- There's always stuff to do
+		- instead of studying how to make it worth men’s while to buy my baskets, I studied rather how to avoid the necessity of selling them.
+		- get affiiliates or hire salespeople
+		- The life which men praise
+		- and regard as successful is but one kind. Why should we exaggerate
+		- any one kind at the expense of the others?
+		- time-saving = covenience, safety
+		- Self-sufficiency is important, however highest ROI comes from leveraging money earned via high-wage profession (Aaron Clarey)
+		- On university - they should not play life, or study it merely, while the community supports them at this expensive game, but earnestly live it from beginning to end
+		- "Progress"
+		- Pretty things which distract from serious things
+		- Improved means to a result already easy to achieve
+		- Or there is no real world benefit e.g. encryptef chat for toddlers
+		- Improvements to life are mostly superficial - as most important things in life are an able body and able mind. and of most valuable extras, mindfulness, good relationships and free time
+		- Start using money>time calculation again
+		- e.g. you may pay a days wages to reach a place half a day away via bicycle
+		- Start viewing everything as time daily
+		- activities rtracker? pick at least one thing and calculate relative time cost for respective person, and myself
+		- Imagine each thing being built, and see the time it took
+		- Modern life with all its stuff and 'cribs' are so life-consuming compared to hunter gatherers or even 3rd world peoples
+		- On shopping (eary retirement extreme) malls suck as its midrange low longevity crap
+		- a man is rich in proportion to the number of things which he can afford to let alone.
+		- Live like a spartan
+		- Simplify everything
+		- Have a few standard meals for rotation eg scrambled eggs with butter and some fish/meat, Life smoothie etc. Calculate LDN cost for each meal
+		- Consider each moment like a piece of music
+		- Quiet evenings are like lounge
+		- Consider my life stages as music
+		- Read classics, for they are the noblest thoughts of man
+		- Books must be read as deliberately and reservedly as they were written
+	- Most men have learned to read to serve a paltry convenience, as they have learned to cipher in order to keep accounts and not be cheated in trade; but of reading as a noble intellectual exercise they know little 78 or nothing; yet this only is reading, in a high sense, not that which lulls us as a luxury and suffers the nobler faculties to sleep the while, but what we have to stand on tiptoe to read and devote our most alert and wakeful hours to.
+	- We spend more on almost any article of bodily aliment or ailment than on our mental aliment.
+	- I had this advantage, at least, in my mode of life, over those who were obliged to look abroad for amusement, to society and the theatre, that my life itself was become my amusement and never ceased to be novel.
+	- cedar,—first, second, third and fourth qualities, so lately all of one quality,
+	- They give me a new sense of the variety and capacity of that nature which is our common dwelling.
+		- Notes: 1) he takes great simple pleasure in listening to the sounds of nature
+	- It would put nations on the alert. Who would not be early to rise, and rise earlier and earlier every successive day of his life, till he became unspeakably healthy, wealthy, and wise?
+		- Notes: 1) getting a rooster
+	- While I enjoy the friendship of the seasons I trust that nothing can make life a burden to me.
+	- such sweet and beneficent society in Nature, in the very pattering of the drops, and in every sound and sight around my house, an infinite and unaccountable friendliness all at once like an atmosphere sustaining me, as made the fancied advantages of human neighborhood insignificant, and I have never thought of them since.
+	- Notes: 1) solitudr never bothered him
+	- What sort of space is that which separates a man from his fellows and makes him solitary? I have found that no exertion of the legs can bring two minds much nearer to one another.
+	- Notes: 1) live near this. not other men
+	- the perennial source of our life, whence in all our experience we have found that to issue; as the willow stands near the water and sends out its roots in that direction.
+	- am conscious of the presence and criticism of a part of me, which, as it were, is not a part of me, but spectator, sharing no experience, but taking note of
+	- I am conscious of the presence and criticism of a part of me, which, as it were, is not a part of me, but spectator, sharing no experience, but taking note of
+	- A man thinking or working is always alone, let him be where he will.
+	- Solitude is not measured by the miles of space that intervene between 101 a man and his fellows. The really diligent student in one of the crowded hives of Cambridge College is as solitary as a dervis in the desert. The farmer can work alone in the field or the woods all day, hoeing or chopping, and not feel lonesome, because he is employed; but when he comes home at night he cannot sit down in a room alone, at the mercy of his thoughts, but must be where he can “see the folks,” and recreate,
+	- Solitude is not measured by the miles of space that intervene between 101 a man and his fellows. The really diligent student in one of the crowded hives of Cambridge College is as solitary as a dervis in the desert. The farmer can work alone in the field or the woods all day, hoeing or chopping, and not feel lonesome, because he is employed; but when he comes home at night he cannot sit down in a room alone, at the mercy of his thoughts, but must be where he can “see the folks,” and recreate, and as he thinks remunerate, himself for his day’s solitude; and hence he wonders how the student can sit alone in the house all night and most of the day without ennui and “the blues;” but he does not realize that the student, though in the house, is still at work in his field, and chopping in his woods, as the farmer in his, and in turn seeks the same recreation and society that the latter does, though it may be a more condensed form of it.
+	- Society is commonly too cheap. We meet at very short intervals, not having had time to acquire any new value for each other. We meet at meals three times a day, and give each other a new taste of that old musty cheese that we are. We have had to agree on a certain set of rules, called etiquette and politeness, to make this frequent meeting tolerable, and that we need not come to open war. We meet at the post-office, and at the sociable, and about the fireside every night; we live thick and are in each other’s way, and stumble over one another, and I think that we thus lose some respect for one another. Certainly less frequency would suffice for all important and hearty communications.
+	- I am no more lonely than the Mill Brook, or a weathercock, or the northstar, or the south wind, or an April shower, or a January thaw, or the first spider in a new house.
+	- Am I not partly leaves and vegetable mould myself?
+		- Notes: 1) into the earth we shall decay
+	- enough.
+	- Notes: 1) unrelated note: black clothes show dust and other particles more easily whilst lighter colours show stains or liquid more easily and only jet black wont show liquid drops
+	- He was so simply and naturally humble—if he can be called humble who never aspires—that humility was no distinct quality in him,
+	- Girls and boys and young women generally seemed glad to be in the woods. They looked in the pond and at the flowers, and improved their time. Men of business, even farmers, thought only of solitude and employment, and of the great distance at which I dwelt from something or other; and though they said that they loved a ramble in the woods occasionally, it was obvious that they did not. Restless committed men, whose time was all taken up in getting a living or keeping it;
+	- How, then, can our harvest fail? Shall I not rejoice also at the abundance of the weeds whose seeds are the granary of the birds?
+		- Notes: 1) antifragility
+	- Every day or two I strolled to the village to hear some of the gossip which is incessantly going on there, circulating either from mouth to mouth, or from newspaper to newspaper, and which, taken in homoeopathic doses, was really as refreshing in its way as the rustle of leaves and the peeping of frogs.
+	- digested or cracked up before it is emptied into finer and more delicate hoppers within doors. I observed that the vitals of the village were the grocery, the bar-room, the post-office, and the bank; and, as a necessary part of the machinery, they kept a bell, a big gun, and a fire-engine, at convenient places;
+	- I observed that the vitals of the village were the grocery, the bar-room, the post-office, and the bank; and, as a necessary part of the machinery, they kept a bell, a big gun, and a fire-engine, at convenient places;
+	- Notes: 1) things to think sbout in becoming self sufficient
+	- I observed that the vitals of the village were the grocery, the bar-room, the post-office, and the bank; and, as a necessary part of the machinery, they kept a bell, a big gun, and a fire-engine, at convenient places;
+	- Signs were hung out on all sides to allure him; some to catch him by the appetite, as the tavern and victualling cellar; some by the fancy, as the dry goods store and the jeweller’s; and others by the hair or the feet or the skirts, as the barber, the shoemaker, or the tailor.
+	- Not till we are lost, in other words, not till we have lost the world, do we begin to find ourselves, and realize where we are and the infinite extent of our relations.
+	- did not use tea, nor coffee, nor butter, nor milk, nor fresh meat, and so did not have to work to get them;
+	- but as he began with tea, and coffee, and butter, and milk, and beef, he had to work hard to pay for them, and when he had worked hard he had to eat hard again to repair the waste of his system
+	- I told him, that as he worked so hard at bogging, he required thick boots and stout clothing, which yet were soon soiled and worn out, but I wore light shoes and thin clothing, which cost not half so much,
+	- Let not to get a living be thy trade, but thy sport.
+	- Men come tamely home at night only from the next field or street, where their household echoes haunt, and their life pines because it breathes its own breath over again; their shadows morning and evening reach farther than their daily steps. We should come home from far, from adventures, and perils, and discoveries every day, with new experience and character.
+	- Fishermen, hunters, woodchoppers, and others, spending their lives in the fields and woods, in a peculiar sense a part of Nature themselves, are often in a more favorable mood for observing her, in the intervals of their pursuits, than philosophers or poets even, who approach her with expectation. She is not afraid to exhibit herself to them.
+	- It is not worth the while to live by rich cookery. Most men would feel shame if caught preparing with their own hands precisely such a dinner, whether of animal or vegetable food, as is every day prepared for them by others. Yet till this is otherwise we are not civilized, and, if gentlemen and ladies, are not true men and women.
+	- Most men would feel shame if caught preparing with their own hands precisely such a dinner,
+	- Of all ebriosity, who does not prefer to be intoxicated by the air he breathes?
+	- If I knew so wise a man as could teach me purity I would go to seek him forthwith. “A command over our passions, and over the external senses of the 163 body, and good acts, are declared by the Ved to be indispensable in the mind’s approximation to God.”
+	- transmute what in form is the grossest sensuality into purity and devotion. The generative energy, which, when we are loose, dissipates and makes us unclean, when we are continent invigorates and inspires us. Chastity is the flowering of man; and what are called Genius, Heroism, Holiness, and the like, are but various fruits which succeed it.
+	- Notes: 1) sexual transmutation
+	- All sensuality is one, though it takes many forms; all purity is one. It is the same whether a man eat, or drink, or cohabit, or sleep sensually. They are but one appetite, and we only need to see a person do any one of these things to know how great a sensualist he is. The impure can neither stand nor sit with purity.
+	- In the student sensuality is a sluggish habit of mind. An unclean person is universally a slothful one, one who sits by a stove, whom the sun shines on prostrate, who reposes without being fatigued.
+	- We discourse freely without shame of one form of sensuality, and are silent about another.
+	- Every man is the builder of a temple, called his body, to the god he worships, after a style purely his own, nor can he get off by hammering marble instead. We are all sculptors and painters, and our material is our own flesh and blood and bones.
+	- Notes: 1) dont risk more fractures - metal plates and scars. In asia only drive an automatic, dilligently condition cautious driving and/or wear full gear.
+	- Why will men worry themselves so? He that does not eat need not work. I wonder how much they have reaped.
+	- The wasps came by thousands to my lodge in October, as to winter quarters, and settled on my windows within and on the walls over- head, sometimes deterring visitors from entering. Each morning, when they were numbed with cold, I swept some of them out, but I did not trouble myself much to get rid of them; I even felt complimented by their regarding my house as a desirable shelter.
+	- fireplace, as the most vital part of the house.
+	- Notes: 1) in line with heat being the lowest need of needs hierarchy
+	- where to be a guest is to be presented with the freedom of the house, and not to be carefully excluded from seven eighths of it, shut up in a particular cell, and told to make yourself at home there,—in solitary confinement. Nowadays the host does not admit you to his hearth, but has got the mason to build one for yourself somewhere in his alley, and hospitality is the art of keeping you at the greatest distance.
+	- draw lines through the length and breadth of the aggregate of a man’s particular daily behaviors and waves of life into his coves and inlets, and where they intersect will be the height or depth of his character. Perhaps we need only to know how his shores trend and his adjacent country or circumstances, to infer his depth and concealed bottom. If he is surrounded by mountainous circumstances, an Achillean shore, whose peaks overshadow and are reflected in his bosom, they suggest a corresponding depth in him. But a low and smooth shore proves him shallow on that side.
+	- Also there is a bar across the entrance of our every cove, or particular 217 inclination; each is our harbor for a season, in which we are detained and partially land-locked. These inclinations are not whimsical usually, but their form, size, and direction are determined by the promontories of the shore, the ancient axes of elevation. When this bar is gradually increased by storms, tides, or currents, or there is a subsidence of the waters, so that it reaches to the surface, that which was at first but an inclination in the shore in which a thought was harbored becomes an individual lake, cut off from the ocean, wherein the thought secures its own conditions, changes, perhaps, from salt to fresh, becomes a sweet sea, dead sea, or a marsh.
+	- You may melt your metals and cast them into the most beautiful moulds you can; they will never excite me like the forms which this molten earth flows out into. And not only it, but the institutions upon it, are plastic like clay in the hands of the potter.
+	- The first sparrow of spring! The year beginning with younger hope than ever! The faint silvery warblings heard over the partially bare and moist fields from the blue-bird, the song-sparrow, and the red- wing, as if the last flakes of winter tinkled as they fell! What at such a time are histories, chronologies, traditions, and all written revelations?
+	- Notes: 1) all our information detracts from the present moment
+	- A single gentle rain makes the grass many shades greener. So our prospects brighten on the influx of better thoughts. We should be blessed if we lived in the present always, and took advantage of every accident that befell us, like the grass which confesses the influence of the slightest dew that falls on it; and did not spend our time in atoning for the neglect of past opportunities, which we call doing our duty.
+	- A single gentle rain makes the grass many shades greener. So our prospects brighten on the influx of better thoughts. We should be blessed if we lived in the present always, and took advantage of every accident that befell us, like the grass which confesses the influence of the slightest dew that falls on it; and did not spend our time in atoning for the neglect of past opportunities, which we call doing our duty. We loiter in winter while it is already spring.
+	- The universe is wider than our views of it.
+	- Yet we should oftener look over the tafferel of our craft, like curious passengers, and not make the voyage like stupid sailors picking oakum. The other side of the globe is but the home of our correspondent. Our voyaging is only great-circle sailing, and the doctors prescribe for diseases of the skin merely. One hastens to Southern Africa to chase the giraffe; but surely that is not the game he would be after. How long, pray, would a man hunt giraffes if he could? Snipes and woodcocks also may afford rare sport; but I trust it would be nobler game to shoot one’s self.— “Direct your eye sight inward, and you’ll find A thousand regions in your mind Yet undiscovered. Travel them, and be Expert in home-cosmography.”
+	- be a Columbus to whole new continents and worlds within you, opening new channels, not of trade, but of thought.
+	- What was the meaning of that South-Sea Exploring Expedition, with all its parade and expense, but an indirect recognition of the fact, that there are continents and seas in the moral world, to which every man is an isthmus or an inlet, yet unexplored by him, but that it is easier to sail many thousand miles through cold and storm and cannibals, in a government ship, with five hundred men and boys to assist one, than it is to explore the private sea, the Atlantic and Pacific Ocean of one’s being alone.—
+	- Let them wander and scrutinize the outlandish Australians. I have more of God, they more of the road.
+	- Let them wander and scrutinize the outlandish Australians. I have more of God, they more of the road. It is not worth the while to go round the world to count the cats in Zanzibar.
+	- A saner man would have found himself often enough “in formal opposition” to what are deemed “the most sacred laws of society,” through obedience to yet more sacred laws, and so have tested his resolution without going out of his way.
+	- It is remarkable how easily and insensibly we fall into a particular route, and make a beaten track for ourselves. I had not lived there a week before my feet wore a path from my door to the pond-side;
+	- The surface of the earth is soft and impressible by the feet of men; and so with the paths which the mind travels. How worn and dusty, then, must be the highways of the world, how deep the ruts of tradition and conformity!
+	- I did not wish to take a cabin passage, but rather to go before the mast and on the deck of the world, for there I could best see the moonlight amid the mountains. I do not wish to go below now.
+	- While England endeavors to cure the potato-rot, will not any endeavor to cure the brain-rot, which prevails so much more widely and fatally?
+	- Let every one mind his own business, and endeavor to be what he was made.
+	- Why should we be in such desperate haste to succeed, and in such desperate enterprises? If a man does not keep pace with his companions, perhaps it is because he hears a different drummer. Let him step to the music which he hears, however measured or far away.
+	- Why should we be in such desperate haste to succeed, and in such desperate enterprises? If a man does not keep pace with his companions, perhaps it is because he hears a different drummer. Let him step to the music which he hears, however measured or far away. It is not important that he should mature as soon as an apple-tree or an oak.
+	- However mean your life is, meet it and live it; do not shun it and call it hard names. It is not so bad as you are. It looks poorest when you are richest. The fault-finder will find faults even in paradise. Love your life, poor as it is. You may perhaps have some pleasant, thrilling, glorious hours, even in a poor-house. The setting sun is reflected from the windows of the alms-house as brightly as from the rich man’s abode; the snow melts before its door as early in the spring. I do not see but a quiet mind may live as contentedly there, and have as cheering thoughts, as in a palace.
+	- The town’s poor seem to me often to live the most independent lives of any. May be they are simply great enough to receive without misgiving.
+	- Do not trouble yourself much to get new things, whether clothes or friends. Turn the old; return to them. Things do not change; we change. Sell your clothes and keep your thoughts. God will see that you do not want society.
+	- if there were bestowed on us the wealth of Croesus, our aims must still be the same, and our means essentially the same. Moreover, if you are restricted in your range by poverty, if you cannot buy books and newspapers, for instance, you are but confined to the most significant and vital experiences; you are compelled to deal with the material which yields the most sugar and the most starch. It is life near the bone where it is sweetest. You are defended from being a trifler.
+	- I delight to come to my bearings,—not walk in procession with pomp and parade, in a conspicuous place, but to walk even with the Builder of the universe, if I may,—not to live in this restless, nervous, bustling, trivial Nineteenth Century, but stand or sit thoughtfully while it goes by.
+	- Rather than love, than money, than fame
+- Stuff costs you 3 times
+    collapsed:: true
+	- [ I'm of the strong belief that "stuff" costs you three times. It costs you money I'm of the strong belief that "stuff" costs you three times. It costs you money to buy it (usually), it costs you a place to store it and it costs you to get rid of it. Therefore, I take the stuff I own very seriously. If I haven't used it in over a year, I sell it, give it away, or toss it. If I haven't used it in over a month, I do an analysis on whether or not having it when I need it beats not having it at all. Guns fall into the "I keep it" category, whereas a whisk or a potato masher does not. Same with tool kits and general survival equipment. Certain books have their place here, too. If I use it once or twice a week, but it's similar to something else that can do the same thing in about the same time, I toss it. Redundant shit like multiple variations of the same thing fit in this category so if you have two blenders, get rid of one. Same with spare rooms with spare beds, you only want these if you entertain guests regularly or you're making money on it with Air BnB or something. Depending on how serious you get, modern conveniences like coffeemakers, dryers, and microwaves fit in this category because they can be replaced by more durable things such as a cooking pot, a clothes line, and the stove. If I use it every day, that's a no brainer, it stays. I try to make these items functionally indestructible or repairable. A cast iron skillet fits in this category, a teflon fry pan doesn't. A safety razor provides a functionally unlimited amount of shaves, whereas a Gillete razor does not. A fountain pen fits the category, a disposable pen does not. I don't fuck around with disposable goods. Everything else outside of these categories, especially dumb hobby shit that you bought once and never used, goes. Unsurprisingly, it only takes me one leisurely afternoon to move from one place to the next.
+- Revolut
+    collapsed:: true
+	- https://revolut.com/faq/gettingstarted.php?cat_id=10&faq_id_according=57&cat_name=Common%20Faqs#parentVerticalTab10
+	- [12/01, 19:59] L_Danny G: It's in high demand , there's a waiting list and all so the sooner you sign up the better [12/01, 19:59] L_Danny G: It's basically a debit card [12/01, 19:59] L_Danny G: And you can top it up on an app [12/01, 19:59] L_Danny G: And you can convert to any currency whenever you want on your app [12/01, 20:00] L_Danny G: At inter bank rate - so no bullshit rates you get at airports [12/01, 20:00] L_Danny G: It's sick man used it in USA.. I was laughing [12/01, 20:00] L_Danny G: So tom if you get that you can pay me using that [12/01, 20:00] L_Danny G: If not PayPal [12/01, 20:00] L_Danny G: But I recommend to everyone
+	- Top-up
+	- Bank TransferFreeDebit cardFreeCredit Card1%USD debit/credit card3%/4%
+	- Revolut Transactions
+	- Instant transfers(Revolut to Revolut)FreeBank transfersFreeATM withdrawalsFree up to £200 (or currency equivalent) per calendar month. A 2% fee applies thereafterCurrency exchange transactions(Currency exchange and cross-currency card purchases, withdrawals, and bank transfers)Live interbank rate with no fees up to £5000 (or currency equivalent) per calender month. A 0.5% fee applies thereafterTransfer changes or recalls£10 per transfer recall, MT103 request or trace.
+	- https://www.metrobankonline.co.uk/bank-accounts/i-want-some-information-about/using-my-card-abroad/
+	- No fees on purchases or ATM withdrawals in Europe
+	- Outside Europe
+	- 2.5% purchase fees2.5% + £1.50 ATM fee
+- Sonic bomb-type alarm clock
+    collapsed:: true
+	- Use 2 alarms (1 super loud sonic bomb alarm and normal phone alarm 2m before)
+	- + Associates 1st alarm more strongly with habit to get up immediately
+	- - High cortisol every time I wake up?
+	- - Doesn't allow for noting down ideas or research in bed
+	- - Too annoying for other people if we live together?
+	- - Often I'd jump out of bed to turn off alarm then crawl into bed immediately after regardless
+- RVF Best Of
+    collapsed:: true
+	- RE: Members list - sort by reputation points - Top 1000 Members by Rep
+		-
+			- Roosh: 346
+			- WestIndianArchie: 305
+			- Giovonny: 277
+			- Samseau: 237
+			- scotian: 230
+			- AnonymousBosch: 229
+			- The Lizard of Oz: 226
+			- Quintus Curtius: 222
+			- TravelerKai: 218
+			- Tuthmosis: 210
+			- Beyond Borders: 209
+			- scorpion: 206
+			- jariel: 188
+			- Excelsior: 184
+			- Fisto: 175
+			- Suits: 174
+			- Christian McQueen: 171
+			- Days of Broken Arrows: 170
+			- MikeCF: 165
+			- Veloce: 161
+			- LINUX: 160
+			- el mechanico: 149
+			- CleanSlate: 148
+			- Handsome Creepy Eel: 141
+			- Zelcorpion: 140
+			- thegmanifesto: 136
+			- Vacancier Permanent: 135
+			- BlurredSevens: 131
+			- Atlantic: 128
+			- 2Wycked: 127
+			- Cr33pin: 124
+			- kosko: 120
+			- kaotic: 119
+			- Cobra: 118
+			- soup: 115
+			- RioNomad: 115
+			- slubu: 112
+			- Basil Ransom: 110
+			- Global Entry: 105
+			- VincentVinturi: 105
+			- Courage Reborn: 104
+			- SteveMcMahon: 104
+			- Moma: 103
+			- Gmac: 103
+			- MiXX: 103
+			- speakeasy: 102
+			- iknowexactly: 102
+			- Lothario: 100
+			- YMG: 94
+			- HankMoody: 94
+			- Tokyo Joe: 94
+			- Travesty: 89
+			- Sp5: 89
+			- Phoenix: 88
+			- samsamsam: 87
+			- Chaos: 87
+			- Sourcecode: 86
+			- rudebwoy: 85
+			- WestCoast: 85
+			- Nemencine: 84
+			- Thomas the Rhymer: 82
+			- H1N1: 82
+			- Paracelsus: 81
+			- Dantes: 80
+			- thoughtgypsy: 79
+			- Irish: 78
+			- Hotwheels: 77
+			- Cattle Rustler: 77
+			- Comte De St. Germain: 75
+			- MrXY: 75
+			- Libertas: 75
+			- Vinny: 73
+			- General Stalin: 72
+			- Deepdiver: 72
+			- delicioustacos: 72
+			- Laner: 71
+			- Brodiaga: 71
+			- Deluge: 70
+			- hydrogonian: 70
+			- Vicious: 69
+			- iop890: 69
+			- Onto: 69
+			- XXL: 68
+			- Bushido: 68
+			- DVY: 67
+			- LouieG: 67
+			- Brosemite: 66
+			- MaleDefined: 66
+			- Hooligan Harry: 66
+			- Merenguero: 65
+			- Spider: 65
+			- Enigma: 64
+			- Parlay44: 63
+			- The Beast1: 63
+			- Dr. Howard: 63
+			- AntiTrace: 63
+			- vinman: 62
+			- StrikeBack: 62
+			- LeightonBlackstock: 62
+			- Isaac Jordan: 62
+			- Kona: 61
+			- The Black Knight: 60
+			- Papi Rico: 60
+			- Matt Forney: 59
+			- Dusty: 58
+			- Nascimento: 57
+			- Dalaran1991: 57
+			- Fortis: 56
+			- El Chinito loco: 55
+			- Teedub: 55
+			- runsonmagic: 55
+			- bacon: 55
+			- PeruLover12: 55
+			- Spike: 54
+			- philosophical_recovery: 54
+			- Menace: 53
+			- Aurini: 52
+			- Gringuito: 52
+			- lskdfjldsf: 51
+			- CrashBangWallop: 50
+			- Soma: 50
+			- Sonsowey: 49
+			- TheWastelander: 49
+			- Nonpareil: 49
+			- TravelHardcore: 49
+			- WesternCancer: 48
+			- DirectDanger: 48
+			- 20Nation: 48
+			- Kid Strangelove: 48
+			- JayJuanGee: 47
+			- The Fantasist: 47
+			- bojangles: 46
+			- MiscBrah: 46
+			- DaveR: 46
+			- robreke: 45
+			- Distant Light: 45
+			- OGNorCal707: 44
+			- Leonard D Neubache: 44
+			- rottenapple: 44
+			- Kamikaze: 44
+			- unbowed: 44
+			- Akula: 43
+			- Going strong: 43
+			- PapayaTapper: 43
+			- Kaizen: 43
+			- Buakaw: 43
+			- germanico: 42
+			- AneroidOcean: 42
+			- GlobalMan: 42
+			- 262: 42
+			- Feisbook Control: 42
+			- booshala: 42
+			- redbeard: 41
+			- HighSpeed_LowDrag: 41
+			- Timoteo: 40
+			- Hannibal: 40
+			- RagnarLothbrok: 40
+			- Mage: 39
+			- sixsix: 39
+			- polar: 39
+			- CodyB: 39
+			- Cyclone: 39
+			- el conquistador: 39
+			- pitt: 38
+			- Windom Earle: 38
+			- Tiguere: 38
+			- Vaun: 37
+			- MMX2010: 37
+			- getdownonit: 37
+			- Dagonet: 37
+			- YardDog: 37
+			- chochemonger1: 36
+			- LeBeau: 36
+			- Kabal: 36
+			- Qwest: 36
+			- InternationPlayboy: 35
+			- MidniteSpecial: 35
+			- renotime: 35
+			- brofists: 35
+			- Ghost Tiger: 34
+			- TonySandos: 34
+			- Horus: 34
+			- CJ: 34
+			- Fast Eddie: 34
+			- KorbenDallas: 34
+			- Clint Barton: 34
+			- TigerMandingo: 33
+			- Saladin: 33
+			- Icarus: 33
+			- SamuelBRoberts: 33
+			- Rawmeo: 33
+			- Prophylaxis: 33
+			- WeekendCasanova: 33
+			- Noir: 33
+			- Ocelot: 33
+			- jimukr104: 32
+			- Wutang: 32
+			- Snowplow: 32
+			- Peregrine: 32
+			- Off The Reservation: 32
+			- JohnKreese: 32
+			- Tigre: 32
+			- Tenerife: 32
+			- Satoshi: 32
+			- naughtynomad: 32
+			- Tex: 32
+			- Mentavious: 31
+			- tenderman100: 31
+			- XPQ22: 31
+			- Wahawahwah: 31
+			- greekgod: 31
+			- Americas: 31
+			- PainPositive: 31
+			- Charlemagne In Sweatpants: 31
+			- Kickb: 30
+			- worldwidetraveler: 30
+			- Caligula: 30
+			- MattC: 30
+			- Slim Shady: 30
+			- Bacchus: 30
+			- weambulance: 30
+			- The Father: 30
+			- InternationalSwagger: 30
+			- Spectrumwalker: 30
+			- bootyhuntah: 30
+			- debeguiled: 29
+			- GoldHawkStar: 29
+			- dk902: 29
+			- Dr Feelgood: 29
+			- donnie514: 29
+			- heavy: 28
+			- lavidaloca: 28
+			- The Reactionary Tree: 28
+			- Oneeyedjack: 28
+			- oldnemesis: 27
+			- RawGod: 27
+			- Que enspastic: 27
+			- MrLemon: 27
+			- Designate: 27
+			- calwinston: 27
+			- birthday cat: 27
+			- Kangaroo: 27
+			- SomeFcksGiven: 27
+			- Vigo_the_Carpathian: 27
+			- MY DETROIT PLAYAS: 26
+			- elabayarde: 26
+			- NomadofEU: 26
+			- Constitution45: 26
+			- Rocha: 26
+			- h3ltrsk3ltr: 26
+			- jasond: 26
+			- It_is_my_time: 25
+			- ElJefe: 25
+			- gringochileno: 25
+			- azulsombra: 25
+			- Parzival: 25
+			- Lucky: 25
+			- DjembaDjemba: 25
+			- RIslander: 25
+			- coverdoc: 25
+			- draguer: 25
+			- This Is Trouble: 25
+			- potential1: 25
+			- FretDancer: 24
+			- Kingsley Davis: 24
+			- YossariansRight: 24
+			- R Smoov: 24
+			- Lizard King: 24
+			- Luckystar: 24
+			- Big Nilla: 24
+			- Mr.GM: 24
+			- Sargon of Akkad: 24
+			- MdWanderer: 24
+			- Geomann180: 24
+			- turkishcandy: 24
+			- komatiite: 24
+			- Alpharius: 24
+			- AboveAverageJoe: 24
+			- Valentine: 24
+			- newgame: 24
+			- world_nomad: 24
+			- eradicator: 23
+			- j r: 23
+			- nomadbrah: 23
+			- durangotang: 23
+			- mikado: 23
+			- Patriarch: 23
+			- zanetti: 23
+			- SpiderKing: 23
+			- Hans Dix: 23
+			- HankRearden: 23
+			- Innuendo: 23
+			- Scott Free: 23
+			- 192: 23
+			- JayMillz: 22
+			- Cincinnatus: 22
+			- Ensam: 22
+			- Drazen: 22
+			- Emancipator: 22
+			- Red_Pillage: 22
+			- Amour Fou: 22
+			- JimNortonFan: 22
+			- Checkmat: 22
+			- deathtofatties: 22
+			- playa_with_a_passport: 22
+			- Gustavus Adolphus: 22
+			- Espresso: 22
+			- Frost: 22
+			- Brisey: 22
+			- good looking loser: 22
+			- RexImperator: 21
+			- aphelion: 21
+			- RichieP: 21
+			- Remington: 21
+			- Carlos100: 21
+			- Disco_Volante: 21
+			- redpillage: 21
+			- TripleG: 21
+			- John Michael Kane: 21
+			- gandt: 21
+			- kavakid: 21
+			- ElJefe1: 21
+			- Kwisatz: 21
+			- ONE A DAY: 21
+			- RickyGP: 21
+			- RaymondKertezc: 21
+			- Truth Seeker: 21
+			- N°6: 20
+			- Bad Hussar: 20
+			- Blaster: 20
+			- Pusscrook: 20
+			- storm: 20
+			- Belgrano: 20
+			- CJ_W: 20
+			- Seth_Rose: 20
+			- simondice: 20
+			- joehoya: 20
+			- Kdog: 20
+			- CaptainChardonnay: 20
+			- americanInEurope: 20
+			- Gopnik: 20
+			- Eddie Winslow: 20
+			- swuglyfe: 20
+			- PhDre: 20
+			- Skotch: 20
+			- Akwesi: 20
+			- Austrian: 20
+			- YoungBlood: 20
+			- Swedreams: 20
+			- kbell: 19
+			- kerouac: 19
+			- presidentcarter: 19
+			- TheSlayer: 19
+			- Benoit: 19
+			- mikeymike: 19
+			- MrRoundtree: 19
+			- Entropy4: 19
+			- godzilla: 19
+			- Atlanta Man: 19
+			- Afarang: 19
+			- frenchcorporation: 19
+			- DMario: 19
+			- BallsDeep: 19
+			- Sirob: 19
+			- Advent Persona: 19
+			- Dom Torres: 19
+			- Tex Pro: 18
+			- Belize King: 18
+			- cascadecombo: 18
+			- DamienCasanova: 18
+			- Mercenary: 18
+			- General Mayhem: 18
+			- Luvianka: 18
+			- Conscious Pirate: 18
+			- Tengen: 18
+			- Ringo: 18
+			- Pontifex Maximus: 18
+			- Billy Chubbs: 18
+			- Schlep: 18
+			- Freddy_1: 18
+			- Dagnasty: 18
+			- Felix 5000: 18
+			- WashedUPVet: 18
+			- Vancity29: 18
+			- n/a: 18
+			- Foolsgo1d: 17
+			- Therapsid: 17
+			- Vitriol: 17
+			- T and A Man: 17
+			- CRR: 17
+			- OregonToSoCal: 17
+			- A War You Cannot Win: 17
+			- mental: 17
+			- Troll King: 17
+			- JWLZG: 17
+			- Rigsby: 17
+			- rungoodinc: 17
+			- doc holliday: 17
+			- readysetgo: 17
+			- skptc: 17
+			- Ali: 17
+			- Sojourn: 17
+			- Sombro: 16
+			- WalterBlack: 16
+			- Captainstabbin: 16
+			- teh_skeeze: 16
+			- wi30: 16
+			- Tail Gunner: 16
+			- NY Digital: 16
+			- Yeti: 16
+			- blurb: 16
+			- Agreddor: 16
+			- the Thing: 16
+			- Spaniard88: 16
+			- LostGringo: 16
+			- jdreise: 16
+			- Just_Die: 16
+			- superschalk: 16
+			- Jagnum: 16
+			- Armogan: 16
+			- Tyler Belfort: 16
+			- ru2486: 16
+			- griften: 16
+			- Otzmatron: 16
+			- jamaicabound: 15
+			- Liberty Sea: 15
+			- realologist: 15
+			- Teddykgb: 15
+			- Joga Bonito: 15
+			- RockHard: 15
+			- Avon Barksdale: 15
+			- xpatplayer: 15
+			- CH-Toronto: 15
+			- Private Man: 15
+			- Engineer: 15
+			- Technics: 15
+			- NovaVirtu: 15
+			- Glock: 15
+			- Texas_Tryhard: 15
+			- Beirut: 15
+			- atlant: 15
+			- PhilE: 15
+			- rover: 15
+			- armenia4ever: 15
+			- Ben Akiba: 15
+			- BigAlexBoss: 15
+			- RealityCheck: 15
+			- syrianguy: 15
+			- DJ-Matt: 14
+			- Virtus: 14
+			- porscheguy: 14
+			- Easy_C: 14
+			- JoyStick: 14
+			- Neo: 14
+			- Smitty: 14
+			- BIGINJAPAN: 14
+			- ElBorrachoInfamoso: 14
+			- CactusCat589: 14
+			- IvanDrago: 14
+			- dog24: 14
+			- Collide: 14
+			- Vincent Chase: 14
+			- Dismal Operator: 14
+			- The Duke: 14
+			- WalkingMan: 14
+			- El_Gostro: 14
+			- WD-40: 14
+			- Jackreacher: 14
+			- Agastya: 14
+			- Gas: 14
+			- Antipodean: 14
+			- dog: 14
+			- _Cicero: 14
+			- frozen-ace: 14
+			- Abnormal: 14
+			- spokepoker: 13
+			- kinjutsu: 13
+			- Ziltoid: 13
+			- TheFinalEpic: 13
+			- Teutatis: 13
+			- eatthishomie: 13
+			- Irenicus: 13
+			- travolta: 13
+			- RaccoonFace: 13
+			- w00t: 13
+			- Surreyman: 13
+			- Kieran: 13
+			- MHaes: 13
+			- DannyAlberta: 13
+			- K-man: 13
+			- 8ball: 13
+			- Adonis: 13
+			- Arado: 13
+			- Blackwell: 13
+			- Lika: 13
+			- Saga: 13
+			- rishboy77: 13
+			- elcidcampeador: 13
+			- I DIDN'T KILL MY WIFE: 13
+			- Farmageddon: 13
+			- whoishe: 13
+			- Seamus: 13
+			- K Galt: 13
+			- Nemausus: 13
+			- mbare: 13
+			- darklightdispatch: 13
+			- Jura: 13
+			- Kissinger2014: 13
+			- Hallasan: 13
+			- Corroncho: 13
+			- RedGuard: 13
+			- Condog: 13
+			- Anti-Riot: 13
+			- d_hzy: 13
+			- caribbean soul: 13
+			- Chad Daring: 12
+			- Architekt: 12
+			- Truth Teller: 12
+			- Mekorig: 12
+			- Stun: 12
+			- HeyPete: 12
+			- at350zguyy: 12
+			- Blunt: 12
+			- Pacesetter20: 12
+			- Sooth: 12
+			- BadgerHut: 12
+			- DarianFrey: 12
+			- LowerCaseG: 12
+			- defguy: 12
+			- Lights: 12
+			- Black Quixote: 12
+			- poledaddy: 12
+			- Guriko: 12
+			- Caractacus Potts: 12
+			- Jim Kirk: 12
+			- european_lover: 12
+			- TheBowery: 12
+			- Selembao: 12
+			- edlefou: 12
+			- MrRemi: 12
+			- fvitterbi: 12
+			- Sosa: 12
+			- iamkaisersoze: 12
+			- Return Of Kings: 11
+			- ManAbout: 11
+			- BortimusPrime: 11
+			- Mrs. Chocolate: 11
+			- rpg: 11
+			- Professor Fox: 11
+			- nek: 11
+			- Blackhawk: 11
+			- roberto: 11
+			- Enfant_Terrible: 11
+			- Every10GivesMeA10: 11
+			- Il Bersagliere: 11
+			- nomadicdude: 11
+			- ~wrIghter~: 11
+			- Statsi: 11
+			- Aer: 11
+			- zatara: 11
+			- The_e_man: 11
+			- TravellingSoldier: 11
+			- n0000: 11
+			- Wizard: 11
+			- portofmanteau: 11
+			- whiteknightrises: 11
+			- jj90: 11
+			- libertad1312: 11
+			- Prof. Ligate: 11
+			- Locksmith: 11
+			- david.garrett84: 11
+			- Manwhore: 11
+			- the_ox: 11
+			- asdfk: 11
+			- crudeloyalist: 11
+			- warder: 11
+			- Paul B: 11
+			- PALEO DUDE: 11
+			- AmateurGame: 11
+			- killongy: 11
+			- vanryan: 11
+			- steak: 11
+			- nigerian: 11
+			- thedriver: 11
+			- greven: 11
+			- Glaucon: 10
+			- monster: 10
+			- Kitsune: 10
+			- Ingocnito: 10
+			- tomtud: 10
+			- bacan: 10
+			- UrbanNerd: 10
+			- Goldin Boy: 10
+			- Capitán Peligroso: 10
+			- amity: 10
+			- dads: 10
+			- RedPillUK: 10
+			- solo: 10
+			- TheRookie: 10
+			- The Wire: 10
+			- Hardy Daytona: 10
+			- HawkWrites: 10
+			- svenski7: 10
+			- TheMaleBrain: 10
+			- reco2100: 10
+			- Robert Plant: 10
+			- Julio: 10
+			- xxMarco: 10
+			- Blackliter: 10
+			- Jack Of All Trades: 10
+			- the-dream: 10
+			- William Windsor: 10
+			- LA Savage: 10
+			- rcraig33hb: 10
+			- Safado: 10
+			- TheChef: 10
+			- Lance Blastoff: 10
+			- kinnikinik: 10
+			- Mark Fletcher: 10
+			- Cambodian Creamsicle: 10
+			- Nacirema: 10
+			- Pornopung: 10
+			- Stickman: 10
+			- IronShark: 10
+			- The Nude Matador: 10
+			- bleaknight: 10
+			- Fractal: 10
+			- RodneyStrong: 10
+			- justforfun19713: 10
+			- Generation21stCentury: 10
+			- SAMO: 10
+			- SmashBandicoot: 10
+			- EDantes: 9
+			- Latinopan: 9
+			- LEMONed IScream: 9
+			- Rush87: 9
+			- Oz.: 9
+			- Riker: 9
+			- gringoed: 9
+			- 911: 9
+			- big poppa: 9
+			- Switch: 9
+			- BostonBMW: 9
+			- Volk: 9
+			- cibo: 9
+			- Gunner: 9
+			- redneckpunk: 9
+			- velkrum: 9
+			- DrCotard: 9
+			- Feldeinsamkeit: 9
+			- NewMeta: 9
+			- WEDO: 9
+			- edtf: 9
+			- Canopus: 9
+			- Don Juan Tenorio: 9
+			- LaserBear: 9
+			- Alpha Mind: 9
+			- ElFlaco: 9
+			- temujin: 9
+			- CupCake: 9
+			- Don: 9
+			- Zerdame: 9
+			- fman: 9
+			- G Trooper: 9
+			- Traktor: 9
+			- Chunnel: 9
+			- ChrisGambi: 9
+			- polish rumble: 9
+			- JohnnyAppleSeeds: 9
+			- Tully Mars: 9
+			- shibby: 9
+			- RenewalMan: 9
+			- Albertron: 9
+			- richler: 9
+			- Drix: 9
+			- Blake2: 9
+			- Lucky Luke: 9
+			- SvenTuga: 9
+			- Thailand_Veteran: 9
+			- Roccker: 9
+			- thegreenman: 9
+			- sand: 9
+			- ocean: 9
+			- SirSpanky: 9
+			- wallywest: 9
+			- Pride male: 8
+			- Lumiere: 8
+			- username: 8
+			- Yatagan: 8
+			- Captain Gh: 8
+			- Tytalus: 8
+			- All or Nothing: 8
+			- ryanf: 8
+			- Aquiles_Baesta_Parada: 8
+			- game_ethic: 8
+			- babelfish669: 8
+			- Gorgiass: 8
+			- spalex: 8
+			- Wadsworth: 8
+			- Orion: 8
+			- Mujeriego: 8
+			- UnW: 8
+			- painter: 8
+			- Wayout: 8
+			- Sumanguru: 8
+			- Renzy: 8
+			- muc: 8
+			- Rang off the Pipe: 8
+			- The Man w/ the Golden Gun: 8
+			- Flavius Aetius: 8
+			- Iceinthewater: 8
+			- zoom: 8
+			- trian1: 8
+			- Steve9: 8
+			- UlteriorMotive: 8
+			- topdog: 8
+			- dontuan: 8
+			- LaPastillaRoja: 8
+			- Baldrich: 8
+			- Sardino: 8
+			- KeepMovingForward: 8
+			- alb3: 8
+			- Gpx90210: 8
+			- Jevioso: 8
+			- leanmeansexmachine: 8
+			- MOVSM: 8
+			- Ambicatus: 8
+			- BodiPUA: 8
+			- wolfpack10: 8
+			- HenryM: 8
+			- NapoleonDynamighty: 8
+			- T-Mac: 8
+			- frankiecred: 8
+			- Burn: 8
+			- Demandred: 8
+			- OneEyedMonk: 8
+			- Turysta: 8
+			- TheStraightWhiteMale: 8
+			- Habit: 8
+			- Sithdixon: 8
+			- The_CEO: 7
+			- Brian Shima: 7
+			- assman: 7
+			- Rutting Elephant: 7
+			- Last Parade: 7
+			- polymath: 7
+			- RougeNoir: 7
+			- JacksonRev: 7
+			- Jaylow: 7
+			- Faust: 7
+			- KC4: 7
+			- Dulceácido: 7
+			- memcpy: 7
+			- Grit: 7
+			- Maciano: 7
+			- tarquin: 7
+			- eljeffster: 7
+			- Emmanuel Goldstein: 7
+			- PolymathGuru: 7
+			- sylo: 7
+			- placer: 7
+			- Genghis Khan: 7
+			- bigbait: 7
+			- Haig: 7
+			- quino_16: 7
+			- BLarsen: 7
+			- Delta: 7
+			- Mr Finish: 7
+			- RXB: 7
+			- YoungDominican: 7
+			- Moto: 7
+			- 46.: 7
+			- EasyMoney: 7
+			- Ajiaco: 7
+			- DonovanVC: 7
+			- Stimulus: 7
+			- Vronsky: 7
+			- King Solomon: 7
+			- Santoro: 7
+			- Fury: 7
+			- ChickenLover9T9: 7
+			- GyopoPlayboy: 7
+			- thirty-six: 7
+			- Sgt: 7
+			- alchemist: 7
+			- Chemistry: 7
+			- simonafc: 7
+			- enfuego: 7
+			- testos111: 7
+			- WannaBang: 7
+			- the6ix: 7
+			- Setzer: 7
+			- StarcraftGG: 7
+			- Nick: 7
+			- Octavian: 7
+			- Buddydowrongright: 7
+			- AngloHispanic: 7
+			- god: 7
+			- Mr. Sunshine: 7
+			- CalmoApparente: 7
+			- Telos: 7
+			- traveling_matt: 7
+			- el_cunado: 7
+			- Barbar: 7
+			- LeeEnfield303: 6
+			- Eskhander: 6
+			- DarkTriad: 6
+			- Alpha Hunter Zero: 6
+			- Sherman: 6
+			- _GQ_: 6
+			- BoiBoi: 6
+			- RoastBeefCurtains4Me: 6
+			- Praetor Lupus: 6
+			- Black Knight: 6
+			- Kid Twist: 6
+			- captain_shane: 6
+			- C-Note: 6
+			- SHANbangs: 6
+			- Sonoma: 6
+			- Player_1337: 6
+			- Frontenac: 6
+			- Katatonic: 6
+			- beta_plus: 6
+			- Eastside: 6
+			- RBerkley: 6
+			- Baldwin81: 6
+			- Captain Ahab: 6
+			- cubanlinx: 6
+			- MMM: 6
+			- rastignac: 6
+			- Khan: 6
+			- CaP7: 6
+			- SunW: 6
+			- Adrenaline: 6
+			- Mister X: 6
+			- Quasi: 6
+			- worldtraveler3: 6
+			- Bear Hands: 6
+			- Zep: 6
+			- ddjembe mutombo: 6
+			- Space Cowboy: 6
+			- txbeachbum: 6
+			- blairnaso: 6
+			- Putin Closes: 6
+			- se7en: 6
+			- fucksong: 6
+			- AlphaQup2nite: 6
+			- christpuncher: 6
+			- JofSuperman: 6
+			- Alfonzo: 6
+			- anamericaninbangkok: 6
+			- johnfortunebg: 6
+			- Germanicus: 6
+			- Sly: 6
+			- Balkan: 6
+			- Icepasian: 6
+			- Shimmy: 6
+			- Mojorisin808: 6
+			- micha: 6
+			- Johnny Football: 6
+			- Apollo: 6
+			- brob: 6
+			- zuma: 6
+			- Nightwing: 6
+			- JohnQPublic: 6
+			- Kaebs: 6
+			- peterfoo22: 6
+			- TrifeLife: 6
+			- Thaitanium: 6
+			- viajero: 6
+			- Bronan the Barbarian!: 6
+			- Intl_Rasta: 6
+			- Zeus: 6
+			- Skip's Steps: 6
+			- Gimlet: 6
+			- SimonRierdon: 6
+			- KsockZ: 6
+			- sammybiker: 6
+			- DanDeLaCruz: 6
+			- Ferro: 6
+			- silviophonic: 6
+			- TheDealCloser: 6
+			- brownman: 6
+			- theArbiter: 6
+			- diego69: 6
+			- skulled: 6
+			- Doc_J: 6
+			- Suave: 6
+			- dies irae: 6
+			- RustyShackleford: 6
+			- Eddie Morra: 6
+			- Cronus: 6
+			- natas305: 6
+			- elhúngaro: 6
+			- jdevoy: 6
+			- saeta119: 6
+			- SuS: 6
+			- Mjölnir: 6
+			- fenetre: 6
+			- S_tourist: 6
+			- KYT88: 6
+			- floridamedellin: 6
+			- arafat scarf: 6
+			- jake999: 6
+			- Elim: 6
+			- Dr.Benway: 6
+			- reverze41: 6
+			- PimpishMentality: 6
+			- Diop: 6
+			- Mango444: 6
+			- PakiRambo: 6
+			- Shikulu: 6
+			- sp180: 6
+			- kimbo: 6
+			- starchild5: 6
+			- Dirkus: 6
+			- UkraineHunter: 6
+			- Cumulonimbus: 6
+			- Don Cojones: 6
+			- Marco 93: 6
+			- ADarkerNight: 6
+			- AlexDiesel: 6
+			- bourne: 6
+			- ratoj9: 6
+			- TheAirUpThere: 6
+			- Safadinho: 6
+			- jackdonovan: 6
+			- kes: 6
+			- CynicalContrarian: 5
+			- chyamor: 5
+			- ColSpanker: 5
+			- TheMan: 5
+			- michelin: 5
+			- britchard: 5
+			- pheonix500000: 5
+			- Nineteen84: 5
+			- Cheetah: 5
+			- Old Fritz: 5
+			- iamdegaussed: 5
+			- budoslavic: 5
+			- kenny_powers: 5
+			- HonantheBarbarian: 5
+	- Complete list of most Liked RVF thread starts
+		-
+			- ](null)[Roosh Freestyle posting contest (raps)37
+			- Raw dogging awareness post37
+			- Parody of JustGurlyThings37
+			- Mentally-ill Manster Spins Freak-Sex Hamster37
+			- McQueen's Las Vegas Data Sheet37
+			- El Mechanico: welcome to the 5 century club37
+			- drinking, depression and rapid aging37
+			- Don't be a hero37
+			- 44 year old married hamster fucks 12 other people to try and feel like a woman37
+			- 4 Months 50 Notches SE Asia Tour37
+			- "Nobody marries their best sex ever" - with translation37
+			- Ukrainian talk show with ENGLISH subtitles!37
+			- Rule clarification on race discussions on RVF37
+			- My 10 night stint in NYC36
+			- Minsk, Belarus Data Sheet:36
+			- Menopausal Land-Cow Milked By Young Cad36
+			- Meeting Krauser36
+			- Insanity: "I don't care if you landed a spacecraft on a comet, your shirt is sexist"36
+			- I found this picture from 7 years ago36
+			- How to spot a girl who is a Giver and not just a Taker36
+			- Getting laid through photography36
+			- Bangkok Vs Manila & game in SE Asia36
+			- 100 Approach Study Japan36
+			- Why Younger Guys Have it Better Than They Think35
+			- Trip Report: 3 Weeks in the Dominican Republic35
+			- The hashtag #BackToTheKitchen is going viral35
+			- The False Premise of 'Good Girls'35
+			- The 10 Invisible Barriers to Daygame35
+			- St. Petersburg Data Sheet35
+			- Real Talk Sessions: Real Post-Mothers Day Spittin'35
+			- Man Buys All The Pies In Burger King To Spite A Punk And His Obnoxious Mother35
+			- I'm Leaving the U.S. Mosh Kosh (And Fuck You)35
+			- humansofstraya.com35
+			- How To Handle a Feminist35
+			- Fatso: The Damning Narcissim, Codependency & A Lament Of The "Nice Guy"35
+			- El Nido, Palawan, Philippines35
+			- Dubai - Destroying the Myths35
+			- Cameron Diaz (42) finally married and media disappointed with quality of husband35
+			- BB's Video Data Sheets on Life in Cambodia and Southeast Asia35
+			- Another one of my best friends was left by his wife.35
+			- Divestment35
+			- The Fisto Appreciation Thread34
+			- The Failed Kibbutz Gender Experiment or Why I Am Not Too Afraid of Feminism34
+			- The dangers of the red pill34
+			- So, I saved this guy's life last night in Bangkok . .34
+			- Santa Monica CA - Datasheet34
+			- Marriage Continues To Die: Marriage rates hit new, all-time low34
+			- Man Tells Cop To Fuck Off34
+			- Loud bitch gets hell of an uppercut34
+			- Las Vegas, Summer 2014, Macking On A Moderate Budget Data Sheet34
+			- Insane John McAfee Does Blow and UnInstalls his own Software34
+			- I started a website: Feminism or Sharia34
+			- How to Instantly Get a Deeper Voice34
+			- Datasheet: Social Circle Game A How To34
+			- Datasheet - Wine: Crash Course34
+			- Comedian Bill Burr: Lizards want to ruin the NFL34
+			- Bieber's New Girlfriend: 18yo High Schooler Smokeshow34
+			- Better College Girl Game: No living on campus, joining frats, or even being a student34
+			- Belle Knox documentary shows full extent of porn-feminist-hamster34
+			- A cool thing to order in a bar34
+			- The new video game site I launched (Reaxxion) is officially open34
+			- Roosh new Youtube videos thread34
+			- Bitter Bushpig Bellows about Bar Brush-off34
+			- Why I rarely call out women33
+			- Well Proportioned Hamster Gets Arrested For Masturbating Instead Of Reading33
+			- Tokyo Datasheet and a Basic Guide to Japanese Girls33
+			- The MikeCF appreciation thread33
+			- Reflections On Delivering Pizzas Through College33
+			- Real Talk Sessions: The One Thing To Remember When You Leave Her33
+			- NASA Releases 1.5 Billion Pixel Panoramic Picture Of The Andromeda Galaxy33
+			- Men Are Fighting Back (UChicago Electronic Army)33
+			- Leo Back at It Again—This Time, However, He Leaves with 20 Bitches33
+			- How to Make it in America33
+			- Henry Rollins on fat girls33
+			- Eight reasons why NY women can't get a husband33
+			- DC Meetup Recap33
+			- Data Sheet: Cali, Colombia33
+			- Continued Lay report33
+			- Busting RVF travel hype and misinformation33
+			- Black men rejecting black women33
+			- Big Brandon Carter & RooshV On Gym Pickups33
+			- Barcelona: Data Sheet33
+			- 4chan Trolls Women With The Concept Of A "Bikini Bridge"33
+			- 21 Ways Rich People Think Differently Than Average People33
+			- "Would you bang?" is now considered a rape threat33
+			- Is the 1-to-10 Scale Pointless?33
+			- How I got over my fear of going out solo33
+			- Yoga Poses and Headstands: the New Duckface32
+			- What working in a butcher shop has taught me...32
+			- Westbound Moma32
+			- Untapped Market of Poon: Small Music Venues and “Indie” Shows32
+			- Tweets from Joe Rogan32
+			- Retail opener. Funny but sexual32
+			- Real Talk Sessions: One Man's Thoughts On "Monk Mode"32
+			- One Year Rolling Solo/'In The Game' - A Reflection32
+			- New Study: Porn Causing Marriage Rate Decline; Threatens Economy32
+			- How Original Another Medellin Datasheet32
+			- Harry is done32
+			- Goodbye32
+		- dPost:
+		- Likes:
+			- RE: Secret RVF members113
+			- RE: Wilkes McDermid, food blogger suicide106
+			- RE: Mila Kunis Wants You To Stop Saying 'We're Pregnant'105
+			- RE: Understanding attraction from a womans perepective102
+			- RE: Eating booty: a primer (NSFW)102
+			- RE: I'm about to appear on a large American TV show92
+			- RE: Feminist story proves major Game concepts to be nothing but the full truth90
+			- RE: You know When You've Become a True RVFer when..88
+			- RE: Requested perm ban (would like to thank a couple members)87
+			- RE: Male student shoots up California campus because he can't get laid87
+			- RE: Back to the USA for one month87
+			- RE: Millionaire Matchmaker85
+			- RE: Guy has famous actress come to his apartment, has no clue what to do.83
+			- RE: Taylor Swift says that 'Misogyny is ingrained in people from the time they are born'81
+			- RE: You know When You've Become a True RVFer when..78
+			- RE: Wilkes McDermid, food blogger suicide75
+			- RE: Tucker Max talking shit about Roosh75
+			- RE: Tag the Sponsor Exposes Instagram Hoes75
+			- RE: Tag the Sponsor Exposes Instagram Hoes75
+			- RE: Tag the Sponsor Exposes Instagram Hoes74
+			- RE: Requested perm ban (would like to thank a couple members)74
+			- RE: I'm appearing on the Dr. Oz show74
+			- RE: "Would you bang?" is now considered a rape threat74
+			- RE: Feminist story proves major Game concepts to be nothing but the full truth73
+			- RE: Truth in Advertising: This Is My Baby Right Now72
+			- RE: Man leaves overweight bride-to-be at the altar72
+			- RE: Male Shaming: Man Caves72
+			- RE: Actress Rants About Guys With Yellow Fever71
+			- RE: 19year old is so haaaaappy in her mugshot71
+			- RE: Depressing having dinner at married friends home...70
+			- RE: Tucker Max talking shit about Roosh (again)69
+			- RE: Outrage over ROK article criticizing girls with tattoos and piercings69
+			- RE: Another student cries rape69
+			- RE: Older Woman (50+) Angry That She's Invisible To Men68
+			- RE: I'm about to appear on the Dr. Oz show68
+			- RE: Herb starts internet campaign to find DC 6.68
+			- RE: Chick Tweets selfie taken at Auschwitz68
+			- RE: Beta orbiter gets put into friend zone after saving girl's life68
+			- RE: An American girl walks into a Kiev cafe.........68
+			- RE: Requested perm ban (would like to thank a couple members)67
+			- RE: Girl talks shit on an NYC subway. Gets slapped back to the future66
+			- RE: Avoiding False Rape Accusations66
+			- RE: Hot russian microbiologist says that aging can be cured. Would You Bang?65
+			- RE: My "How To Stop Rape" post has awoken the neon haired freaks64
+			- RE: College girl carries mattress she was "raped" on throughout campus64
+			- RE: "10 Hours of Walking in NYC as a Woman" video supposedly exposes "s...64
+			- RE: Woman complains about older men seeking younger women63
+			- RE: Why 'female friendly' restaurants are making women unhappy63
+			- RE: My response to Krauser's forum meltdown63
+			- RE: Is Judd Apatow Trolling the Manosphere? New movie: Trainwreck63
+			- RE: Wall Victim: Tara Reid62
+			- RE: 11 year old boy undergoes sexual reassignment62
+			- RE: You know When You've Become a True RVFer when..61
+			- RE: Walked in on girlfriend having sex with another dude. How I reacted.61
+			- RE: RVF is being blamed for Gawker losing advertisers61
+			- RE: Keira Knightly Poses Nude To "Prove" Women Don't Need Photoshop NSFW61
+			- RE: I'm about to appear on a large American TV show61
+			- RE: American Girls Be Like61
+			- RE: 30 is the new 50. Woman complains men have it better aging61
+			- RE: Things to achieve before 3060
+			- RE: Tag the Sponsor Exposes Instagram Hoes60
+			- RE: Is the Minimum Looks Threshold Higher than Ever Before?60
+			- RE: Calling a girl ugly is inciting rage across the internet60
+			- RE: Woman complains about older men seeking younger women59
+			- RE: Woman charged with having sex with a dog59
+			- RE: What a bitchy thing to do59
+			- RE: UC Irvine student govt votes to ban American flags59
+			- RE: The RVF ten commandments59
+			- RE: The Red Pill subreddit attacks me and neomasculinity59
+			- RE: Rags to Riches?59
+			- RE: Older Woman (50+) Angry That She's Invisible To Men59
+			- RE: My "How To Stop Rape" post has awoken the neon haired freaks59
+			- RE: Men's Health Denounces PUAs: "Dating Advice Is Fine, Manipulation Is Not"59
+			- RE: Maggie Gyllenhaal hits a wall, enters denial, deemed too old59
+			- RE: Is VK going soft?59
+			- RE: Is that so bad to get 30's ?59
+			- RE: Girl Realizes She's as Useless as a Wet Towel, Still Hamsters59
+			- RE: don't waste your life: a cautionary tale59
+			- RE: College Students Outline Why They Don't Date Black American Women59
+			- RE: American Girls Be Like59
+			- RE: A Plus Size Model in the Swimsuit Edition of Sports Illustrated59
+			- RE: What's the most busted lizard you ever poked?58
+			- RE: The brothel buster: Meet the man who gets paid to have sex with prostitutes58
+			- RE: Mainstream media anger against ROK's Mad Max article58
+			- RE: I-Just-Had-A-Threesome Thread58
+			- RE: Gun attack on French magazine Charlie Hebdo kills 1158
+			- RE: American Girls Be Like58
+			- RE: Almost All Men Should Eventually Marry And Have Kids58
+			- RE: Walked in on girlfriend having sex with another dude. How I reacted.57
+			- RE: The desire to want a family57
+			- RE: Male student shoots up California campus because he can't get laid57
+			- RE: Homeless guy fucks 150+ girls a year57
+			- RE: American Obesity Explodes To Fresh All-Time Highs57
+			- RE: American Girls Be Like57
+			- RE: Well Proportioned Hamster Gets Arrested For Masturbating Instead Of Reading56
+			- RE: Uncle Roosh t-shirts (new)56
+			- RE: Tag the Sponsor Exposes Instagram Hoes56
+			- RE: Requested perm ban (would like to thank a couple members)56
+		- RE: One man taking a stand against prison rape
+			- Another way to find great posts are through the rep-system. Here are all posts that have been mentioned in rep comments by at least 3 users (in no particular order):
+			- LINUX Bangs Colombia -- A 90 Day Journey (NSFW)
+			- Starting and Growing a Successful Business
+			- Dating Guide for Mainland China
+			- My response to Krauser's forum meltdown
+			- Mining the RVF: A compilation of repped posts
+			- Business How to get a job as a python (or any other language) developer
+			- Reflections from a high point in my game
+			- Attracting Girls Online: A Guide to Good Photos, Why They Matter, and How To Get Them
+			- The Cougar/MILF Datasheet!
+			- The Story Of Vinman
+			- Making Money Digital Project Management: Programming for hustlers
+			- Requested perm ban (would like to thank a couple members)
+			- Americans have gloomy outlook for life in 2050
+			- Conluding a year of gaming: thoughts, lessons learned and planning the future
+			- My "How To Stop Rape" post has awoken the neon haired freaks
+			- Weaponized: Add Kenton Kneppers “Cold Reading” to your arsenal.
+			- Friendly PSA: Never consent to a search!
+			- Eating booty: how to make a girl fall in love (NSFW)
+			- Older Woman (50+) Angry That She's Invisible To Men
+			- Huge Beginners Guide to Men's Style
+			- The (new) travel data sheet map
+			- Sourcecode's Cluj Report and datasheet
+			- [Data Sheet] Chengdu, Sichuan Province, China
+			- Data Sheet on US Air Force Lifestyle
+			- Zero Date Bangs: Reduce Your Variables, Bang More Girls
+			- The Butthurt Chronicles: Millenial edition
+			- Walked in on girlfriend having sex with another dude. How I reacted.
+			- Sinaloa, Mexico Data Sheet
+			- Book Study: A Guide to Rational Living
+			- Gawker writer is trying to get a guy fired for his tweets
+			- Supplementing Your Income with Side Hustles - $15,000 US a year
+			- Advice I will tell myself after 6 years of selling products online.
+			- All Montreal Everything
+			- Deaf Game Datasheet
+			- New Recipe for Securing First-Date Bangs
+			- Datasheet: Accra, Ghana
+			- 2014-2015 - Kaotic's self analysis review & guide on RVF
+			- The dangers of the red pill
+			- Tag the Sponsor Exposes Instagram Hoes
+			- New dating guide written by men offers women brutally honest advice
+			- Video of Me Doing Day Game in Budapest, Hungary
+			- Gun attack on French magazine Charlie Hebdo kills 11
+			- My meeting with Greek Kamaki did not go well
+			- College girl carries mattress she was "raped" on throughout campus
+			- Massive Celeb nude leak (mostly Jennifer Lawrence) [NSFW Content]
+			- Elliot Rodger shoots up California campus because he can't get laid
+			- Criminal punches female store clerk in the face - VIDEO
+			- Why does modern classical music suck?
+			- All Hell's Broken Loose on Return of Kings
+			- The Make $ Copywriting Datasheet
+			- Dystopian Manospheric Visions & Science
+			- Having standards as a man? How dare you!
+			- Almost All Men Should Eventually Marry And Have Kids
+			- How to increase the value of RVF
+			- Gaming High End Girls in Manila
+			- Antarctica
+			- Making Money Mining Them There Cryptocurrencies
+			- Walked in on girlfriend having sex with another dude. How I reacted.
+			- How to hide your high IQ death sentence?
+			- Atlantics Shoestring Game Thread
+			- How to prevent and defend against false rape and domestic violence charges
+			- The Roosh V PT/Physiotherapy Thread
+			- Craigslist Model Call + Club = New Pussy Recipe
+			- Controversial Comparisons to the Fall of Rome
+			- Shit test I can't pass "Why don't you have a gf?"
+			- Thanks for the feedback, here's an updated list with username and by subforum.
+		- Forum: Everything Else
+		- Post:Likes:
+			- 5 Year Anniversary of RVF User: Roosh150
+			- Tuthmosis has done it yet again User: Roosh123
+			- Don't Let Frustration With Women Make You Feel Bad About Life In General User: The Lizard of Oz117
+			- Who Is Christian McQueen? I reveal myself User: Christian McQueen117
+			- I'm appearing on the Dr. Oz show User: Roosh114
+			- My company thinks I'm "Slimy" User: AntiTrace110
+			- Congratulations Neil! User: MikeCF109
+			- All Hell's Broken Loose on Return of Kings User: Tuthmosis104
+			- Mining the RVF: A compilation of repped posts User: Kamikaze100
+			- #NoHymenNoDiamond User: bachelor tax99
+			- Drunk historian rant: "Women always better off than men, every society, every era" User: MrLemon93
+			- The Ultimate Truth Of Our Age: There Are No Consequences For Women User: Samseau91
+			- American Girls Be Like User: Tuthmosis89
+			- Feminist story proves major Game concepts to be nothing but the full truth User: Zelcorpion89
+			- Outrage over ROK article criticizing girls with tattoos and piercings User: Roosh89
+			- Idiot students pointlessly protest kitchen advertisement, get perfect response User: Kristoph86
+			- I'm starting a video game site User: Roosh85
+			- NYC Pastor Goes Red Pill: 10 Women Christian Men Shouldn't Marry User: Days of Broken Arrows85
+			- 21 Basic NYC Bitches Confess the Dumbest Thing They Spend Their Money On User: Kabal82
+			- Tag the Sponsor Exposes Instagram Hoes User: Bacchus81
+			- RVF is being blamed for Gawker losing advertisers User: Roosh78
+			- Best of RvF: Posts with 50+ 'Likes' User: LouieG78
+			- I am proud of this man. User: Excelsior78
+			- Roosh Appreciation Thread User: MikeCF78
+			- Dilbert on American Women... User: buja76
+			- Funny comments by women about Leo's lifestyle User: Vamonos Pest76
+			- The Story Of Vinman User: vinman75
+			- Filed for divorce, starting over at age 35 User: CleanSlate74
+			- Mexican mayor slammed for lifting woman's skirt, apologizes by sending women irons User: MidWest74
+			- Girl talks shit on an NYC subway. Gets slapped back to the future User: Seth_Rose72
+			- Almost All Men Should Eventually Marry And Have Kids User: The Lizard of Oz70
+			- Lindy West has become too fat to fly User: Roosh69
+			- The Sexodus, Part 1: The Men Giving Up On Women And Checking Out Of Society User: Helmutnl69
+			- Forum Moderation in the Wake of the PUAHate Killings by Elliot Rodger User: Tuthmosis68
+			- Gavin McInnes to Women 'You'd Be Much Happier At Home' User: Laurifer67
+			- Man spends £200k to prosecute a false rape accuser who kills herself out of stress User: Vamonos Pest67
+			- Thanks To The Forum User: ryanf67
+			- The SPLC has been dumped by the FBI User: Roosh67
+			- I call out feminist Laci Green (she wants to censor Youtube) User: Roosh66
+			- Dried-up Hag Regrets Extramarital Shag User: SteveMcMahon66
+			- Protein World to feminists: Grow up User: CH-Toronto64
+			- Wall-damaged Blimp Devours Tinder Simps User: SteveMcMahon64
+			- Fat Blob Tries to Shut up Man Talking about Obesity on Train, Fails User: Bacchus63
+			- My "How To Stop Rape" post has awoken the neon haired freaks User: Roosh62
+			- Tuthmosis's 5,000th Post! User: Tuthmosis61
+			- How Lindy West became a fat feminist User: Roosh60
+			- My response to Krauser's forum meltdown User: Roosh60
+			- ROK contributor was attacked by the feminist lynch mob User: Roosh60
+			- Epicness posted on facebook by Serbian girl User: lowside60
+			- Putin Trolls Hillary: "It's better not to argue with women" User: Dusty60
+			- Trolled My College Class User: MHaes60
+			- Creation of 5-man fireteam to deal with SJW's User: Roosh59
+			- The G Manifesto Responds User: thegmanifesto59
+			- The Lizard of Oz Appreciation Thread User: Tokyo Joe59
+			- Tuthmosis Interviewed on Buzzfeed User: Tuthmosis58
+			- "Disturbing" news: men are attracted to women in their prime User: Roosh58
+			- 30 is the new 50. Woman complains men have it better aging User: Dusty58
+			- Robin Thicke Banging 19-Year-Old Smoke Show User: Tuthmosis57
+			- Forum Memes and Glossary User: Tuthmosis56
+			- The Red Pill subreddit attacks me and neomasculinity User: Roosh56
+			- Cardguy Appreciation Thread User: Quintus Curtius55
+			- One of my more "interactive" troll jobs User: Roosh55
+			- Tinder slut undergoing emotional pain from community critiques User: Roosh55
+			- Feminists Furious at Facebook Fat Feels User: SteveMcMahon54
+			- Older Woman (50+) Angry That She's Invisible To Men User: Quintus Curtius54
+			- Short film on future where SJWs runs the world User: Wutang53
+			- The best video I've seen destroying fat acceptance and modern feminism User: Teedub53
+			- Year Zero User: The Lizard of Oz53
+			- Cold Climate Privilege at Sochi Olympics User: Roosh52
+			- Dwayne Wade, P. Diddy, and the Rich Black SIMPS. User: PhilE52
+			- Let's Give It Up To Giovonny User: thegmanifesto52
+			- #IfWomenRuledTheWorld - new feminist campaign makes trolling easy for us User: Zelcorpion51
+			- Athlone McGinnis Appreciation Thread User: Tuthmosis51
+			- Roosh Interviewed By A Feminist User: Quintus Curtius51
+			- The Lost Art of Archery - Danish Bowman with Mindblowing Skills User: Flint51
+			- The Ukrainian talk show was wild User: Roosh51
+			- Foreign Brides and Divorce User: Hooligan Harry50
+			- My Girlfriends Feminist Sister Leaves Me Angry Voicemail (Video) User: nigerian50
+			- This Meme Sums It All Up User: Aliblahba50
+			- Date Lab: Wedding planner disappointed that man wasn't "overwhelmingly" her type User: Roosh49
+			- Did Anita Sarkeesian fabricate her story about contacting the authorities? User: Aurini49
+			- Simp of the Day: The Juelz Santana Story User: Excelsior49
+			- The relationship between unprotected sex, brain damage, and the thousand cock stare User: Thomas the Rhymer49
+			- Parks and Recreation and MTV Overplay Their Hand On "MRA"-Based Jokes User: Tuthmosis48
+			- "Men Grow Up, Women Grow Old" User: Days of Broken Arrows48
+			- . User: scorpion48
+			- Hot porn star screams about horrible date with beta male User: Dalaran199148
+			- Paternity can now be verified by a simple test – but that doesn’t mean it should be User: scorpion48
+			- RE: All Hell's Broken Loose on Return of Kings User: LouieG47
+			- The Post-Wedding Hair Chop User: Tuthmosis47
+			- A Ukrainian girl visits the new world User: rastignac47
+			- Depressing having dinner at married friends home... User: The Wire47
+			- First time home in 6 years - my analysis.. User: Blick Mang47
+			- Katie Hopkins - Masterful Trolling Recognized User: Teedub47
+			- Man leaves overweight bride-to-be at the altar User: Roosh47
+			- The Psychology Of Trolling: RVF Banned Members Edition User: 2Wycked47
+			- Happy New Year's letter to you all User: Roosh46
+			- James Webb for President 2016 User: Sp546
+			- Russell Crowe gets hamsters spinning on age-appropriate roles for actresses User: Paracelsus46
+			- Must see documentary: National Geographic on alpha males User: Every10GivesMeA1045
+			- Ayaan Hirsi Ali slams American feminism as "trivial bullshit" User: runsonmagic45
+			- Communist Cuntzilla Rips Redpill Russians User: SteveMcMahon45
+			- Huffington Post feminist tries to scare me with threat of state violence User: Roosh45
+			- If she's not a submissive wife, she's not really a wife at all User: MrLemon45
+			- Student kicked out of class for 'controversial' opinions on rape. User: iamdegaussed45
+			- Another ROK article going super viral User: Roosh44
+			- Elon Musk is the Man User: Kabal44
+			- How to prevent and defend against false rape and domestic violence charges User: Sp543
+			- A Monk Endorses Return Of Kings User: Quintus Curtius42
+			- Amy Schumer Feminist Gang Bang User: Checkmat42
+			- Feminists are going apeshit right now User: Roosh42
+			- Host of "Man Vs. Food" Vs. Fatty in Comment War User: Bacchus42
+			- How not to ask me to take a photo down User: Roosh42
+			- Internet Feminist's Guide to Arguing Online User: Tuthmosis41
+			- PSA: stop objectifying boner-killing she-beasts User: SteveMcMahon41
+			- Barren ghoul decries lack of eligible men User: draguer41
+			- El Mechanico is at 9,999 posts User: Roosh41
+			- Feminist asks Reddit to rate her appearance... "it went terribly" User: Roosh41
+			- Laurie Penny getting destroyed for defending vandalism against women's statue User: Roosh41
+			- Young guy lives alone in the woods for two years User: Roosh41
+			- Amazing Dailymail article on marriage could have been published on Return of Kings User: Zelcorpion40
+			- I get a fair shake for once User: Roosh40
+			- Man Creates Effective Tinder Bot User: Bacchus40
+			- Mincing Manginas Mull Masculinity User: SteveMcMahon40
+			- The Launch of a New Dating Site User: Hotwheels40
+			- White american woman complains about dating in HK User: Go-getter40
+			- Young Women Have Made a Huge Mistake User: KorbenDallas40
+			- Bluepill Bloke Begs Basic Bitch to be his Bride User: SteveMcMahon39
+			- Cockmagnet Calls Cops On Cat-Callers User: SteveMcMahon39
+			- Another public rape accusation (by Indian woman) User: Roosh39
+			- Forum Thread Titles in the Year 2114 User: POASTER39
+			- Girlfriend cheats on him and he responds with memes User: vinman39
+			- NBA Legend Kareem Abdul-Jabbar Rips BOTH SIDES in Donald Sterling ‘Scandal’ User: vinman39
+			- Old Woman Rode Carousel, Got Married, Ruined Her Marriage By Fantasizing About Ex's User: Sp539
+			- Two of my friends found my okc profile and told me I come across as a misogynistic... User: Ocelot39
+			- Danger & Play is currently being targeted by SJW's User: Roosh38
+			- Now hiring: video guy that can help make me a Youtube sensation User: Roosh38
+			- PepsiCo CEO: "Women can't have it all" User: player38
+			- Forbes article: Drunk Female Guests Are The Gravest Threat To Fraternities User: alexdagr8138
+			- I intentionally keep my wife poor -- to preserve our marriage User: MrLemon38
+			- Meme: Neil DeGrasse Tyson on Love User: runsonmagic38
+			- My "media handler" shot this User: Roosh38
+			- Sensible Things You Can’t Say In Public Anymore User: WalterBlack38
+			- The Christian McQueen Show Suggestions/Comments User: Christian McQueen38
+			- When beta orbiters attack User: Roosh38
+			- Why"Strong" Women Stay Single User: vinman38
+			- Woman jailed for 2.5 years over false rape claim User: Sonsowey38
+			- Rule clarification on race discussions on RVF User: Roosh37
+			- Ukrainian talk show with ENGLISH subtitles! User: Roosh37
+			- "Nobody marries their best sex ever" - with translation User: Gaston37
+			- 44 year old married hamster fucks 12 other people to try and feel like a woman User: Paracelsus37
+			- El Mechanico: welcome to the 5 century club User: Roosh37
+			- Mentally-ill Manster Spins Freak-Sex Hamster User: SteveMcMahon37
+			- Parody of JustGurlyThings User: duedue37
+			- Roosh Freestyle posting contest (raps) User: Moma37
+			- The Silicon Valley Diversity Shakedown User: scorpion37
+			- I found this picture from 7 years ago User: Roosh36
+			- Insanity: "I don't care if you landed a spacecraft on a comet, your shirt is sexist" User: Mr West36
+			- Menopausal Land-Cow Milked By Young Cad User: SteveMcMahon36
+			- Another one of my best friends was left by his wife. User: Veloce35
+			- Cameron Diaz (42) finally married and media disappointed with quality of husband User: Zelcorpion35
+			- Fatso: The Damning Narcissim, Codependency & A Lament Of The "Nice Guy" User: 2Wycked35
+			- How To Handle a Feminist User: Seth_Rose35
+			- humansofstraya.com User: Conscious Pirate35
+			- I'm Leaving the U.S. Mosh Kosh (And Fuck You) User: Aliblahba35
+			- Man Buys All The Pies In Burger King To Spite A Punk And His Obnoxious Mother User: Quintus Curtius35
+			- The hashtag #BackToTheKitchen is going viral User: Roosh35
+			- Bitter Bushpig Bellows about Bar Brush-off User: SteveMcMahon34
+			- Roosh new Youtube videos thread User: Roosh34
+			- The new video game site I launched (Reaxxion) is officially open User: Roosh34
+			- Belle Knox documentary shows full extent of porn-feminist-hamster User: Zelcorpion34
+			- Bieber's New Girlfriend: 18yo High Schooler Smokeshow User: Christian McQueen34
+			- Comedian Bill Burr: Lizards want to ruin the NFL User: kaotic34
+			- I started a website: Feminism or Sharia User: Sonsowey34
+			- Insane John McAfee Does Blow and UnInstalls his own Software User: YMG34
+			- Loud bitch gets hell of an uppercut User: Roosh34
+			- Man Tells Cop To Fuck Off User: Samseau34
+			- Marriage Continues To Die: Marriage rates hit new, all-time low User: Samseau34
+			- The dangers of the red pill User: Edelweiss34
+			- The Failed Kibbutz Gender Experiment or Why I Am Not Too Afraid of Feminism User: Flint34
+			- The Fisto Appreciation Thread User: 2Wycked34
+			- "Would you bang?" is now considered a rape threat User: Roosh33
+			- 4chan Trolls Women With The Concept Of A "Bikini Bridge" User: 2Wycked33
+			- Black men rejecting black women User: Roosh33
+			- DC Meetup Recap User: Roosh33
+			- Eight reasons why NY women can't get a husband User: Vitriol33
+			- Henry Rollins on fat girls User: renotime33
+			- Leo Back at It Again—This Time, However, He Leaves with 20 Bitches User: game_ethic33
+			- Men Are Fighting Back (UChicago Electronic Army) User: Sombro33
+			- NASA Releases 1.5 Billion Pixel Panoramic Picture Of The Andromeda Galaxy User: 2Wycked33
+			- Reflections On Delivering Pizzas Through College User: 2Wycked33
+			- The MikeCF appreciation thread User: 2Wycked33
+			- Well Proportioned Hamster Gets Arrested For Masturbating Instead Of Reading User: Oz.33
+			- Man Holds Carjacking Suspect at Gunpoint Until Atlanta PD Arrive User: Aliblahba32
+			- New forum: Weightlifting & Fitness User: Roosh32
+			- One Direction Reject Escalates White-Knighting Arms Race with Tampon Campaign User: Tuthmosis32
+			- Poosy Paradise has been officially released! User: Roosh32
+			- PSA: most women are lazy, stinky bitches User: SteveMcMahon32
+			- 24 things you didn't know about Britain User: cardguy32
+		- Forum: Game
+		- Post:Likes:
+			- New Recipe for Securing First-Date Bangs User: Tuthmosis178
+			- Zero Date Bangs: Reduce Your Variables, Bang More Girls User: BlurredSevens130
+			- Attracting Girls Online: A Guide to Good Photos, Why They Matter, and How To Get Them User: BlurredSevens129
+			- This Shit Bothers Me User: AntiTrace124
+			- The Roissy Reader: Chateau Heartiste on Game User: LouieG113
+			- Life after RVF User: Gas111
+			- Walked in on girlfriend having sex with another dude. How I reacted. User: Remington111
+			- Game Works, Even for the Facially Disfigured User: ru2486109
+			- Girls have the stupidest ideas about meeting people User: Roosh100
+			- My Game Sucks User: Giovonny100
+			- Real Talk Sessions: Stop Looking At Women On Social Media Sites User: jariel96
+			- McQueen's 'Meltdown' Rant On Game vs. Lifestyle User: Christian McQueen79
+			- Game Development Tip: BE THE FIRST TO SPEAK User: Giovonny78
+			- Two Months In The Life Of The G Manifesto: Approach-Number-Conversion Rates User: thegmanifesto73
+			- Eating booty: how to make a girl fall in love (NSFW) User: Kamikaze71
+			- My Encounter with Nick Krauser - Prague, Autumn 2014 User: unbowed69
+			- 2014-2015 - Kaotic's self analysis review & guide on RVF User: kaotic68
+			- The Cougar/MILF Datasheet! User: Cattle Rustler68
+			- Always call her by her name User: pitt67
+			- Craigslist Model Call + Club = New Pussy Recipe User: Christian McQueen66
+			- NEWB FAQ: Comprehensive Guide Answering Common Newbie Questions User: CJ63
+			- Daygame With a Camera: Shootin' Fish in a Barrel User: Goldmund62
+			- My best text-shit-test response as of late User: pointbreak62
+			- NO girls vs Maybe girls: one of the biggest mistakes... User: Nomad7762
+			- McQueen's Forced Into AA by Cali Courts: Game Time! User: Christian McQueen60
+			- Red Pill NASA* Engineer Graphs What Women To Date User: WestIndianArchie60
+			- Craigslist Game (or Developing a Passive Pussy Stream) User: Enigma58
+			- Elmechs daygame hack User: el mechanico57
+			- A great neg to use in every situation User: SharpShooter57
+			- Dance Floor Game – using music to get laid User: Samseau57
+			- Feeling the mortality...make sure very fuck is like your last.. User: tenderman10057
+			- You really ARE the prize (and here's why) User: VincentVinturi57
+			- Crave discomfort User: Veloce56
+			- Marriage is for Pussies User: Samseau56
+			- Primer on Nightclubs for Introverted Newbs User: WestIndianArchie54
+			- The real reason women are flaking on you User: Courage Reborn54
+			- Reflections from a high point in my game User: AntiTrace53
+			- To the Newbs: Treat Her Like a Fattie User: delicioustacos53
+			- Moma and RudeBwoy RoundTable Discussion on Black Man Game Options User: Moma52
+			- My Journey, pre and post Rooshv User: Cobra52
+			- When in doubt, whip it out User: OGNorCal70751
+			- Real Talk Sessions: Fake Dimes, Loser Females, & DOA Relationships User: jariel51
+			- A Note on Sex, Women and Marriage: To My Son on His Twenty-First Birthday User: txbeachbum50
+			- The Only Rule For Ex's User: jariel50
+			- Deaf Game Datasheet User: CleanSlate49
+			- Ended a 3 Week Dry Spell With This [pic] User: space48
+			- Final Exam Week! User: Giovonny48
+			- Never Take an LTR Back Who Broke Up With You User: poledaddy47
+			- Real Talk Sessions: See The Truth User: jariel47
+			- I got played.... User: OGNorCal70746
+			- Real Talk Sessions: On Your Self-Confidence and Confidence Killers (Part 2) User: jariel46
+			- The Positivity Thread: the Law of Attraction & Your Positive Experiences with Girls User: BlurredSevens46
+			- I saved my parents' marriage with game. User: Mr. Calicoat45
+			- I 'Shored' a whore in Moscow User: Vorkuta45
+			- The Bottom Line: Women Are Weak User: Tuthmosis44
+			- RSD Tyler destroys Male Cock Blocker in public User: Zelcorpion44
+			- I acted in an adult film today User: Sonoma43
+			- A Softer Approach User: Giovonny42
+			- Fresh Direct: How to Get Girls Offline, Directly to Your House User: soup42
+			- K.I.S.S. - Or how to suppress your male hamster User: j r42
+			- Mastering Getting Dumped User: Days of Broken Arrows42
+			- The poisons of perfectionism, ego, and the game User: nek42
+			- A woman's greatest weakness: the fantasy of Excalibur User: Nomad7741
+			- The best sex I ever had User: Nomad7741
+			- Real Talk Sessions: The Second Grown Man Hour User: jariel40
+			- Real Talk Sessions: Who's In The Game: Players, Spectators, Opponents, and Teammates User: jariel40
+			- WARNING: scary scam on dating sites! User: Vacancier Permanent40
+			- The game changer that made girls fall in love with me User: VincentVinturi39
+			- 5 Things Men Should Never Look For In Women: Add Yours User: Christian McQueen39
+			- Improve your game by NOT doing these things... User: Feo39
+			- The Bondage/Domination Thread. NSFW images inside User: A War You Cannot Win39
+			- Don't be a hero User: Nomad7738
+			- Gaming Women by Occupation- An Analysis User: MrXY38
+			- How to pickup massage girls User: Nomad7738
+			- Mindfulness: The shortcut to being happy and successful with women User: n000038
+			- Remember, A woman's value to you is her behavior, not looks... User: Shotgun Styles38
+			- The 2 Best Lines To Use When You're Rolling Solo User: Christian McQueen38
+			- Raw dogging awareness post User: Roosh37
+			- 100 Approach Study Japan User: Skotch36
+			- Getting laid through photography User: rivelino36
+			- How to spot a girl who is a Giver and not just a Taker User: Nomad7736
+			- Meeting Krauser User: Roosh36
+			- Divestment User: VincentVinturi35
+			- Real Talk Sessions: Real Post-Mothers Day Spittin' User: jariel35
+			- The 10 Invisible Barriers to Daygame User: Deluge35
+			- The False Premise of 'Good Girls' User: Christian McQueen35
+			- Why Younger Guys Have it Better Than They Think User: Days of Broken Arrows35
+			- Better College Girl Game: No living on campus, joining frats, or even being a student User: LeBeau34
+			- Datasheet: Social Circle Game A How To User: hwuzhere34
+			- How I got over my fear of going out solo User: Screwston33
+			- Is the 1-to-10 Scale Pointless? User: Tuthmosis33
+			- Big Brandon Carter & RooshV On Gym Pickups User: JayMillz33
+			- Real Talk Sessions: The One Thing To Remember When You Leave Her User: jariel33
+			- Why I rarely call out women User: Ardbeg33
+			- Bouncer Q&A about nightlife girls & game User: XXL32
+			- Bait to Lure the Pussy Home User: Goldmund32
+			- One Year Rolling Solo/'In The Game' - A Reflection User: LeightonBlackstock32
+			- Real Talk Sessions: One Man's Thoughts On "Monk Mode" User: jariel32
+			- Retail opener. Funny but sexual User: Manipulator32
+			- Untapped Market of Poon: Small Music Venues and “Indie” Shows User: Goldmund32
+			- A mini data sheet on social media User: Noir31
+			- How to Become More Alpha User: Giovonny31
+			- OKC from a 37-Year-Old Woman's POV User: Days of Broken Arrows31
+			- So Glad I went out.... (New Years Eve) User: OGNorCal70731
+			- The One Way To Improve Your Game With ONS's Immediately User: Christian McQueen31
+			- Tinder Internship. Game over. (or just beginning?) User: swuglyfe31
+			- Why you should ALWAYS approach, even if you feel beatin down. User: RioNomad31
+			- American Men are Stupid- It's a Players Market User: Aliblahba30
+			- Anti picks up a girl on a plane User: AntiTrace30
+			- Principles reinforced from my last two bangs User: SheriffBart30
+			- simonafc and Giovonny daygame 5/27-6/2 User: simonafc30
+			- The Importance of Screening to see if girls are DTF or not User: CJ30
+		- Forum: Knowledge, Arts, and Letters
+		- Post:Likes:
+			- Book Study: A Guide to Rational Living User: Dusty30
+		- Forum: Lifestyle
+		- Post:Likes:
+			- I turned 40 today User: John Galt287
+			- Thedude cooks a steak User: Veloce85
+			- Starting and Growing a Successful Business User: Gringuito84
+			- Supplementing Your Income with Side Hustles - $15,000 US a year User: booshala80
+			- Working in the Canadian oil sands: 6 figures in 6 months! User: scotian71
+			- The Make $ Copywriting Datasheet User: Vigo_the_Carpathian70
+			- Digital Project Management: Programming for hustlers User: LouieG66
+			- A beginner's guide and reading list to jobhunting and networking User: Thomas the Rhymer66
+			- How to look great in pictures (video) User: Every10GivesMeA1063
+			- Anti-Aging -- Extend your Gaming Career User: Giovonny57
+			- How to get a job as a python (or any other language) developer User: frenchcorporation56
+			- The Accounting Career Data Sheet User: Cobra54
+			- The 10 Things That Changed My Life Completely User: testos11150
+			- Living Rent Free + Instant Social Circle + Foreign Poon User: CaptainChardonnay49
+			- Advice I will tell myself after 6 years of selling products online. User: worldwidetraveler48
+			- As I approach 30 things I wish I knew when I was 20 User: babelfish66945
+			- Data Sheet on US Air Force Lifestyle User: Checkmat44
+			- The Unofficial Goldman Sachs Guide To Being A Man User: YMG44
+			- YMG's Guide to Career-Hacking on Linkedin User: YMG43
+			- How you can cash in on the USA oil boom User: scotian41
+			- Huge Beginners Guide to Men's Style User: Deluge41
+			- Summary and Commentary of [[calibre/How to Win Friends and Influence People - Dale Carnegie (2009)]] User: Thomas the Rhymer39
+			- Things You Accomplished in 2014 User: Fisto38
+			- Zinc has made me a better man. User: MidniteSpecial38
+			- drinking, depression and rapid aging User: The Lizard of Oz37
+			- A cool thing to order in a bar User: Veloce34
+			- Datasheet - Wine: Crash Course User: Tengen34
+			- How to Instantly Get a Deeper Voice User: Deluge34
+			- 21 Ways Rich People Think Differently Than Average People User: Prophylaxis33
+			- How to Make it in America User: BostonBMW33
+			- Westbound Moma User: Moma32
+			- What working in a butcher shop has taught me... User: Sleek32
+			- I earn $1,000/month from "How to" videos on YouTube User: Chemistry31
+			- Teach Yourself to be Professional Quality Chef Online for Free User: n000031
+			- You have no Goal without a Date: A Method of Getting Shit Done User: BlurredSevens30
+			- Continued ->
+		- Forum: Travel
+		- Post:Likes:
+			- My Three Month EE Summary/Comparison User: slubu81
+			- CleanSlate's Post-Divorce Philippines Sex Spree User: CleanSlate78
+			- 11 insights from 11 years abroad User: temujin77
+			- Pakistan MEGA trip report + Datasheet User: Chaos77
+			- Ultimate Philippines Data Sheet: Manila, Cebu, Davao, Cagayan de Oro, GenSan, Butuan User: 20Nation70
+			- Trans Siberian Railway Datasheet + Massive Trip Report User: Chaos65
+			- The Russia Thread User: Roosh63
+			- Dating Guide for Mainland China User: TravelerKai63
+			- Video of Me Doing Day Game in Budapest, Hungary #1 of #3 User: Buddha62
+			- Data sheet: ultimate HIGH END Manila guide User: scotian61
+			- The Ultimate Taipei, Taiwan Datasheet User: LeightonBlackstock59
+			- When The Search Is Finally Over User: Vorkuta59
+			- Even I Couldn't Fail In The Philippines User: iknowexactly58
+			- How To Get Laid In Any Country In One Week User: Sourcecode57
+			- Country For Old Men: Russia. Moscow 7-Day Trip Report User: Dantes56
+			- Beware of a man named Paul (or Andre) living in Wroclaw Poland User: Roosh55
+			- My 2015 summer lecture tour (#RooshWorldTour) User: Roosh52
+			- Kuala Lumpur Datasheet + Game Guide User: LouieG52
+			- LINUX Bangs Colombia -- A 90 Day Journey (NSFW) User: LINUX52
+			- Tehran, Iran User: Technics51
+			- The Truth About Clubs in Vegas User: Fisto51
+			- Learning game in SEA [NSFW] User: Dipar50
+			- Addis Ababa Ethiopia 2014 trip User: Sp549
+			- Baghdad Datasheet - The next Poosy Paradise? User: SirSpanky46
+			- Data Sheet: The Caribbean Carnival - An Access guide to the Region's best [w.pics] User: Advent Persona46
+			- Reykjavik, Iceland - My 11 night venture User: slubu46
+			- Russian language: no more bullshit User: Roosh46
+			- Travel Hate User: OGNorCal70746
+			- THC's 150 Notch SEA Tour [Updated] User: TravelHardcore45
+			- Tallinn, Estonia - Criminally Underrated User: Courage Reborn44
+			- Sinaloa, Mexico Data Sheet User: MidWest43
+			- Bang Da Nang (Vietnam) User: Papi Rico43
+			- Common mistakes foreign guys make with Brazilian women User: Safado43
+			- Moscow 2013 Datasheet User: Akula43
+			- Americas' Spanish Language Datasheet User: Americas42
+			- Entebbe / Kampala, Uganda 2015 User: Sp542
+			- Just back from Russia: A few thoughts User: Vorkuta42
+			- Datasheet: Travel Guide + My Flag, Notch, Experiences in Budapest Hungary User: AmateurGame41
+			- Depressed in Los Angeles After a 3 Month Trip in Eastern Europe User: AmateurGame41
+			- Jakarta Datasheet (by Irish) User: Irish41
+			- Lima Peru: A Whiteboy's Pussy Paradise and Travel Tips User: PALEO DUDE41
+			- Roosh in NYC User: Clint Barton41
+			- Tashkent - Uzbekistan User: Prosal41
+			- Ecuador + Living in a 3th tier city in SA Datasheet – 2014 *42notches/year User: rottenapple40
+			- Minsk, Belarus Data Sheet User: polish rumble40
+			- Video: Roosh Interviews Me About Eastern Europe, Internet Game and Traveling User: 20Nation40
+			- Bought a One Way Ticket To Manila... User: Vacancier Permanent39
+			- Data Sheet South America: 3 Months Rio, Buenos Aires, Lima, Bogota, Medellin, Cartag. User: Dr Feelgood39
+			- McQueen's Hollywood Data Sheet User: Christian McQueen39
+			- Skywalker goes Hollywood! User: Spike39
+			- South By Southwest: The Greatest Party You've Never Been To (Austin, Texas) User: BlurredSevens39
+			- Lothario's Trip Report to La República Dominicana User: Lothario38
+			- 4 Months 50 Notches SE Asia Tour User: TravelHardcore37
+			- McQueen's Las Vegas Data Sheet User: Christian McQueen37
+			- Bangkok Vs Manila & game in SE Asia User: scotian36
+			- Minsk, Belarus Data Sheet: User: Luisaceo36
+			- My 10 night stint in NYC User: slubu36
+			- BB's Video Data Sheets on Life in Cambodia and Southeast Asia User: Beyond Borders35
+			- Dubai - Destroying the Myths User: Doc_J35
+			- El Nido, Palawan, Philippines User: Scott Free35
+			- St. Petersburg Data Sheet User: Dr.Benway35
+			- Trip Report: 3 Weeks in the Dominican Republic User: Nascimento35
+			- Las Vegas, Summer 2014, Macking On A Moderate Budget Data Sheet User: Basil Ransom34
+			- Santa Monica CA - Datasheet User: Courage Reborn34
+			- So, I saved this guy's life last night in Bangkok . . User: Sp534
+			- Barcelona: Data Sheet User: LaPastillaRoja33
+			- Busting RVF travel hype and misinformation User: Roosh33
+			- Continued Lay report User: 20Nation33
+			- Data Sheet: Cali, Colombia User: LINUX33
+			- Tokyo Datasheet and a Basic Guide to Japanese Girls User: Flyjin33
+			- Datasheet: Accra, Ghana User: Akwesi32
+			- How Original Another Medellin Datasheet User: donnie51432
+			- DATA SHEET: 3 months in Barranquilla, Colombia User: 20Nation31
+			- Iran Datasheet User: Chaos31
+			- Kiev Report (2012) User: slubu31
+			- Laying Siege - Edinburgh UK User: Courage Reborn31
+			- Prague? Czech mate. User: Courage Reborn31
+			- Roosh V Forum - Data Sheet User: cardguy31
+			- Tribal Meeting (Official RVF meetups) User: Roosh30
+			- Datasheet: Cali, Colombia User: StarcraftGG30
+			- International Swagger in Prague, ((64e09426-c1eb-4f3c-9d34-baf8b13418df)) Datasheet User: InternationalSwagger30
+			- MaleDefined Compares The Big 3: Rio, Bucharest and Bangkok User: MaleDefined30
+			- Shenzhen Data Sheet User: Global Entry30
+			- Soma's Jakarta (Big Durian) Nightlife Guide User: Soma30
+			- Thai Islands Datasheet- Koh Samui, Koh Tao, Koh Phi Phi User: Qwest30
+			- The Part of Expatriation We Don't Discuss User: MaleDefined29
+		- Forum: Weightlifting & Fitness
+		- Post:Likes:
+			- How to Get a Script for TRT-- For Men Over 30 User: LINUX3
+			- A few more from the forums with less readers but still a lot of valuable and informational posts:
+		- Forum: Knowledge, Arts & Letters
+		- Post:Likes:
+			- Book Study: A Guide to Rational Living User: Dusty30
+			- Sister of Famous Feminist Kate Millett writes mind-boggling article User: Zelcorpion28
+			- The Power of Introverts in a World That Can't Stop Talking Summary/Review User: Lucky25
+			- My favorite sites for deep reading User: Roosh24
+			- Know Your Rights: Police Infographic User: Hencredible Casanova23
+			- If you had to choose one picture to represent masculinity... User: Glaucon22
+			- 23andme and further ancestry analysis Data Sheet User: Sonsowey21
+			- Quintus Curtius's "Thirty Seven" User: Black Knight21
+			- A great passage about rednecks User: The Lizard of Oz20
+			- Odin speaks the (red pill) truth on life, women, travel and beer User: berserk20
+			- Bill Burr's "I'm Sorry You Feel That Way" User: Bacchus19
+			- Modern Economics is just one big scam User: Zelcorpion19
+			- The Public Library Appreciation Thread User: Cincinnatus18
+			- Book Recommendation for Networking: Never Eat Alone User: Lucky17
+			- How to Be A Slave - James Altucher User: WestIndianArchie17
+			- Infographic of Logical Fallacies User: Samseau17
+			- Boyhood: the movie User: Peregrine16
+			- French language resources and tips User: TigerMandingo15
+			- I'm giving away both my books for free this weekend User: Spike15
+			- Avoid homonym mistakes and look smarter User: Sp514
+			- Fedor Emelianenko Documentary User: Hencredible Casanova14
+			- The Hunt: A red pill movie worth seeing again and again User: TigerMandingo14
+			- The Tuthmosis family User: Sp514
+			- "Influence: The Psychology of Persuasion" by Robert Cialdini - Detailed Notes User: RickyGP13
+			- 1000 Words Per Day Writing Challenge User: Beyond Borders13
+			- A Program Of Humanistic Development User: Quintus Curtius13
+			- Inerstellar - an excellent movie User: Engineer13
+			- Four major languages spoken in organizations among Sociopaths, Losers and the Clueles User: Valhalla12
+			- Nine Parts of Desire - The Hidden World of Islamic Women User: Sonsowey12
+			- The Big Ass Book Challenge User: Roosh12
+			- Glenn Greenwald Interview in GQ User: Bacchus11
+			- In Gods We Trust (The Evolutionary Landscape of Religion) User: Sonsowey11
+			- Nick Krauser- Balls Deep Volume 1 Review User: savvylurker11
+			- The book the 1% don't want you to read User: Crackshot11
+			- The Numbers Game: The RVF Stats and Numeracy Thread User: The Lizard of Oz11
+		- Forum: Weightlifting
+		- Post:Likes:
+			- How to Get a Script for TRT-- For Men Over 30 User: LINUX33
+			- Is Dilbert more ripped than you are? User: not_dead_yet26
+			- The "Do You Even Deadlift" Clinic User: StrikeBack23
+			- The Roosh V PT/Physiotherapy Thread User: Prophylaxis21
+			- How to fall asleep fast : The 4-7-8 breathing method User: Hannibal16
+			- "Arnold: The Education of a Bodybuilder" - Detailed Notes and Commentary User: RickyGP15
+			- Chaos bakes carb-free bread. ( Recipe) User: Chaos15
+			- Don't Work Out As Hard In The Cold Months User: The Lizard of Oz14
+			- No Excuses Workout Routine For ExctoMorphs User: WestCoast14
+			- Want to get strong? get a home pull-up bar User: The Lizard of Oz14
+			- La Sierra High School PE. JFK Challenge. User: General Mayhem13
+			- On the training of novice lifters User: StrikeBack11
+			- One Life Printiple I Definitely Stand By User: Andy_B11
+		- Forum: Lifestyle (continued)
+		- Post:Likes:
+			- Thedude3737's recipe book User: Veloce29
+			- How to start a profitable service on the Warrior Forum (Guide + Videos) User: VincentVinturi28
+			- 5 simple steps to build a (tax free) location independent income User: w00t28
+			- The Pomodoro Technique - the very best productivity method I have found! User: dreambig28
+			- Volunteering in the Peace Corps: A Datasheet User: Chunnel28
+			- Insights and Mindsets: Business, Game and Lifestyle User: Atlantic27
+			- IOA--Insane on Arrival User: iknowexactly27
+			- The Soft American User: Laner27
+			- THERE'S NO PAINLESS WAY TO KILL YOURSELF - coming back from failure User: Beyond Borders27
+			- Who needs a wife when you've got a slow cooker? User: Parlay4426
+			- Location independence thread User: speakeasy26
+			- Sheet: Tomatoes (cooked) User: kosko26
+			- Ayahuasca and the body User: Goldmund25
+			- Don't Overlook the Online Content Markets - Pretty Solid Money! User: Beyond Borders25
+			- I had a hair transplant done User: Kaizen25
+			- I'm going to be a father. User: cmrocks25
+			- W-N-D-H-C, a networking version of GALNUC User: Thomas the Rhymer25
+			- 4 Years on LCHF- Diet Datasheet. User: Chaos24
+			- Airline Pilot (Career) Datasheet User: RIslander24
+			- My Regimen For Reversing Hairloss, and Increasing Vitality In Your 20s User: General Mayhem24
+			- Things You Will Accomplish in 2015 User: Fisto24
+			- Wake up. Drink Water. User: Giovonny24
+			- Being a minimalist-minded man with money User: jakester31823
+			- Denim Data Sheet (Also ask me anything about denim) User: sand23
+			- The Digital Marketing/Internet Marketing Data Sheet Pt. 1 User: Black Quixote23
+			- The ultimate slacking at work guide - tested User: Palo_alto23
+			- [Making Money] Become an UberX driver User: MikeCF22
+			- Academia is toxic to red pill men, and why I'm dropping my PhD program User: ordinaryleastsquared22
+			- Data Sheet equity lending User: BIGINJAPAN22
+			- How you could make 6 fig in 6 Months. FRACKING and America.(a primer) User: elabayarde22
+			- My Personal Journey to Becoming a Moderate Social Drinker User: Beyond Borders22
+			- My Vasectomy Experience User: JohnKreese22
+			- Shaksuka -- Israeli Meal for Cutting Weight User: Checkmat22
+			- 16 Habits You Should Do Every Day User: FretDancer21
+			- [Making Money] Server Reselling Data Sheet User: ADarkerNight21
+			- 1 Year Drinking Wagon Challenge for 2014 User: The Lizard of Oz21
+			- Adding Lemons/ Limes to Water User: Giovonny21
+			- I Stopped Reading the News, And Why You Should Too User: BlurredSevens20
+			- 2 Simple Things I Did to Improve The Quality of My Life User: Dantes20
+			- Amazing Language Learning Tool - Duolingo.com User: RichieP20
+			- Become Wealthier Than 90% Of The World In 24 Months. User: TheCaptainPower20
+			- Becoming A China Specialist :: Data Sheet User: Suits20
+			- Data Sheet: Restraining Orders User: LowerCaseG20
+			- Preserve your eyesight, fall asleep easier... get F.lux! User: Samseau20
+			- Props to Tanner at Masculine Style User: deuce20
+			- RE: Digital Project Management: Programming for hustlers User: LouieG19
+			- How divorce works, datasheet. User: se7en19
+			- Mentor Matching Thread User: Atlantic19
+			- Top 3 Habits 2014 User: Atlantic19
+			- I Hate Sales User: Tengen18
+			- A Review of Masculine Style User: Samseau18
+			- Bone Broth User: MidniteSpecial18
+			- Bright Light Therapy for Regularizing Sleep and Reducing Depression and Anxiety User: The Lizard of Oz18
+			- Grass is greener? I don't know... User: worldwidetraveler18
+			- Language Learning Tips User: dk90218
+			- A French Foreign Legion Datasheet User: Porfirio Rubirosa17
+			- Breaking Down A Vending Business User: painter17
+- WorkFlowy templates
+    collapsed:: true
+	- http://www.workflowytemplates.com/#/templates
+	- That sounds like a plan. Right now, I’ve got the following setups in TextExpander which automate by day in Workflowy:
+	- – New Project (generates a new project with a random project number and all of the subtasks needed for that project);
+	- – Workflowy Date (simply puts the current date as a tag; I use the format #d20160407 for all of my dates)
+	- – Next 3 Days (generates a Workflowy search for the next 3 days)
+	- – Next 7 Days (generates a Workflowy search for the next 7 days)
+	- – Parent Search (takes what is currently pasted to the clipboard and searches all of workflowy)
+	- – Several other project templates that are created for the various types of projects I manage.
+	- My next snippet will be to create a months’s worth of Daily bullets similar to this structure:
+	- – April 11, 2016 (Monday) #d20160411
+	- -CALENDAR
+	- -TASKS
+	- -DAILY LOG
+	- Automated https://blog.workflowy.com/2016/04/14/searching-and-replacing-in-workflowy/#more-1416
+	- https://blog.workflowy.com/2016/01/14/lifelogging-tag-count/ + break the chain, checkboxes etc

@@ -1,0 +1,4385 @@
+- Coaching
+     collapsed:: true
+	- £37 Daygame coaching bootcamp devices
+		-
+			- £21 Nokia 105
+			- £16 PowerGen 5200mAh External Battery Pack
+				- [http://www.amazon.co.uk/dp/B005VBNW2G/ref=wl_it_dp_o_pC_nS_ttl?_encoding=UTF8&colid=3TYYGJTDOCTX1&coliid=I3G0IQLL1K5EHW&psc=1](http://www.amazon.co.uk/dp/B005VBNW2G/ref=wl_it_dp_o_pC_nS_ttl?_encoding=UTF8&amp;colid=3TYYGJTDOCTX1&amp;coliid=I3G0IQLL1K5EHW&amp;psc=1)
+			- Bluetooth wireless microphone
+		- day game street game london maxx seduction
+		- Nokia 105 pay as you go deals and upgrade offers from £.99 | The Carphone Warehouse
+		- [http://www.carphonewarehouse.com/phone/nokia/nokia-105/ppay?colourCode=BLUE&intcmp=PAYG_Nokia105_99p_180214](http://www.carphonewarehouse.com/phone/nokia/nokia-105/ppay?colourCode=BLUE&amp;intcmp=PAYG_Nokia105_99p_180214)
+		- Home Deal Finder Nokia 105 Nokia 105 Blue Blue Only at Carphone Warehouse 105 reviews With a battery life of more than a month, a dust and splash resistant keyboard and sturdy body, the Nokia 105 can cope with almost anything. See phone details Image gallery Pay as you go Upgrades UK'S LOWEST PRICE UK'S LOWEST PRICE From £0 .99 Plus £20 top-up In Stock Reserve and collect FREE delivery to you on Friday FREE delivery to store on Friday Check store near you Network / Tariff Your top-up gets you O...
+	- CLIENT PLAN LOG
+		- CLIENT PLAN LOG
+			- LOSING WEIGHT
+			- Measure current weight and waist size
+			- What's your goal
+			- Accountability: send picture to me, or post on hotornot.com
+			- stickk.com
+			- Spend extra on veg especially green fibrous e.g. broccoli, lettuce, cabbage, kale, cauliflower, watercress
+				- Drink water
+				- Caffeine/yohimbine in morning
+				- MCT oil first meal
+				- Slim-a-Soup
+				- Vegetables
+				- Protein shake (1 scoop)
+				- +1k extra cals (carbs) on workout day, rest days no carbs
+				- Eat slowly, loads of veg/pro and eat all of x food before next one (limit choices too)
+		- SOCIAL PHOBIA
+			-
+				- EVERYDAY ROUTINES
+					- Talking with family > Buying newspaper > meeting friends >
+				- NO. OF PEOPLE
+				- ANXIETY SCORE
+					- [http://www.socialanxietysupport.com/disorder/liebowitz/](http://www.socialanxietysupport.com/disorder/liebowitz/)
+				- CONFIDENCE CHALLENGE (flooding + systematic desensitisation)
+				- GAME
+				- Exercise (daily jogging) ((663cb699-b7f7-490b-aad5-f87d7fce4c28))/mindfulness, yoga, toastmasters/improv comedy, alexander technique, meditation 1 min start)
+				- Lifestyle - passion/career/finances, health, friendships/family/dating, home
+			- toastmasters, daygame
+			- ((67eae97d-9044-498a-8b87-ffb39b85b983)), phenibut
+			- 2) Ask a question to a giant group of strangers. An easy example is asking ‘who’s hungry?’ in a huge line for food. Talking to one stranger is one thing….a group is another.
+			- 3) Take on a persona or an accent when dealing with a stranger like a waiter or cashier. Becoming comfortable with being someone who is more difficult to pull off than just being yourself is an extra challenge and very fun.
+			- * Day 1: Go out and smile at 10 women. Most will probably smile back.
+			- * Day 2: Go out and ask 10 women for the time. Most will tell you.
+			- * Day 3: Go out and ask 10 women for the time, and then ask how their day is going.
+			- * Most will gladly share a little bit about their day, and keep walking.
+			- * Day 4: Ask 10 women for the time, ask how their day is going, and once you have a good conversation going, flirt a little. You’d be surprised how many flirt back.
+			- Hi, i have been asked many times how exposure therapy works, normally when people ask me its individual but as im getting writers cramp rewriting it over and over i thought if i put it in here then anyone can read and more people would benefit. It works as follows;- depending on how bad your panic, anxiety or agoraphobia is then you adjust this method to suit you. if you cant get out your door then we will start there. you need to open your front door with someone a few times until you feel comfortable then open it on your own, then you open your front door and stand looking out with someone a few times then on your own, then go to your front gate with someone a few times then on your own,( i know this will sound repetitive but its the only way to explain ) then walk a few steps up your road with someone then alone and so forth as the more you do it the more comfortable it gets and your anxiety level ( on a scale of 1-10 ) drops. each time you get comfy doing one task you move on to the next. when i started i used to go out at night about 10.30pm when there was nobody about, then gradually reduce the time by half an hour until you do it with people. you can use aids or distractions but only in the beginning, as you dont want to have to go out every time for the rest of your life with them, but you can use them until you feel comfy then drop them off one by one. My aids and distractions were my mp3 player, my dog, sucking mints and even taking photos with my camera! (geek!) i also wore an elastic band on my wrist which when i felt panic come on i would snap it on my wrist so it would sting! taking my mind off it. After a few weeks of walking up and down my street, going a little further each time, i then crossed the road and walked the other side (all the time i could see my house!) then i would do the circuit.up the street, crossover, down the street, cross over and then back home. Then i walked a bit further each time until i could get to a shop. for me it was sainsburys across the road.
+			- Personality test, learning style test etc at start
+			- - hold them accountable to THEIR goals not yours for them
+			- Every habit has three components: a cue (or a trigger for an automatic behavior to start), a routine (the behavior itself) and a reward (which is how our brain learns to remember this pattern for the future.)
+			- - Find out their schedule and get them to use Google Calendar/email associated calendar with their smartphone
+			- Follow-up
+			- Why Do You Enjoy Being My Customer?
+			- What Else Do You Wish My Business Did?
+			- REFERRAL - Who Should You Tell People/Me About My Business?
+	- COACHING QUALIFICATIONS
+		- [http://www.lifecoach-directory.org.uk](http://www.lifecoach-directory.org.uk/)
+		- ICF (International Coach Federation). Strengths Practitioner from the Centre of Applied Positive Psychology
+		- NLP master practioner
+		- • International Positive Psychology Association (IPPA)
+		- • The British Psychological Society (BPS)
+		- • The Special Group in Coaching Psychology (SGCP)
+		- Graduate Member of The British Psychological Society (BPS)
+		- • International Institute of Coaching (IIC)
+		- *Founder member SOCIETY FOR COACHING PSYCHOLOGY (MSCP), London
+		- *Founder Member Special Group in Coaching Psychology (SGCP of BPS) The British Psychological Society, Leicester
+		- *Certificate in Personal Coaching
+		- Awarded by The Coaching Academy, London (Europes Leading Coach Training Organisation)
+		- International Coach Federation (ICF)
+		- http://www.coachfederation.org.uk/programmes/actp/
+		- European Coaching Institute
+		- [www.europeancoachinginstitute.org](http://www.europeancoachinginstitute.org/)
+		- European Mentoring and Coaching Council
+		- Tel: 0845 123 3720
+		- [www.emccouncil.org](http://www.emccouncil.org/)
+		- UK International Coach Federation
+		- [www.coachfederation.org.uk](http://www.coachfederation.org.uk/)
+		- Association for Coaching
+		- [66 Church Road](null)
+		- [London](null)
+		- [W7 1LB](null)
+		- [www.associationforcoaching.com](http://www.associationforcoaching.com/)
+		- Chartered Institute of Personnel and Development (CIPD)
+		- [151 The Broadway](null)
+		- [London](null)
+		- SW19 1JQ
+		- Tel: 020 8612 6200
+		- [www.cipd.co.uk](http://www.cipd.co.uk/)
+		- Coaching and Mentoring Network
+		- [PO Box 5551](null)
+		- [Newbury](null)
+		- [Berks](null)
+		- RG20 7WB
+		- Tel: 0870 733 3313
+		- [www.coachingnetwork.org.uk](http://www.coachingnetwork.org.uk/)
+		- Life Coach Directory
+		- Coliseum
+		- Riverside Way
+		- Camberley
+		- Surrey
+		- GU15 3YL
+		- Tel: 0844 8030 241
+		- [www.lifecoach-directory.org.uk](http://www.lifecoach-directory.org.uk/)
+	- DATING COACHING
+		- Dating Coaching
+		- Need live audio recording for intermediate to advanced guys.
+		- Can't just watch body language - need to see where they're going wrong
+		- 1st day have 3 hours on appearance then rest gaming
+		- Spent last day talking about lifestyle etc
+		- Appearance/Game/Lifestyle
+			- Appearance
+				- Fashion -
+				- - leverage strengths eg necklaces to accentuate face, vests to show off arms/traps/shoulders, tight trousers to show off ass
+				- - minimise weaknesses eg black shirts if fat, trousers for thin legs,
+				- - Sexy stereotype eg identity if navy guy so dog tags, hobbies
+				- Teeth baking soda and sea salt 2x month
+				- Shave/wax, consider laser hair removal
+				- - Gym
+				- -Diet eg ETC, steroids
+			- Lifestyle -
+				- Social circle
+				- Navy seal team
+				- Fall into friend mode
+				- Your dream/passion
+				- Diet
+				- Testosterone management
+				- Wearing headphones whilst commuting (mindful, people watch, likely to open) vs music for state vs podcasts to learn
+				- Masturbation/porn
+				- Daily socialising (lifestyle of meeting women + men) eg improv, toastmasters, volunteer, salsa, yoga, art, martial arts
+			- Game
+				- Mirroring lean back. Touch for emphasis (DHV stories) and teases. Do Less - leave pauses with locked EC. Be emotive with facial expressions and gestures. Do the run infront  and stop approach. Screening criteria OLTR - no drugs
+				- Blow me or blow me out - sexualise and make convo run deep. Hold her hand eg let me see your hand - I just wanted to hold your hand. Instadate. If you forget her name, ask how u spell her name (for #close). Triangle gaze. Incidental kino - brush off lint. Sexualise - compliment body. Future project dates.
+				- Body Language
+					- Lock-in (reposition them)
+					- Pecking
+					- Proximity
+					- Kino
+					- Eye contact (never break before girl, break sideways, seductive low eyelids)
+					- Facial expression
+					- Gait
+					- Stance
+				- Vocal
+					- Tonality (emotive or flat)
+					- Tempo (slow, short sentences)
+					- Pauses eg after opener
+				- Field Reports
+					- What went well
+					- Compliance ceiling (time/effort)
+					- Tension breaking
+						- Tests - smirk and break EC sideways
+						- Who'll break first - EC, silence, pull hand away
+						- Risk creepy and awkward
+				- What didn't go well + how to improvePush and sexualise - blow me or blow me out
+		- Tease and kino - emotive facial expressions and gestures
+		- Compliment her body within first 5 mins
+		- Kino - her hands `can I see your nails'
+		- - 10 pushups if you don't do it, 'go' on command but you can veto 1 girl every 10 minutes
+		- Drills
+			- People-watching
+				- who's the prize, what is the guy sacrificing)
+			- Multi-threading
+				- Provide multiple topics in your thread
+				- Think of 3 topic threads from sentence
+				- Use statements rather than questions
+				- Drill until you feel you can talk about any topic as long as you like
+			- Topic Control
+				- Start on neutral topics
+				- Try to talk about every Good topic
+					- European Vacation
+					- Childhood Dreams
+					- Your Best Friend
+					- Current Pop Music
+				- Avoid Bad topics
+					- Teenage Pregnancy
+					- Sex with Sluts
+					- Breast cancer
+					- Your porn collection
+			- Question game
+				- Try to not answer their question and change thread
+				- Answering with another question not statement
+			- Cold read
+				- You seem to be the type etc
+				- Self-confirmation bias
+		- youtube
+		- username is pushthemax@gmail.com
+		- password: ironman21
+		- I'm Aaron, the trainer for your Maaximum Seduction bootcamp in London on 5-7th July. First, let me just give you some background experience on who I am: Most of my time is spent working as a Behavioural Analysis Therapist in which I deal with improving my client's physical, social and emotional development. I've been coaching dating skills for 3 years now, and in the past year have expanded my coaching services to offer new related aspects including:
+		- - Lifestyle Design - creating a career and lifestyle that makes you feel fulfilled and attracts women passively into your life
+		- - Belief & Behaviour Analysis - any negative beliefs and behaviours which are holding you back from success are immediately addressed, assessed and altered to maximise your success in every area of life
+		- - Fashion & Style Customisation - helping you to choose outfits which express your identity, attracts the type of girl you want and makes you feel confident
+		- - Fat Loss & Muscle Development - designing a workout, nutrition and supplement routine for you in order to achieve your ideal body
+		- All these other coaching services are offered for free with the classic dating skills coaching including street approaches, physical escalation, body language, etc. I want to make this the best possible bootcamp for you, so next I'd like to get to know you a bit better in order to customise this learning experience to your exact needs.
+		- Preferably we can talk over the phone to plan out a comprehensive customised personal bootcamp, if so just give me a call whenever you're free on 0770 2181 879.
+		- If you're unable to talk over the phone then could you reply to this email and give me a bit more background info on:
+		- 1) A summary of your previous experiences with dating and relationships
+		- 2) The obstacles you currently face and any known sticking points
+		- Looking forward to hearing from you,
+		- Aaron
+			- Picking a Niche: Where are your dream girls?
+				- What kind of women do you like?
+					- [ Feminine women. Fashionable women that like wearing skirts, high heels and looking girly. Nice bodies, big boobs, and ass.]
+				- What field is this type of girl a commodity in?
+					- [ Entertainment industry, specifically: fashion, modeling, acting, dancing, music. ]
+				- Which field specifically, is most accessible to you?
+			-
+				- [ Fashion and modeling, my city has a fashion week, where models and other people in the fashion and modeling industry all commingle. ]
+			- Action Step: Entrench yourself in the field/s where the kind of women you like are a commodity in. This will be your niche/s.
+				- [ Entrench myself in the fields of fashion and modeling.These will be my niches. ]
+		- Market Research: What are the dreams of your dream girls?
+			-
+				- Goal: Enter the chosen niches and find out its power structure, and the dreams of your dream girls.
+				- What are the dreams of the girls in this specific niche?
+					- Fashion Niche: [ Being featured in famous magazine. Increasing their status in fashion industry. ]
+					- Modeling Niche: [ Being signed to a modeling agency. Getting famous. Making money. ]
+				- Whom do girls in this field gravitate to?
+				- [ Photographers. Fashion/Modeling event organizers. People with connections, the ability or potential to make them famous, or introduce them to someone else that may. ]
+				- What is the commonality among all these people in this field?
+				- [ People with power! People running and in control of shit! People that could potentially further their career, or increase their status in the industry, directly, and indirectly.]
+			- Deliver a Service: Blend their dreams with your dreams
+				- Goal: Wrap up your dreams and those of your dream girls in a bow, and sell them back to them. You are creating a system off the dreams of your dream girls, and setting your self up in a position of POWER. You will become a powerful man in her dreams. As they say, POWER is an aphrodisiac.
+				- Fashion Niche Dream: Being featured in famous magazine. Increasing their status in fashion industry.
+					- Solution: [ Create magazine that features people in industry, and allows them to potentially increase their status in the industry. ]
+				- Modeling Niche: Being signed to a modeling agency. Getting famous. Making money.
+					- Solution: [ Create a modeling agency, that signs and represents aspiring models.
+				- Action Step: Find friends and other people in your social circle that you can partner with initially.
+					- In my case, I texted a bunch of my friends that where photographers, told them the idea (solutions above) and they were down. We did a test run, by first "pretending" we already had the solution above to see if it was worthy of investing further effort in achieving.
+			- Selling your Service: They can achieve their dreams through you
+				- Now that you've narrowed down on the exact field you will pursue, it is time to differentiate your self from the competition. The fact that you're just starting out, you will not have much, if anything to show to your aspiring dream girls. So always talk about the future, and how you are aspiring for greatness.
+				- Consequently, do not start targeting the women in the big leagues, i.e. the big fish. Concentrate your effort in the small names, the small fish, unknown women who are also aspiring for greatness (i.e. fame). The fact that you are both aspiring for greatness, and are relatively small, will make it easier for you to connect. The fact that you are starting something, in a field that they are also interested in, and may have the potential down the line to make them great, will automatically separate you from any average Joe-schmo off the street.
+				- Action Step: Hustle your way in the new field, and follow the following principles. Any women you meet that you want in your lifestyle, whether as friends, or as much more, have the same game plan.
+					- 1. Appeal to their self-interests and dreams; which you already know from your market research.
+						- [ In my case, any women we meet in the industry, we tell them the same thing. We do profiles in our magazine on aspiring models, designers, stylists, etc. We offer value right off the bat, rather than trying to take value. In other words, whatever she does, we tell her we profile people on exactly that.  ]
+					- 2 . Posture yourself as a person with influence. When in doubt, gas yourself up; fake it till you make it can suffice while you're just starting out. As they say in Texas, "big hat, and no cattle" can work initially. However, the goal is to produce real world cachet, which speaks much louder than words.
+	- DIET HACKING ACTION PLAN
+		-
+			- ~ How to use Carb Overloading Diet Breaks to feast on sweets whilst supercharging your metabolism
+			- ~ The exact ORDER you should eat your meal to make it the most filling
+			- ~ The 5 Supermodel Secret Eating Strategies that make any meal instantly 3x more filling with NO extra calories
+				- eat slower - 20 bites
+				- Limit choices
+				- Eat 1 by 1
+				- Use a small plate
+				- Drink plenty of water
+			- ~ Why all calories aren't equal (and how to take advantage of that)
+			- ~ How to reprogram your biochemistry so that your hunger hormone (ghrelin) is not released 24 hours a day
+			- ~ Damage Control: The fundamental principles behind surviving Cheat Days and bingeing without gaining fat (through making your stomach absorb less calories, empty faster and other magical hacks)
+			- ~ Why you're a Sugar Burner and how to become a Fat Burner
+			- ~ Optimising automatic mental thoughts towards healthy food to make dieting satisfying and comfortable
+			- ~ 'See the Matrix' - Discover all the different aspects of the environment around you which 'nudge' you towards certain choices
+		- Fundamental Principles you'll learn
+			- How to use Carb Overloading Diet Breaks to feast on sweets whilst supercharging your metabolism
+			- The exact ORDER you should eat your meal to make it the most filling
+			- The 5 Supermodel Secret Eating Strategies that make any meal instantly 3x more filling with NO extra calories
+			- Why all calories aren't equal (and how to take advantage of that)
+			- How to reprogram your biochemistry so that your hunger hormone (ghrelin) is not released 24 hours a day
+			- Damage Control: The fundamental principles behind surviving Cheat Days and bingeing without gaining fat (through making your stomach absorb less calories, empty faster and other magical hacks)
+			- Why you're a Sugar Burner and how to become a Fat Burner
+			- Optimising automatic mental thoughts towards healthy food to make dieting satisfying and comfortable
+			- 'See the Matrix' - Discover all the different aspects of the environment around you which 'nudge' you towards certain choices
+		- PLUS during the initial free coaching consultation every new client will get the free Fat-Burning Fuel cheatbook, which includes:
+		- Free Fat-Burning Fuel cheatbook which includes
+			- 8 supplements which result in effortless rapid fat loss
+			- The Top Secret nutritional aid which removes hunger INSTANTLY
+			- 6 drinks you can consume to effortlessly strip pounds (coffee, water, yerba mate, green tea, vegetable juice, protein shake)
+			- 11 Extremely Filling Low-Calorie desserts with High Protein content
+			- 12 Low-Calorie ingredients you can add to any meal to easily reduce your appetite
+			- The Alcohol Diet Spectrum separating alcohol you can drink to your heart's content from the more detrimental beverages
+		- Fat-Burning Fuel cheatbook, which includes:
+			- - 8 supplements which result in effortless rapid fat loss
+			- - The Top Secret nutritional aid which removes hunger INSTANTLY
+			- - 6 drinks you can consume to effortlessly strip pounds
+				- coffee
+				- water
+				- yerba mate
+				- green tea
+				- vegetable juice
+				- protein shake
+			- - x extremely satiating low-calorie desserts (protein fluff etc)
+			- 12 low-calorie ingredients you can add to any meal to easily reduce your appetite
+				- chilli peppers
+				- hot sauce
+				- broccoli
+				- cabbage
+				- kale
+				- psylium husks
+			- ~ The Alcohol Diet Spectrum separating alcohol you can drink to your heart's content from the more detrimental beverages
+		- Objectives: Limit muscle loss as much as possible
+		- also great because protein is difficult to store, highest TEF effect, lowest caloric value
+		- This is a short-term diet. It should only be used for short periods at time because 1) you need to carb overload to reset leptin levels 2) it doesn't teach you about healthy eating choices i.e. paleo; 3)
+		- + eat green veggies
+		- Strength gains/losses correlate well with muscle gains/losses.
+		- Generally speaking, when cutting if you manage to maintain strength, you have preserved muscle mass.
+		- Track progress by working toward progressive poundage increases in the gym or body measurements. Remember, if your strength is going up then you’ve probably gained lean body mass.
+		- cinammon enhances insulin sensitivity, curcumin, ALA, green tea EGCG, turmeric
+		- started taking chromium glycinate picolinate 1000mcg a day spread out, and poof, no carb/sugarcravings or even hunger! seriously awesome
+		- - I've discussed in the past that after workouts are the best time for a carb overload physiologically, but psychologically
+		- The other good time to have a cheat meal, and the time I actually prefer, is at a time when it is socially beneficial to you. As you might have noticed, when you try to lose weight, you become somewhat of a social outcast. Bad food always seems to show itself when you’re out with friends. I like to save my cheat meal for a Friday or [Saturday night](null) when I can enjoy going out to dinner or a party and not worry about having to say no to every temptation.
+		- 4 HORSEMEN OF FAT LOSS - PAGG
+		- EXERCISE to push energy to different sites i.e. fat or muscle etc GLUT-4 transporters from HIT
+		- Turmeric shoves calories into muscles, I appear leaner (~1 teaspoon a day/5g or less)
+		- Set 3-4 simple goals ie “2 kinds of favourite candy”, “one meal cooked from the ‘cheat’ pantry”, “eat a 3 course meal of anything I feel like at favorite restaurant”
+		- 8 supplements effortless rapid fat loss
+		- AGG before each meal, PAG (no green tea) before bed
+		- Policosanol 20-25mg (fat loss, chol)
+		- Alpha lipoic acid 100-300 mg (glucose into liver/muscles>fat)GLUT-4 (300mg, 30 mins before meal)
+		- Green tea flavanols/ecg 325mg (glucose into liver/muscles>fat) GLUT-4
+		- Garlic extract 200mg+ 650mg (fat loss - unknown mechanism)
+		- Cissus Quadrangularis 2400mg x3/day before meals
+		- + cayenne/hot sauce (thermogenic fat burner)
+		- caffeine
+		- yohimbine
+		- chewing your food longer (slower/savour) means hunger signals get there sooner VS less chewed = less bioavailable? (also reduce fat to speed up gastric emptying)
+		- Damage Control
+		- protein first meal to decrease appetite, fructose next to flatline blood glucose, citric juices to minimise insulin (storage hormone). Caffeine to increase speed of gastric emptying. Air squats/isometric 90 secs HIT before eating and 90 mins after
+		- PSMF and appetite suppressants for fast fat loss with limited muscle loss
+		- - PSMF has to be whole foods for maximal satiety e.g. tuna, lean meats
+		- plain chicken breasts or plain ground turkey breast or plain egg whites, tuna, broccoli, green tea, coffee
+		- Eat everything you buyEven with this whole refeed business, I think most of us need to change our eating habits for good anyway. Eating everything you buy will accomplish two goals:
+			- You’ll probably get sick and you’ll start associating that food with the way it makes you feel and – hopefully – stop craving it (lifehacker)
+			- You won’t have anything to fight against later in the week if you’re like me and can’t bring yourself to throw away stuff you paid forOh, and if you can’t possibly eat everything you buy, throw the rest away at the end of the day.
+		- Appetite Suppressants
+			- country mallow, or heart leaf; ephedra, which is not legal for use in dietary supplements in the United States; chromium; green tea extract; and hoodia Gordonii, guarana, Garcinia Cambogia
+			- Glass of vegetable juice before meals - Studies have shown that drinking vegetable juice before meals suppresses your appetite by making you eat 135 less calories at each meal.
+			- Drink green tea or yerba mate
+			- Use hot sauce - Eating anything that contains capsaicin like chili peppers or hot sauce will reduce your appetite because according to the European Journal of Nutrition… Capsaicin both lowers the hunger inducing hormone ghrelin while increasing the appetite suppressing hormone GLP-1.
+		- In a small study published in "Clinical Nutrition" in June 2009 involving 27 participants, consuming a combination of green tea and capsaicin, which is a substance in cayenne peppers, was positively linked with reduced hunger and increased fullness.
+		- A 2001 study reported in the Journal of Human Nutrition and Dietetics showed that guarana, combined with damiana and yerba mate, delayed gastric emptying and may have contributed to retaining a feeling of fullness. But Phaneuf cited a 2003 study in Phytotherapy Research in which mice fed only guarana did not show the same effect.
+		- So How Do I Become Fat-Adapted? / Go into Ketosis
+		- Currently are in general 3 ways to speed up fat adaptation:
+		- 1) Train in the fasted state (intermittent fasting)
+		- 2) Eat a high-fat diet (paleo) - you'll also want to eat lower carbs/protein so that your body can only break down fat for energy. The higher the fat and lower protein/carb
+		- 3) Reduce frequency, intensity or length of training - lower levels are more reliant on fat for energy
+		- You can be full-blown ketogenic all the time (<60g) daily or periods of interspersed ketosis through IF (<120g daily) which means during the day you will decrease your degree of fat burning though you may still burn some as we all do to some degree. IF is easy to stick to, not worrying about cooking extra meals, eating big, energy/focus boost from catecholamines, deepened ketosis as burning stored fat rather than dietary nutrients
+		- This allows intake of nutritious vegetables with their essential vitamins and minerals, plus the psychological relief of getting to eat some 'restricted' foods. It is best to be careful about food choices however, which will be further examine in a later post
+		- Furthermore leptin increase through continuous refeed. Cheat days may be necessary to boost e.g. refeed.
+		- knowing the basics of paleo
+		- + using habits of IF and (no carbs after 6?) we can make a lot of progress
+		- [http://rippedbody.jp/2011/10/08/leangains-intermittent-fasting-guide-how-to-do-it-by-yourself/](http://rippedbody.jp/2011/10/08/leangains-intermittent-fasting-guide-how-to-do-it-by-yourself/)
+		- + basics of calorie counting [http://rippedbody.jp/2011/10/18/want-to-make-your-if-leangains-diet-simpler-dont-count-calories/](http://rippedbody.jp/2011/10/18/want-to-make-your-if-leangains-diet-simpler-dont-count-calories/)
+		- then you might need to do Advanced Body Habit: macro calculation + counting
+		- Cheat Day Strategies For A Hedonist
+		- Can you avoid fat gain during cheat days and holiday feasts like Thanksgiving and Christmas? Sure, you can. But if you're a big eater that loves food, like me, it's more a question of minimizing fat storage than attempting to avoid it. And trust me, there's a few nifty strategies that can be used for damage control while still enjoying holiday hedonism, cheesecake mastery and spontaneous feasts of all sorts.
+		- The key to damage control during ad libitum ("at one's pleasure") eating sprees lies not only in how much you eat but also with the choice of macronutrients. Food combination voodoo? No, just pure facts based on nutrient metabolism and science.
+		- The question is also how to quickly get back on track for there is no doubt that big eaters can eat thousands of surplus calories that do lead to fat gain and post-holiday bloat. One of the "secrets" to maintaining low body fat while still being able to enjoy wild excess from time to time is therefore to make a quick turnaround in the days after.
+		- [](http://1.bp.blogspot.com/_dtaWqzV6d7M/TO3LcBZl2WI/AAAAAAAAA5c/T48IenqHkQs/s1600/Cheat%2BDay%2B1.JPG)
+		- Last weekend I ate mounds of porter beef, stuffed goose and cheesecake. Ah, how I love such days of unfettered hedonism.
+		- Cheat days and Refeeds
+		- In this article I'll be using "cheat day" and "feasts" interchangeably but they are both synonyms for short-term overfeeding of various durations and magnitudes. The same general principles will apply, more or less. A "refeed" is often used in the context of a structured diet approach. It tends to be more strict and planned in terms of macronutrient composition (high-carb, low-fat.)
+		- While I will discuss refeeds in brief, this article will mainly discuss overfeeding of a mixed diet - that is, what you should take into consideration on Thanksgiving, at the Christmas dinner table, or any other occasion where you will be presented with lots of tasty foods.
+		- My plan is not to tell you exactly what to eat or how much of it - that would be absurd. I don't encourage someone to count calories on Thanksgiving Day or similar such occasions. Instead, I'll talk about some factors that will determine how much fat you end up putting on and how you can potentially reduce the time spent making up for your splurging.
+		- First, let's look at the general effects of overfeeding and do some myth debunking in the process.
+		- Effects of Overfeeding
+		- I tend to look at cheat days and feasts mostly as psychological relief and fun, but you'll often see some overly optimistic claims about cheat days being made in the fitness community; how it boosts your metabolic rate and tricks your body into "fat burning mode" for the rest of the week. There's some truth to this, but the real impact of cheat days are exaggerated if you look at the numbers you're dealing with.
+		- [Studies on overfeeding](http://www.ncbi.nlm.nih.gov/pubmed/3456075) shows that metabolic rate typically increases about 6-8% for up to 24 hours after feeding. There's also large differences in between individuals, illustrated by the fact that the magnitude of the increase ranges from 3-10%. Those prone to obesity ("thrifty" phenotypes) tend to be in the lower range (3%), while the naturally lean ("spendthrifty" phenotype) tend to be in the upper range (10%). Either way, from a fat loss perspective it's not really justified to eat thousands of surplus calories to burn a few hundred calories extra.
+		- The other argument, about tricking your body into fat-loss mode, usually alludes to the effect of [overfeeding carbs](http://www.ncbi.nlm.nih.gov/pubmed/11126336?ordinalpos=47&itool=EntrezSystem2.PEntrez.Pubmed.Pubmed_ResultsPanel.Pubmed_RVDocSum) on leptin. For a lean person, or for someone one a prolonged dieting stint, low leptin is an issue. This hormone, the king of [hunger regulation](http://www.ncbi.nlm.nih.gov/pubmed/19818643), controls metabolic rate, appetite, [motivation](http://www.ncbi.nlm.nih.gov/pubmed/20515615) and [libido](http://www.ncbi.nlm.nih.gov/pubmed/20551666), among other things. Leptin drops whenever your body [senses a calorie deficit](http://www.ncbi.nlm.nih.gov/pubmed/12079865) and when fat mass is lost.
+		- The reverse happens when your body senses a calorie surplus. A surplus temporarily boosts leptin, which leads to downstream effects on [fat oxidation](http://www.ncbi.nlm.nih.gov/pubmed/16030519?ordinalpos=11&itool=EntrezSystem2.PEntrez.Pubmed.Pubmed_ResultsPanel.Pubmed_RVDocSum), thyroid, [dopamine](http://www.ncbi.nlm.nih.gov/pubmed/20417193) and testosterone. In the context of dieting, refeeds are therefore beneficial.
+		- However, similar to the effects of overfeeding on metabolic rate, a leptin-boost is also rather transient and drops again once you resume your diet and your body senses the deficit. It's for this reason I prefer to use frequent but moderate overfeeding, or refeeds, as part of the [Leangains approach](http://www.leangains.com/2010/04/leangains-guide.html). Usually in conjunction with weight training to take advantage of the anabolic effects.
+		- Nutrient Metabolism: A Quick Primer
+		- This is a quick primer on nutrient metabolism, as it will help you understand some of the concepts discussed later on.
+		- The easiest way to think about nutrient metabolism is in terms of the Respiratory Quotient (RQ) and insulin. They are associated - when insulin is high, RQ is high, and vice versa. Here's a quote from ["Intermittent Fasting and Stubborn Body Fat"](http://www.leangains.com/2010/06/intermittent-fasting-and-stubborn-body.html):
+		- "After you eat, insulin and fatty acids are elevated. You are in the fed state and there's zero fat burning going on. Your body is relying completely on glucose oxidation during the hours following the meal."
+		- This doesn't mean that you'll be burning more body fat if you follow a low-carb high fat diet, or that you'll never burn fat on high-carb diets. In energy balance, 24-hour RQ is reflective of the [macrocomposition](http://www.ncbi.nlm.nih.gov/pubmed/8124396) of the diet rather than fat gain or fat loss per se. Dietary fat has insulin-independent storage mechanisms (ASP) and "fat balance" (net storage of dietary fat) is primarily dictated by total calorie intake at the end of the day. The time course and trend in [substrate metabolism](http://www.ncbi.nlm.nih.gov/pubmed/20016713) will be different dependent of the carb:fat-ratio, but not the net effect.
+		- Key point
+		- Overfeeding elevates RQ for several hours - up to a day even - and indicates that glucose metabolism is dominant. Since glucose metabolism is high, fat burning is low or insignificant. This metabolic state allows net storage of dietary fat. Carbs, protein and alcohol all elevate RQ and affects fat burning negatively. Dietary fat does not affect RQ but has insulin-independent ways of getting into fat cells.
+		- Knowing this is, are there some ways to limit fat gain in mixed-diet overfeeding or is it all about calories? To answer this, let's look at the energy costs for fat storage of various macronutrients.
+		- Energy Cost of Fat Storage: The Macronutrient Hierarchy
+		- During overfeeding, surplus calories are stored as fat with a great deal of varying efficacy.
+		- (From most likely to be stored as fat in adipose tissue during overfeeding to least likely.)
+		- 1. Dietary fat.
+		- The energy cost for storage of dietary fat is minimal (0-2% depending on saturation.)
+		- 2. Carbohydrate.
+		- The conversion of carbs to fat, de novo [lipogenesis](http://en.wikipedia.org/wiki/Lipogenesis) (DNL), is [hardly significant](http://www.ncbi.nlm.nih.gov/pubmed/11722948) in humans and usually only occurs when glycogen stores are saturated (i.e. prolonged high-carb overfeeding). This does not matter much in practical terms, as there will be plenty of dietary fat in mixed-diet overfeeding. Carbs promote fat gain by reducing fat oxidation, as explained before. There's some variance between individuals here, based on genetics, metabolic state and habitual diet-patterns. Enzymes that modulate DNL are up-regulated in habitual high-carb diets and in the obese. Another factor that play a role is [insulin sensitivity](http://www.ncbi.nlm.nih.gov/pubmed/19252892). There are similar individual aspects to the storage of dietary fat as well (mediated by LPL and ASP.)
+		- In metabolically healthy humans, the [energy cost for DNL](http://www.ncbi.nlm.nih.gov/pubmed/11502246) is approximately 25%. In practical terms, this means that 3 out of 4 calories can be used for fat synthesis once a "carbohydrate surplus" is achieved (after saturated glycogen stores). Given that glycogen stores are never full in conditions of energy balance, people have a large "carb-sink" to use up before carbs contribute to fat gain directly. (Until then, the effect of carbs is indirect via suppression of fat metabolism. Am I being redundant yet?)
+		- The above is in particular reference to glucose; sucrose and fructose are more lipogenic due to some differences in metabolic pathways. Fructose do not go to muscle glycogen stores, but to liver glycogen - and this glycogen depot is significantly smaller than muscle glycogen. [One study](http://www.ncbi.nlm.nih.gov/pubmed/11722954) comparing DNL from glucose and sucrose overfeeding in lean and obese people, showed DNL to be 10% and 20% higher respectively after the sucrose-experiment.*
+		- * From results: "The type of carbohydrate overfeeding (sucrose or glucose) had no significant effect on de novo lipogenesis in either subject group." Which means that the difference (10-20%) was not enough to be deemed significant from a scientific standpoint. Fructose-overfeeding has not be compared to glucose in a controlled study, but judging from this study, DNL would likely be substantial (sucrose is half fructose, half glucose)
+		- 3. Protein and alcohol.
+		- The energy cost for storage of amino acids and ethanol as fat are very hard to quantify for methodological, biochemical and (in the case of ethanol), ethical reasons. No controlled studies has been performed. However, it's safe to conclude that these two substrates serve as very poor precursors for fatty acid synthesis for a few different reasons.
+		- First of all, the [thermic effect](http://en.wikipedia.org/wiki/Thermic_effect_of_food) of the separate macronutrients is 20-30% for protein, ~5% for carbohydrate, and 0–3% for fat. Total TEF is generally said to be 10% of total calorie intake, but this number is for the standard American diet, which is low in protein, relatively speaking.[TEF for alcohol](http://www.ncbi.nlm.nih.gov/pubmed/8184963) is harder to estimate, as values range between 10-30% in various studies. I talked about alcohol and TEF in ["The Truth About Alcohol, Fat Loss and Muscle Growth"](http://www.leangains.com/2010/07/truth-about-alcohol-fat-loss-and-muscle.html):
+		- "Alcohol is labeled as 7.1 calories per gram, but the real value is more along the lines of 5.7 calories due to the thermic effect of food (TEF) which is 20% of the ingested calories. This makes the TEF of alcohol a close second to protein (20-30% depending on amino acid composition)."
+		- In a similar vein, the real caloric value of protein would be closer to 3 kcal/g and not 4 kcal/g as it's currently labelled. Indeed, arguments that we revamp nutritional labeling to more closely match the true metabolic impact by various macronutrients has been made. [Livesey](http://www.ncbi.nlm.nih.gov/pubmed/11299073) proposed that protein should be counted as 3.2 kcal/g, for example.
+		- Further complicating the issue in regards to quantifying fat synthesis from protein is the amino acid composition of the protein consumed, as it varies depending on the protein source. Amino acids are either [glucogenic](http://en.wikipedia.org/wiki/Glucogenic_amino_acid), [ketogenic](http://en.wikipedia.org/wiki/Ketogenic_amino_acid), or both, and use different metabolic pathways for fat synthesis. For example, a glucogenic amino acid must first be converted to glucose (de novo gluconegenesis) once it can contribute to fat synthesis via de novo lipogenesis, while a ketogenic amino acid can contribute via a more direct pathway (via acetyl-CoA).
+		- I might revisit this topic again some day, as I've discussed it with some smart biochemists, but the key point here is that protein cannot contribute to fat gain directly to any meaningful degree. Even in highly artificial scenarios, such as overfeeding thousands of calories of pure protein, would yield fat gain that is a lot less than what's estimated from traditional formulas (i.e. 700 calorie surplus of fat or carbs = +0.1 kg weight gain is not true for a protein surplus).
+		- Similar to carbohydrate, protein and alcohol act similarly as carbs in regards to metabolism. That is, they blunt fat oxidation. However, while carbs can contribute to fat gain directly once glycogen stores are full, protein and ethanol are unlikely to do so. (Ethanol metabolism was explained in detail in ["The Truth About Alcohol, Fat Loss and Muscle Growth"](http://www.leangains.com/2010/07/truth-about-alcohol-fat-loss-and-muscle.html).)
+		- Key point
+		- In mixed-diet overfeeding, macrocomposition matters. In comparing two diets at the same calorie intake - say 5000 calories - the one with the highest percentage of calories from protein yields the least fat gain. This is mainly explained by TEF and the poor efficacy with which protein can contribute directly to fat synthesis.
+		- What other factors need to be considered for someone who wants to minimize fat gain during overfeeding?
+		- Satiety: Effects of Macronutrients
+		- This is a complicated topic to address in real life terms, as most people do not eat "protein" and "carbs" - they eat food, and food composition matters greatly. While protein is clearly superior to both fat and carbs, a whey shake likely provides less satiety on a calorie-per-calorie basis than - for example - an equicaloric amount of fibrous veggies, even though the former is lower in protein and higher in carbs. Similarly, an equicaloric amount of steak and whole eggs is more satiating in both the long- and short-term than chicken and rice.
+		- Adding to that, there's a good measure of difference in between individuals, as evidenced with the varying amounts of success people have with high or low-carb diets respectively.
+		- Further complicating the issue, there's the "hedonic" aspect to consider. Simply put, a tasty and/or sweet protein, carb, or fat-based meal might affect how much you end up eating.
+		- With that in mind, here's what research shows.
+		- 1. Protein.
+		- [Protein is superior](http://www.ncbi.nlm.nih.gov/pubmed/18469287) to carbs and fat intake in both short-term and long-term hunger suppression. This seems to be related to not only a stronger effect on appetite-regulating hormones (i.e. ghrelin, PYY and GLP-1), but also to its high TEF.
+		- 2. Carbs and fat.
+		- Up until a few years ago, carbs were generally regarded as superior to fat in terms of satiety on a calorie-per-calorie basis. The problem with the studies this belief was based on was the short duration used for measuring appetite-regulating hormones and subjective measures of satiety and fullness. In recent years, better methodological approaches show a more nuanced picture. In summary, it can be said that carbs suppress appetite better in the [short-term](http://www.ncbi.nlm.nih.gov/pubmed/19820013), while fat wins out in the long-term.
+		- The [carbohydrate hierarchy](http://www.ncbi.nlm.nih.gov/pubmed/19064538) in terms of best appetite-suppression from source: Glucose --> sucrose --> fructose.
+		- With regards to satiety from different fatty acids, there's [no significant difference](http://www.ncbi.nlm.nih.gov/pubmed/20492735) between saturated, monounsaturated or polyunsaturated fat. ([Another study](http://www.ncbi.nlm.nih.gov/pubmed/20451538) showed similar results.)
+		- 3. Alcohol.
+		- From ["The Truth About Alcohol, Fat Loss and Muscle Growth"](http://www.leangains.com/2010/07/truth-about-alcohol-fat-loss-and-muscle.html):
+		- "Is higher TEF a reasonable explanation for lower body fat percentage in regular drinkers? We need to consider that alcohol does not [affect satiety](http://www.ncbi.nlm.nih.gov/pubmed/17142135) like other nutrients. The disinhibition of impulse control that follows intoxication may also encourage overeating. Ever come home from a party in the middle of the night and downed a box of cereals? That's what I mean."
+		- Adding to that, note what I wrote about leptin earlier:
+		- "Ethanol has not been directly compared to the other macronutrients. However, the effect is a negative one. While one study actually found a positive effect on leptin, most studies point towards an [inhibitory effect.](http://onlinelibrary.wiley.com/doi/10.1046/j.1365-2265.2001.01401.x/abstract)
+		- Alcohol clearly provides nothing in regards to satiety and may even encourage overeating by affecting impulse control and/or leptin. For occasions where large quantities of alcohol is consumed, you may find the strategy outlined in my article about alcohol useful ("How to lose fat or prevent fat gain when drinking.")
+		- Key point
+		- Food composition, individual differences and hedonic aspects aside, protein is superior to carbs and fat in terms of satiety and appetite-suppression.
+		- I've now covered what you need to know about macronutrients in order to make an informed decision about food choices on cheat days or holiday eating sprees. Let's look at how this information can be put to use in practice.
+		- Cheat Day Strategies
+		- Here are some strategies you might find useful. They are how I approach cheat days and holiday feasts, and what I encourage my clients to do. First, however let me address what you should not be doing.
+		- 1. Don't stress it.
+		- Some people "pre-compensate" holidays by training themselves into the ground and/or reduce calories significantly in the days leading up to the feast. I highly recommend you do not do this, since I can almost guarantee that you will end up eating a lot more than you would normally if you approach holidays or feasts in a "deprived" mindset.
+		- I touched on this issue in ["Intermittent Fasting, Set-Point and Leptin."](http://www.leangains.com/2010/03/intermittent-fasting-set-point-and.html) On the folly of "planning" a big meal or refeed at the end of the diet instead of taking it nice and easy, I said:
+		- "...I would sit and plan my big refeed meal at the end of the diet. I would count every day like an inmate counting the days to his release from prison. And once I reached my goal, I would go bonkers, eat a bunch of crap, take several steps back and then go back to dieting in a feeble attempt to make up for my screwed up 'refeed' (aka binge in my case)."
+		- Take it nice and slow - don't do anything stupid in the days before. No need to train your butt off and deplete glycogen, no need to up your cardio to two hours a day. You'll just end up eating more junk if you do. This is due to a combination of psychology and physiology (i.e. plummeting leptin.)
+		- The topic of calorie-compensation is a well-known phenomenon; it's part of why exercise doesn't produce the predicted weight loss in some people. This is based on studies on Average Joes and Janes, and do not apply in most circumstances to the people reading this article. However, with specific reference to holiday eating and cheat days, I definitely notice a tendency in myself to eat more than I normally would if I train or reduce calories in the day leading up to the occasion.
+		- Surely some people get away with it and don't compensate but in my experience those who think they are exempt from the rule are the ones to which the rule applies.
+		- 2. Create a calorie buffer.
+		- On the day of the feast, you'll want to make sure you have a buffer saved up for the occasion. You'll either want to reduce your meal frequency as much as you can or reduce your calorie intake in the meals leading up to the feast.
+		- If possible, fast up until the big meal. This is easy and a bit of a no-brainer for those used to intermittent fasting. If you are used to 16-hour fasts per my usual recommendations, it should not be an issue to prolong it further, i.e. doing a 20-24 hour fast (["Eat Stop Eat"-style](http://www.leangains.com/2010/09/eat-stop-eat-expanded-edition-review.html)).
+		- Make sure you eat a high-protein meal on the day before, as usual - preferably with fiber to slow down absorption. That's also a good practice for regular Leangains-fasts but it's even more so important for >16-hour fasts to avoid hunger pangs in my experience. Should hunger become unbearable, which I've never experienced even during prolonged fasting, drink some coffee and/or eat a plate of fibrous vegetables.
+		- The second best strategy if you're not used to intermittent fasting is to use a "high-protein low-everything-else"-diet leading up to the feast. This will maximize satiety for the lowest amount of calories. Here's an example assuming you have your big feast planned for dinner or around evening, [5-8 PM](null) or so:
+		- [10-12 PM](null): 40-50 g protein, trace carbs and fat (~200-250 kcal)
+		- [2-3 PM](null): Same as above.
+		- [5-8 PM](null): The grand feast. Be it Thanksgiving Dinner, cheesecake mastery or whatever else you have planned that involves eating yourself silly.
+		- For a regular guy, the above plan allows about 2000 calories of goodness during the big meal until any significant fat gain occurs. Still, if you're like me you can eat a whole lot more than that in one sitting. Next we'll have a look at what you can do for damage control during the meal itself.
+		- By the way, here's a pro tip: If you don't know how to make a "high-protein, low-everything-else"-diet bearable, you need to try [protein fluff](http://www.leangains.com/2010/09/high-protein-recipes-and-jack3d-review.html). I've yet to encounter a more satiating and tasty high-protein treat.
+		- [](http://3.bp.blogspot.com/_dtaWqzV6d7M/TO3PBrNZhWI/AAAAAAAAA5s/TM4_3xe9uTE/s1600/Protein%2BFluff.JPG)
+		- Protein fluff; I mistakenly wrote that you'd need casein or milk-protein isolate for this, but people report getting respectable fluffs with some whey protein brands as well. Give it a go - you'll love it.
+		- 3. Protein priority.
+		- In the short-term, splurging on high-carb, high-protein and low-fat foods would lead to insignificant fat gain, as glycogen stores would soak up most of the carbs (which would severely limit DNL.) However, such an approach is not very appealing, or realistic, if you want to experience the splendor of Thanksgiving and Christmas. I don't know about you, but I never think of the gifts on Christmas - I think of all the food I get to eat :D
+		- Here's how I suggest you approach the eating spree that is about to ensue:
+		- * Vary fat and carb intake to personal preference but make protein a high priority. "Protein first - carbs and fat for taste". If you think of your meals like this, it'll automatically raise the percentage of protein during the meal, increasing TEF and satiety.
+		- * In regards to the order which you eat your foods, I suggest mainly focusing on protein, fat and volume (i.e. veggies) first and then add carbs in later. In my personal experience, this tends to maximize both short-term and long-term satiety and reduce calorie intake later on. Fat has a latent effect on appetite-suppression, so eating more fat earlier on makes sense.
+		- * Do not neglect food volume - if possible, try to fill up on veggies in your early meals and save the more calorie-dense stuff for later on.
+		- * Sucrose, fructose and liquid calories, i.e. treats, cakes and alcohol, should preferably be added in last, when you're full from the main meal(s).
+		- 4. Limit choices, not amounts.
+		- Studies show that when people are presented with multiple food-choices, they eat more. In fact, calorie intake during a buffet scales almost linearly with the amount of different foods to choose from. If I offered you unlimited amounts of turkey and cheesecake, you'd likely only eat so much of it before you felt "full" and satisfied.
+		- However, if I threw a third food into the mix, like potatoes or chocolate pudding, you'd end up eating a lot more - even if you weren't a fan of potatoes or chocolate pudding in normal circumstances. Humans are wired a bit funny and some behaviors are maladaptive in our environment of excesses. Having a taste of everything was a good strategy during our evolution, since it protected again micronutrient-deficiencies.
+		- By "mentally limiting" the food choices you allow yourself, i.e. only eating that which you absolutely love and crave, can be a very effective strategy in regulating calorie intake without feeling deprived. Remember, you don't need to taste of every damn food or treat that is offered. Stick to that which you truly enjoy eating and skip the rest.
+		- Bulletproof Rapid Fat Loss Protocol
+		- Goal: Lose as much fat as possible as fast as possible.
+		- The Rapid Fat Loss Protocol combines a modified cyclical ketogenic diet with mTOR stimulation, mitochondrial optimization, and ongoing toxin binding. The result is massive rapid fat loss with fewer – or no (we think) -  metabolic problems associated with VLCD (very low calorie diets). It will combine a 6 day ketogenic phase using Bulletproof Coffee, followed by a 1 day high carb re-feeding.
+		- This is the exact same protocol I used to melt 75 pounds of fat off of one of my clients – in 75 days. You’ll learn about that story in a post soon.
+		- Step 1: Eat Bulletproof and Test Yourself.
+		- It is best to eat a strict Bulletproof Diet for at least a week or two beforehand to store extra nutrients. This also helps reset your hormonal status if you’ve been yo-yo dieting. You don’t have to do this, but it’s a good idea. You may find that eating The Bulletproof Diet is enough of a stimulus for weight loss, and that fasting is unnecessary. You also need to get used to digesting fat if you’ve been on a low fat diet.
+		- Testing: Test your liver enzymes, vitamin D levels, and blood lipids before the fast. These tests will be taken again after the fast. Go to your doctor if you feel really unwell at any time during this process.
+			- Liver & kidney function
+			- Vitamin D Levels (25OHD) while you’re at it
+			- Blood lipidsStep 2: Drink Bulletproof Coffee
+		- Bulletproof Coffee is a mix of brewed Upgraded Coffee Beans  (or other beans that meet the standards for toxins defined on the blog…about 92% of beans have toxins in them that affect your weight loss),  grass-fed butter, andpharmaceutical grade MCT oil. You can find the complete recipe here.
+		- Adding an extra tablespoon of MCT oil increases thermogenesis and ketone formation. (careful – if you’ve never had MCT oil, work your way up. Too much MCT oil can give you the runs. People who eat it normally, or who eat coconut oil, have no problems.)
+		- Drink as much Bulletproof Coffee as you like in the morning, subject to your caffeine tolerance. Do not eat anything else during the day – only about 500ml or less of Bulletproof Coffee. You can have another cup before 2:00 PM if you get hungry and the caffeine is not a problem. No coffee after 2:00 PM so you can sleep. Drink lots of water, always with a pinch of salt in it. (don’t waterboard yourself, just remember to stay hydrated). If you hate coffee or you’re caffeined out, you can use green tea. Or just eat some butter with sea salt sprinkled on it. Just eat no protein and no carbs.
+		- You will continue this process for five or six days. Then (see step 3) you have a food day.
+		- The fat on this program makes you feel MUCH better than you do on a fast or a low fat diet. Most people can continue to work (in office jobs) at normal levels. In fact, most people feel like rock stars, with even more energy than normal. This is not a diet to use while you’re working out excessively, although a short workout once a week right before you eat will help.
+		- This might seem extreme, but remember that you won’t be short on calories, you won’t get cold, or stupid, or cranky like you do on a low calorie diet. You’re just firmly telling your body that if it wants to survive (trust me, it does), then it has to learn to burn fat VERY well.
+		- You probably will need to take a capsule of Betaine HCL, a digestive aid, with your coffee to help your body digest and emulsify the fat you’ll eat.
+		- Supplements are not optional for safety reasons. Besides the branched chain amino acids, activated charcoal, and lipoceutical glutathione, almost everyone should be taking these supplements anyway.
+		- Step 3: Supplement
+		- 1000IU per 25 pounds of body weight of Vitamin D3. Adjust this dose based on your lab results. Target 70-90.
+		- 500mg of magnesium with 200mg of potassium at night.  Here’s a goodcapsule based form as an alternative to Natural Calm.
+		- 1 capsule of krill oil each day (with Bulletproof Coffee).
+		- 1 capsule (2000mcg) of vitamin K2.
+		- 1-2 grams (or more) of unbuffered vitamin C every 8 hours.
+		- 1tsp Lipoceutical Glutathione away from other fat, twice per day (very important for liver function)
+		- 5 grams of branched chain amino acids (BCAAs) twice a day.
+		- 2-10 capsules (560 mgeach) of activated charcoal 2-3 times a day. Take these away from other supplements or drugs, as charcoal binds all toxins, including pharmaceuticals. Too much is constipating.
+		- 1 tsp of sea salt in the morning in a large glass of water (if it gives you diarrhea, reduce to 1/2 or 1/4 tsp). This gives you a small burst of energy in the A.M. Repeat the salt throughout the day if it tastes good or makes you feel better. At least a pinch in each glass of water is important for electrolyte formation.
+		- If you ever feel tired or week, take up to 10-20 grams of L-Glutamine. Do not exceed 40 grams in a single day.
+		- A sample day might look like this:
+		- 6:00 AM: Wake up.
+			- 1tsp Lipoceutical Glutathione (up to 1 Tbs is better, but it gets expensive)
+			- Sea salt (in at least 16oz of water)7:00 AM:
+			- Drink Bulletproof Coffee.
+			- Vitamin D3
+			- Betaine HCL capsule
+			- 5 grams of BCAAs
+			- 1 gram of vitamin C.
+			- 1 capsule of krill oil.
+			- 1 capsule of vitamin K2.10:00 AM:
+			- 2-4 capsules of activated charcoal (taken away from other stuff)11:00 AM
+			- 20 grams of L-Glutamine.1:00 PM:
+			- 1/2 cup of Bulletproof Coffee with a betaine HCL capsule4:00 PM:
+			- 5 grams of BCAAs6:00 PM:
+			- 2-4 capsules of activated charcoal.7:00PM:
+			- Eat some butter (your body will tell you how much, at least 1 Tbs) with a betaine HCL capsule9:00 PM:
+			- 500mg of magnesium
+			- 200mg of potassiumWhat to Expect
+		- You will feel hungry sometimes, but you can eat more fat if you do. The first three days, you may need L-glutamine. If your body is really toxic, you may feel headaches or like you got the flu. It passes in a couple days. If you need painkillers, go for aspirin, NEVER Tylenol. Tylenol will hurt your liver and make it hard to detox because it depletes glutathione.
+		- Then, expect to feel really good, to not miss food, to have great energy, and for it to not be that hard to stick to.
+		- You will find that you lose up to 8 lbs quickly, which is your glycogen (and water) going down. Then you will plateau for a few days. I recommend you weigh-in only once per week, which will stop the emotional ups and downs. The mirror is your scale the rest of the time. The weight will come off in chunks after that. Nothing for a couple days, then sometimes 3-5 lbs in one day. It just keeps happening. But the mirror never lies.
+		- If you feel really unwell, stop the program, and call your doctor. Protocols like this one have been in use for a while (without the mTOR from coffee or the detoxing agents, which are 100% bulletproof additions) with good safety.
+		- Now the fun part…
+		- Step 4: Re-Feed after at least 5 days of eating only fat
+		- Over the past five or six days of this protocol, you’ve been in deep ketosis and burning only fat, but you haven’t had to be particularly calorie restricted. In order to reset leptin levels and prevent a large drop in energy levels, you need to re-feed. Contrary to our normal recommendations, you need to pound down the carbs. When it comes to normalizing leptin levels, fat has no effect, while carbs are going to send them sky high.
+		- This is not a “cheat day.” This does not give you license to drown yourself in sugar and frankenfoods. That will set you back several days. You need to eat as many sweet potatoes and other Bulletproof starchy tubers as you like. Eat a large amount of grass-fed meat, pastured eggs, and wild seafood for protein.
+		- Don’t think going low-carb on the overfeed day is going to improve the results. It will make them worse. You do not need to avoid fat, but you do need to work on making sweet potatoes, yams, and white rice the bulk of your diet for this one day. You can drown your sweet potatoes in butter or not; it doesn’t matter as long as you eat the potatoes.  It’s important to choose glucose based carb sources like sweet potatoes and Taro over fruit. Fructose is 10-20% more lipogenic (fat forming) during overfeeding than glucose.
+		- The re-feed occurs one out of every 6 or 7 days. Most people choose to fast for 6 days and save one day of the weekend for their re-feed day.
+		- What to Expect
+		- You will relish the day and you will eat like a king (or queen). You’ll sleep really well. When you wake up, you will have some water weight, and may gain a pound or two. Don’t worry, you shouldn’t have weighed yourself. Go back on the coffee and keep it up. Stop the program if you feel really unwell and call your doctor if necessary.
+		- Step 5: Retest
+		- Take the same tests as you did before the protocol.  Your HDL will probably be higher. Your LDL will probably be higher – sometime sky high – which is normal as you’re metabolizing years of toxins stored in your body. They drop over time but will not be excessively low. That’s not good for your brain or your hormones.
+		- How long do you continue this process?
+		- Until you’ve lost your desired amount of fat mass. Most people can reach 10-14% body fat on this protocol without a problem.
+		- If you need some extra motivation, read [this article](http://doubleyourgains.com/how-to-lose-276-lbs-in-one-year-by-not-eating-or-why-fasting-is-ok) about a man who fasted for 382 days and lost 275 pounds with no ill effects.
+		- There was a study where they took a group of men, decreased their calorie intake by 1,000 calories per day and also had them do weight-training 3x per week.
+		- The result? They lost up to 20 pounds of body fat and kept all their muscle mass.
+		- (Rice B, Janssen I, Hudson, R, Ross R. Effects of aerobic or resistance exercise and/or diet on glucose tolerance and plasma insulin levels in obese men. Diabetes Care 1999; 22: 684-691)
+		- As I’ve also mentioned before, a study was done as long as 12 weeks where people were on a VERY low calorie diet. Only 800, liquid, calories per day! But because these people were doing weight training 3x per week (a form of resistance training) – these people kept all their muscle mass.
+		- (Bryner RW, Ullrich IH, Sauers J, Donley D, Hornsby G, Kolar M, et al. Effects of resistance vs. aerobic training combined with an 800 calorie liquid diet on lean body mass and resting metabolic rate. J Am Coll Nutr. 1999;18:115-21.)
+		- Also interesting is that PSMF's are better at reducing hunger than conventional low-calorie diets. They are easier to adhere to, provide quick safe results, do not destroy LBM, and if done in short-term coupled with a slow reacquisition of normal eating habits will result in sustained weight loss and a normal metabolism. It appears healthy for anyone of any age to use (especially if you are obese).
+		- Hope you enjoy the read...I was bored
+		- 1:
+		- Consequences of modified fasting in obese pediatric and adolescent patients. I. Protein-sparing modified fast.
+		- Merritt RJ, Bistrian BR, Blackburn GL, Suskind RM.
+		- Abstract
+		- Sixteen obese patients 9 to 16 years of age were treated with a protein-sparing modified fast for four weeks in a metabolic unit, using lean meat as the sole calorie-containing nutrient. Total weight loss was 7.11 +/- 0.33 kg (mean +/- SEM). One-half of the patients achieved positive daily nitrogen balance by the fourth week. Cumulative N balance was -28.8 +/- 10.0 gm. Serum albumin concentration remained normal. Hemoglobin and hematocrit values were stable, but decreases in total lymphocyte (P less than 0.005) and neutrophil counts (P less than 0.01) were noted. Cell-mediated immunity (four patients) remained normal. Protein synthetic and catabolic rates (two patients) revealed only minimal changes. Cumulative N balance correlated (P less than 0.01) with mean fasting serum insulin concentration, which was related (P less than 0.005) to body fat mass. The PSMF has therapeutic potential for achieving safe, rapid weight loss in severely obese older children and adolescents.
+		- 2:
+		- American Journal of Clinical Nutrition, Vol 41, 540-544, Copyright © 1985 by The American Society for Clinical Nutrition, Inc
+		- ORIGINAL RESEARCH COMMUNICATIONS
+		- Anthropometric and calorimetric evidence for the protein sparing effects of a new protein supplemented low calorie preparation
+		- LF Van Gaal, D Snyders, IH De Leeuw and JL Bekaert
+		- A commercial protein sparing modified fast (PSMF) preparation has been evaluated for the protein sparing effects in 15 morbidly obese patients. During a 500 kcal preparation, given during a 6-week period, mean body weight and BMI decreased significantly. Total body fat decreased from 55.8 to 41.4 kg and lean body mass and arm muscle circumference (AMC) remained unchanged. Using indirect calorimetry and under the same degree of energy expenditure, carbohydrate metabolic consumption was significantly diminished (166 to 61 g/24 hr; p less than 0.001) but fat consumption was increased (116 to 155 g/24 hr; p less than 0.05) while the metabolic turn-over of protein was unchanged. This new presented PSMF preparation seems to present the typical properties of a protein sparing modified fast.
+		- 3:
+		- Less food, less hunger: reports of appetite and symptoms in a controlled study of a protein-sparing modified fast.
+		- Wadden TA, Stunkard AJ, Day SC, Gould RA, Rubin CJ.
+		- University of Pennsylvania School of Medicine, Department of Psychiatry, Philadelphia 19104.
+		- Abstract
+		- This study compared reports of appetite and symptoms in 28 obese subjects randomly assigned to either a 500 calorie protein-sparing modified fast (PSMF) or a 1200-kcal balanced diet. During the first comparison month, subjects consuming the PSMF lost significantly more weight and reported significantly less hunger than did subjects consuming the 1200 kcal diet. Similar results were obtained for the second month, but differences in hunger were not statistically significant. There were no significant differences between conditions in subjects' ratings of their preoccupation with eating or in their ratings of the acceptability or disruptiveness of their diets. PSMF subjects reported significantly greater problems with cold intolerance, constipation, dizziness, dry skin, and fatigue. These symptoms remitted completely, however, when PSMF subjects consumed a 1200-kcal balanced diet. There were no significant differences between conditions in subjects' reports of psychological functioning. Results are discussed in terms of the need for further research to identify the characteristics of PSMF which confer anorexia.
+		- 4.
+		- Short and long term effects of a very low calorie diet on resting metabolic rate and body composition.
+		- Vansant G, Van Gaal L, Van Acker K, De Leeuw I.
+		- Department of Endocrinology, Metabolism and Clinical Nutrition, University of Antwerp, Belgium.
+		- Abstract
+		- Short and long term effects of a protein sparing modified fast (PSMF) diet on resting metabolic rate (RMR) and body composition were investigated. During a period of 6 months on diet, RMR decreased significantly, both in absolute value and after correction for fat-free mass (FFM). Short term evaluation with this type of diet showed no decrease in RMR. The results from this study indicate that the fall in RMR associated with a PSMF diet (weight loss) is not due to an acute adaptation to the lower energy intake.Changes in FFM are important in the change in RMR, but other factors have to be involved.
+		- 5.
+		- Short and long term results of a progressive reintroduction of carbohydrates (PRCH) after a protein-sparing modified fast (PSMF).
+		- Bettens C, Héraïef E, Burckhardt P.
+		- Department of Internal Medicine, University Hospital-Chuv, Lausanne, Switzerland.
+		- Abstract
+		- Most studies report on a more than 50 percent weight regain 2-3 years after PSMF. We studied the effect of a progressive reintroduction of carbohydrates (PRCH) after a PSMF diet based on natural foods which delivered [800-1200](tel:800-1200) kcal, 1.2-1.4 g protein/kg of ideal weight, less than 40 g CHO/day. Among 1270 outpatients between 1981-1985, 87 (18M, 69F, age 41.3 +/- 13.8, BMI 32.9 +/- 5.1) followed both PSMF and PRCH. Follow-up was obtained for 57 patients, 1/3 by direct examination, 2/3 by letter. Weight remained stable during PRCH, in opposition to other reports. Best results during PRCH were found in patients with optimal compliance to PSMF, as measured by rate of weight loss (r = 0.284). Only about 40 percent of the obtained weight loss was regained 39.5 months after the treatment. Progressive reintroduction of carbohydrates prevents the expected weight regain after PSMF and even seems to have a positive effect on long term weight maintenance.
+		- 6.
+		- Effect of a protein-sparing diet on responses to exercise in obese subjects.
+		- Anton-Kuchly B, Ranganathan S, Potiron M, Louvet S, Charbonnel B, Krempf M, Ginet J.
+		- Department of Metabolic Diseases, Hotel Dieu, Nantes, France.
+		- Abstract
+		- We have studied muscular work efficiency and VO2 peak in seven obese individuals (body mass index: 38.9 +/- 5.8 kg.m-2) before and after twelve days of a low-caloric diet (protein-sparing modified fast) providing about 2460 kJ/day [~600calories]. Respiratory gas exchanges were measured at rest and during an exercise protocol through a rubber mask connected to a pneumotachograph and a mass spectrometer. A significant reduction in body mass was observed with the diet therapy (109 +/- 12 vs 105 +/- 14 kg; p < 0.02). No significant differences were observed in VO2 peak (1.78 +/- 0.32 vs 1.88 +/- 0.43 l/min, p > 0.05) and work efficiency (26 +/- 5 vs 24 +/- 4%, p > 0.05), after the diet protocol. It is concluded that the low-caloric diet used had no effect on muscular work efficiency.
+		- 7.
+		- Comparison of two hypocaloric diets in obese children.
+		- Figueroa-Colon R, von Almen TK, Franklin FA, Schuftan C, Suskind RM.
+		- Department of Pediatrics, University of Alabama, Birmingham.
+		- Abstract
+		- OBJECTIVE: To examine whether a protein-sparing modified fast diet and a hypocaloric balanced diet are safe and effective for children in an outpatient weight reduction program.
+		- DESIGN: Randomization of two groups to either diet, with follow-up at 14.5 months.
+		- SETTING: Physician or parent referral to outpatient program at Children's Hospital of New Orleans, La.
+		- PARTICIPANTS: Nineteen children, ranging in age from 7.5 to 16.9 years, weighing 45% to 131% more than the mean weight for age, sex, and height.
+		- INTERVENTION: During the first 10 weeks, 10 children were placed on a protein-sparing modified fast diet (2520 to 3360 J), and nine children and adolescents were placed on a hypocaloric balanced diet (3360 to 4200 J). Subsequently, all participants were placed on a hypocaloric diet; calories were increased from 4200 to 5040 J in a 3-month period and maintained for 1 year.
+		- SELECTION PROCEDURES: Children were assigned to one of two diets for the first 10 weeks according to their time of enrollment.
+		- MEASUREMENTS/MAIN RESULTS: Both diets produced significant weight loss during the first 6 months. However, the protein-sparing modified fast diet produced significantly greater changes in the percentage of overweight at 10 weeks (-30% vs -14%) and at 6 months (-32% vs -18%). At 10 weeks, a significant loss of adipose tissue with preservation of lean body mass occurred in the protein-sparing modified fast group. A transient slowing of growth velocity was noted at 6 months in both dietary groups compared with values at 14.5 months. Growth velocity approached normal levels at 14.5 months compared with standards for North American children. When dietary groups were combined, the initial mean blood pressure decreased significantly at all points in the study. The initial mean serum cholesterol value also decreased significantly at 10 weeks. No biochemical or clinical complications were observed.
+		- CONCLUSIONS: These hypocaloric diets appear to be safe and effective in the short-term management of pediatric obesity. However, these diets should not be used without close medical supervision.
+		- 8.
+		- Sustained depression of the resting metabolic rate after massive weight loss.
+		- Elliot DL, Goldberg L, Kuehl KS, Bennett WM.
+		- Division of General Medicine, Oregon Health Sciences University, Portland.
+		- Abstract
+		- To assess potential long-term effects of weight loss on resting metabolic rate (RMR), the RMRs of seven obese women were measured by indirect calorimetry before weight loss, during a protein-sparing modified fast, and for 2 mo while at a stable reduced weight. Body composition was also determined at each interval. RMR significantly decreased 22% (p less than 0.01) with initiation of the modified fast. RMR values during the modified fast and during the maintenance diet at stable reduced weight were not different and all were significantly lower than the prediet RMR. Loss of lean tissue could not account for the decrease because changes in RMR per fat-free mass paralleled the total RMR reduction. A sustained decrement in RMR accompanied weight loss and persisted for greater than or equal to 8 wk despite increased caloric consumption and body weight stabilization.
+	- DIET HACKING PITCH
+		-
+			- SURVEY
+				- Locations: In The Gym, walk up to anyone taking a break from a set. (need smaller notepad though or will look weird?
+					- Ealing gyms: Virgin active in ealing broadway centre, squash and fitness club; golds gym west ealing,
+					- Other
+						- westfield - gymbox inside, fitness first in other centre, genesis mind and body + K West Hotel down the road
+						- Park royal - hooks park royal
+						- Alperton - fitness first
+				- OPENER: Hi there
+					- I'm conducting some research about people's motivation for exercising, could I borrow you for just one minute?
+					- I'm conducting a survey about (flattering) gym motivation and success, Could I borrow a moment of your time?
+					- I'm investigating diet goals/successful dieting/ sucess with fitness goals
+					- Survey to find out the factors which determine
+					- The factors which determine whether you'll fail or succeed on a diet
+				- No sorry I can't
+					- Okay, that's fine, I just wanted to ask whether you'd be interested in learning how to lose weight without cardio or a hard strict diet where you have to give up ice cream, chocolate or anything
+				- What's your name?
+					- Which of these goals do you have - burning fat, getting strong and getting fit?
+					- Which goal is a higher priority for you: Burning fat OR building muscle?
+				- Are you at your ideal bodyfat %?
+					- How much weight would you like to lose?
+					- For how long have you been trying to burn fat (by going to the gym, trance words, healthy diet etc)
+					- What do you think is holding you back the most?
+				- How does not being at your ideal weight affect you?
+					- How much does this problem affect you? On a scale of 1-10
+					- In what ways does it affect you now and could potentially in the future
+					- What would you feel like if a year passed and you were exactly in the same place?
+				- On the other hand, what do you think about a system with which you'll lose about 2 kilo a month i.e. you'll reach goal weight by x month
+					- You're still allowed to eat ice cream and chocolate
+					- And you don't have to do any running or other cardio
+					- Negotiate: free until you lose first kilo
+			- My approach
+				- The normal bad approach to weight loss
+					- Exercise
+						- Running 1 mile burns 100 calories. A kilogram of fat contains about 7700 calories. This means you'd have to run almost 3 marathons to lose just a kilo!
+						- + sports drinks + appetite increased so you have big post-workout meals
+					- Willpower
+						- People use this to control dieting, swearing, posture
+						- But it's a real limited mental resource which runs out quickly then you go back to your old habits
+				- Diet Hacking comes from my experience as a Behavioural Analysis Therapist
+					- Most personal trainers know about nutrition, but not about how to motivate you
+					- How to make this a permanent life change, cos we're not looking for a quick fix here
+					- Small steps
+						- OVERWHELM
+							- 1 of the biggest problems with behaviour change is feeling overwhelmed
+							- You don't need someone telling you 17 different things you should be doing
+						- EASY
+							- So I'm all about easy, simple and effective step-by-step solutions
+							- long-term success over short spurts of motivation
+						- SEE PROGRESS
+							- ; You just need a plan, some direction and someone helping you to achieve
+							- See yourself improving in realtime; Not spinning your wheels
+					- Cheat Codes in Science
+						- Nutrition - order to eat food, why all calories aren't equal, how to alter the pattern of hormone release so you get hungry later in day, how to survive bingeing without fat gain
+						- Carb Overloading - you can learn that there are certain times you can carb overload safely
+						- Some will make your stomach absorb less calories, so you can eat til you're satisfied and not gain fat
+						- Negotiate: free til you lose first kilo
+			- Free Lifestyle Assessment (brainstorm)
+				- Job
+					- Hours per week + stress
+					- Snacks + meals (where, what, eat out or packed lunch)
+					- After work
+				- Socialising
+					- How often a week do you go out + what do you do
+						- How much eating out
+						- How much drinking alcohol
+							- How many units + what drink + late night food?
+				- Home
+					- Do you live alone or with friends or family?
+						- Who does shopping?
+						- How much do you typically spend
+					- Drinks
+					- Cooking
+					- Shopping
+					- Eating
+						- What's the first thing you typically eat + what time
+						- What's the last thing you typically eat + what time
+						- How many meals a day
+						- How much snacking on scale of 1-10
+				- Motivation
+					- What's your current weight in kg + waist/thigh/hip size + bf %
+						- Have you got a camera or phone on your camera?
+						- HWK 1: Take a picture of your body from front, back and sides (full view, in your undies),
+							- + Put it somewhere you'll see often eg mirror, wall, fridge
+							- Use a camera timer or a friend
+					- Ideal weight in kilograms
+						- Who has your ideal body? What celebrity, etc
+						- HWK 2: Print out a picture of your ideal body and place it next to current self
+					- Accountability/stakes - Make it a game
+						- HWK 3: Find out about any friends who want compete with you to lose weight (total weight lost, total inches lost or total waist inches lost)
+							- FB group - trashtalk, gmail
+							- Precommitment
+					- I prefer to communicate over a variety of channels
+						- Sometimes we'll need to discuss things in person
+							- which may in the gym, the supermarket or other eateries to show you all the factors which are influencing whether you get thin or fat
+						- Other times you can simply update me via phone, text or email
+						- To keep it simple I charge a flat rate of £30/hour with packages e.g. 5 hours is £150; 11 hours for £300; 23 hrs £600
+						- More if you want to precommit yourself further to success.
+							- I'll be giving you homework exercises, check in with previous homework, monitor your progress, implement new habits and problem-solve any obstacles you encounter
+							- Our correspondence will be very flexible, but at least on a weekly basis I'll checking your progress
+							- It may also be more frequent during the start as I get to know you better and identify the route causes of weight gain, major obstacles and also as you implement more habits
+							- Also feel free to call me whenever you have a moment of weakness or any other problems you'd like to share
+							- This includes all time writing emails and time spent examining your lifestyle to determine the best intervention
+						- BACS transfer - Aaron Sollesse with Barclays Bank plc, acc no 30947377, sort code 20-27-48
+						- Paypal as a gift - [aaronsollesse@gmail.com](mailto:aaronsollesse@gmail.com)
+						- Negotiate: Free until you lose first kilo
+			- SECOND SESSION
+				- Accountability online
+					- HWK 1: Join www.stickk.com (or send them this hwk later as it's a big piece)
+						- If you're struggling during the week to complete homework or stick to habits, call me
+						- Can also bet with friends on here
+						- Also bet money to a friend, foe, charity or anti-charity (send at end of commitment contract); or American Nazi Party
+							- Has to be an amount painful to lose e.g. 1% of annual pre-tax income
+						- HABIT 1: Update Stickk every week (have I completed all HWK and tried my best to stick to my habits)
+					- HWK 2: Put pic online eg posterous.com, flickr.com,
+						- [www.bodybuilding.com/superhuman](http://www.bodybuilding.com/superhuman) bodyspace
+						- [www.dailyburn.com/superhuman](http://www.dailyburn.com/superhuman)
+				- HWK 2: Buy a pound of fat replica - put in fridge/freezer
+				- Make eating conscious
+					- HABIT 2: Flash diet - take a pic of all food before eating it (easier than food diary) eat.ly
+					- Measurement + goals
+					- Or eat infront of a mirror (not a TV)
+				- Choice Architecture
+					- Loss aversion
+					- + Rewards (immediate pref)
+						- eg internet, tv
+					- Pre-commitment
+					- Contextual reminders e.g. checkmark, sticky notes, alarms
+				- Role models (attainability) eg obese success stories
+					- There are losers (I can do better)
+					- Against someone (compete for total Inches lost)
+				- Make it small + temporary
+					- You need the habit, not the result
+					- What's the dream come true for you - SMART goal
+			- DIET
+				- 1 head of lettuce a day
+				- ((66a2d2f5-f13c-43a5-a0be-dc05fa5ace57))
+					- Use caffeine/yohimbine
+					- feel real hunger, not socially set times
+				- Increase protein (six-pack tax - tax to stay lean) at every meal
+					- Breakfast - whole eggs, lentils and spinach or tuna OR protein shake with water
+					- egg whites, chicken breast/thigh, beef, fish, pork
+					- No domino foods (you can't eat one) e.g. nuts
+				- Increase vegetables (eat the same meals)
+					- Spinach, kale, cauliflower, lettuce, cabbage
+					- Asparagus, broccoli, green beans, peas
+					- Legumes - lentils, beans,
+				- Flavour
+					- No cream based (ketchup, mayo
+					- hot sauce, garlic powder
+					- Spices
+					- Stir fry, thai, mexican
+				- No fruit
+				- Don't drink calories
+				- Eating out
+					- I'll have more vegetables instead of 'carb'. If I have to pay extra, that's fine.
+				- Cooking
+					- frozen/canned food for first few weeks if you dont normally cook
+					- don't watch things whilst you eat, bright lights
+				- Shopping
+					- Just look for meat/fish/eggs/nuts/seeds + vegetables
+					- No dairy/fruit/carbs
+						- Fruit - High amount of calories, especially tropical, citrus, bananas
+							- Fructose increases iron absorption - toxic
+						- Dairy - Very insulinogenic
+				- CARB DAY
+					- Write down cravings during week on a list
+					- Pref eat out
+					- Throw away bad food at end of the day
+			- Supplements
+				- You'll lose water + electrolytes, so potassium 4.7g, calcium 1g and magnesium 0.4g
+				- Increase insulin sensitivity - PAGG
+				- Speed up gastric emptying - caffeine or yerba mate
+				- Cissus quadrangularis 2.4 x 3 times/day - anti obesity and anabolic
+				- EC
+				- PAGG
+				- chromium policinitate
+				- Cold showers
+			- Exercise
+				- You have less than 10% of the testosterone of men
+				- HIT brings glucose transporters to surface of muscle cells
+	- Effective Communication In Exercise Instruction | High Intensity Training by Drew Baye
+		- [http://baye.com/effective-communication](http://baye.com/effective-communication)/
+	- EMAIL PITCHING
+		- EMAIL PITCHING
+			- My solution + USP is:
+				- Easy and simple step-by-step solution
+				- Practical, actionable steps
+					- Little theory & scientific evidence (other than to convince them of knowledge - i.e. give them what they want + what they need)
+			- My opening line in an email to them
+				- Here's How to Finally Stop X
+				- How to Stop X Once and For All
+				- How to Finally Do X
+		- Hello there,
+		- I just saw your craigslist ad looking for a personal trainer. I'm a Behavioural Analysis Therapist currently which involves me helping clients replace habits in their lives, of which fat loss is a common goal. I've had a lot of success through my methods which involve simple, actionable steps to make fat loss extremely easy with no need to exercise or stop eating chocolate.
+		- I'd be happy to discuss my approach and a suitable coaching program which works best for you and your partner. I'm available on Monday for a quick consultation, what time works best for you?
+		- A little about me: I'm a Psychology graduate, 22 and living in London.
+		- Attached is a recent picture of me.
+		- Look forward to hearing from you soon!
+		- Aaron
+		- DATELOCATIONMSG
+		- Test 2 a day with dif headlines/body?
+			- [http://curezone.com/forums/f.asp?f=536](http://curezone.com/forums/f.asp?f=536)
+			- [http://www.disabilitysanctuary.com/forum/index.php?forums/housebound-agoraphobia-forum.9/](http://www.disabilitysanctuary.com/forum/index.php?forums/housebound-agoraphobia-forum.9/)
+			- [http://www.experienceproject.com/groups/Have-Social-Phobia](http://www.experienceproject.com/groups/Have-Social-Phobia)
+			- [http://www.medhelp.org/forums/Social-Anxiety/show/830](http://www.medhelp.org/forums/Social-Anxiety/show/830)
+			- [http://www.mdjunction.com/forums/social-anxiety-disorder-discussions/general-support](http://www.mdjunction.com/forums/social-anxiety-disorder-discussions/general-support)
+			- [http://www.anxietytribe.com/forum](http://www.anxietytribe.com/forum)
+			- [http://www.thebeatingsocialanxietytogethergroup.co.uk/messages/boards/forum/3038892?forumId=3038892](http://www.thebeatingsocialanxietytogethergroup.co.uk/messages/boards/forum/3038892?forumId=3038892)
+			- [http://www.socialanxietysupport.com/](http://www.socialanxietysupport.com/)
+			- [http://forums.lifeshaping.co.uk/](http://forums.lifeshaping.co.uk/)
+			- [http://forums.psychcentral.com/](http://forums.psychcentral.com/)
+			- [http://www.phobics-awareness.org/forum/forum.php](http://www.phobics-awareness.org/forum/forum.php)
+			- [http://anxietyforum.net/forum/forum.php](http://anxietyforum.net/forum/forum.php)
+			- [http://www.psychforums.com/](http://www.psychforums.com/)
+			- [http://www.social-anxiety-community.org/db/index.php](http://www.social-anxiety-community.org/db/index.php)
+			- [http://www.mentalhealthforum.net/forum/forum.php](http://www.mentalhealthforum.net/forum/forum.php)
+			- [http://www.christianforums.com/f399/](http://www.christianforums.com/f399/)
+			- [http://www.anxiety-central.com/index.php?](http://www.anxiety-central.com/index.php?)
+			- [http://www.panicsurvivor.com/index.php?option=com_kunena&Itemid=84](http://www.panicsurvivor.com/index.php?option=com_kunena&Itemid=84)reddit depression
+		- accountability, fears, credibility, vulnerability - lifestyle design (after behavioural interventions) hobbies e.g. martial arts, gym, running every day, etc salsa, group classes like cooking, painting
+		- HEADLINE: Why medication will never solve your problem
+		- I used to be a total social outcast.
+		- Only a few short years ago, I spent so much time inside that in a year I accumulated over 2000 hours playing the popular MMORPG Guild Wars (over 6 hours on average a day!). I used to have no friends, I was THE definition of a skinny loser nerd but now that's changed (visit [http://www.flickr.com/photos/aaronsollesse/8571793640/in/photostream/](http://www.flickr.com/photos/aaronsollesse/8571793640/in/photostream/) to see my transformation).
+		- As you can see, I don't look the same. I don't feel the same as well and now my life is 1000x better. I've got a great group of close friends that I've known for many years, I've had many girlfriends and my social confidence is now so high that I often just walk up to meet people on the streets!
+		- I'm not saying telling you all of this to brag, I'm telling you because I have found the solution to your problem.
+		- The thing is, society doesn't really care about you. It's a harsh truth, but lend me your ear for the moment. It's far too expensive to pay for the treatment that will give you the deep, core internal change you need over simply giving you some prescription meds and hoping for the best.  And I'm sure you all already know in your heart of hearts that prescription medication is not a long-term solution - it's like a bandaid over a bullet wound, there is no core internal change but instead surface-level removal of symptoms. Plus there's the side effects of loss of libido, liver damage, etc.
+		- My method for real internal change comes from my background as an experienced ABA therapist, a bottom-up approach where changing behaviour is emphasised and leads to belief change. Compared to cognitive therapy belief modification, behaviour is extremely easy to change - just look at how the huge world of marketing can trick you into buying but then regret your purchase later. Having an empowering experience is far more useful than reciting affirmations all day and the quickest way to change beliefs is through testing them.
+		- The journey I've gone through in my personal and professional life has taught me so much and I want to help people on their journey into the social world.
+		- This message is for those out there who have tried to solve the problem by themselves to no avail and want to get over whatever is holding them back in a judgement-free zone.
+		- If anyone feels that they've been let down by the alternative forms of treatment and wants to finally fix their social anxiety, add me on Skype (AaronSollesse) and we can talk about simple, practical steps to improve your condition.
+		- With you in wellness,
+		- Aaron
+		- P.S. I've attached a scientifically-validated exercise which is proven to increase happiness and decrease anxiety, I hope you find some value in it. Speak soon!
+		- Small steps - quantitative measurement of confidence and measuring improvements #
+		- Extended DISC psychometric profile report provided to each client
+		- HWK: Set max 1 exercise/habit a week e.g. 3 Blessings exercise (email me yours? nah time/mind consuming), 20min meditation, social freedom
+		- The easier you make it for a potential client to work with you, the greater the likelihood that she will. - make it easy for them to test drive you at different levels of risk
+		- Risk-Free, No-Obligation FREE Coaching Clarity Session!
+		- Can set my value though with pricing eg $250 hour
+		- [http://www.coach-and-counsellor-psychologist.co.uk/servicesandfees.html](http://www.coach-and-counsellor-psychologist.co.uk/servicesandfees.html)
+		- from £60-85
+		- Instead use blocks eg minimum 10 hours
+		- Qualify if they are a good fit for YOU with application
+		- Meeting - coffee shop/hotel lobby
+		- over months, avg 1/2 times a week, £50+
+		- Offer 45m free life transformation and short/medium/long term goal setting
+		- OVER-DELIVER
+		- TIERS
+			- Skype/phone call
+			- Done-for-you solution - texting/calling regularly to make sure you are doing it, setup a video link
+		- 30-45m phone call and some email x 4 / month
+		- PACKAGES
+		- 1) Minimum cost: £xxx with paypal account, make it easy for them (not have to email you for a quote)
+		- cost for a initial consult (give a cool fancy brand name)
+		- create scarcity by charging higher prices - also brings in lower hassle clients, who are more likely to refer you (if you do a good job) and req less hours + clients
+		- INTAKE PACKAGE
+		- The intake package is a package of materials and processes that you provide to your client when they first sign up for coaching.  This can include assessments and paperwork for your coaching client to fill out (kind of like the stuff you fill out on a clipboard when you first visit a new doctor), but it can also include a full binder of material about you and your coaching, as well as added supplies that they would need to get the most out of your life or business coaching (think of the informational binder that many nice hotels provide when you show up in your hotel room).
+		- Charge a fee for it. It educates them on what coaching is, makes them easier to coach as they know my accomplishments and how to be a good client + expectations
+		- Over deliver on value and assess them with numerous forms.
+		- Charge an intake fee - they are excited at this stage and compliance is high. Recoups cost of intake package and free session.
+		- I can give an initial 30 min free coaching sessio
+		- I also give phone/skype/VIP email/in-person (if in London)Speak to me!
+		- For a free 30 minute consultation by phone, please email me at . to book a time that suits us both.
+		- * Online, email or telephone life coaching available
+		- * Face to face life coaching available
+		- I offer a free, no-obligation consultation that will allow you to experience coaching and decide whether my approach is right for you.  Tailored sessions and packages are then available according to your particular requirements.
+		- Whether or not you choose to have further coaching, this complimentary consultation will help you gain clarity over your circumstances and guide you towards the outcome that you are looking to achieve.
+		- Monthly: Face-to-face/Skype
+		- • £300 per month - 180 mins (3 hours) Suggested sessions 3 x 60 mins
+		- • £200 per month - 120 minutes (2 hours) Suggested sessions 2 x 60 mins
+		- • £100 per month - email coaching with a guaranteed email reply within 48 hours. Most suited to previous clients who require continued coaching after one-on-one or group coaching ends.
+		- Packages
+		- Short term coaching
+		- £425 for 300 minutes (5 hours)-Session frequency and length tailored to client needs
+		- Long term coaching
+		- £599 for 540 minutes (9 hours)-Session frequency and length tailored to client needs
+		- This post about why I coach explains why it’s so fun to help people improve things like:
+			- Nutrition for cognitive performance
+			- Brain & memory upgrades for everyone
+			- Stress management for executives & performers
+			- Career & fundraising strategies for entrepreneursIf you’ve read much of this blog, you know I’m at the top of my game – I’m a senior executive for a large company, 100k people visit my blog each month, and I’m a successful Silicon Valley entrepreneur and angel investor. It’s important to me that I share the things that helped me get here.
+		- Unfortunately, until my ABC News-inspired life as a media figure calms down, it’s necessary to charge more than I’d like for personal coaching to reduce the number of inquiries. My two young kids thank you in advance, and I apologize for not doing more…yet.
+		- Please make best use – for free – of the forum and the comments on this blog – the collective knowledge of our audience far exceeds mine, and the comments are monitored by me and two people I’ve trained specifically to help scale this knowledge.
+		- It is unfair to price coaching out of reach to the people I can help the most in the least amount of time: young people. For that reason, I am a mentor for the Thiel Foundation’s 20 Under 20 program. Also, once or twice a month I will provide ability-to-pay based coaching  for young entrepreneurs or special situations. Use the contact form to explain yours and I will reach out you are selected. If you don’t hear from me, I didn’t choose you, and I’m sorry there wasn’t more time.
+		- Coaching works better when you pay something for it so your unconscious will value the information you receive. To date, I have never been paid from revenue from the blog; it all goes back into operating the blog and paying the team for more quality research.
+		- Coaching rates:
+			- Half hour (first time) $250
+			- Half hour (repeat) $300
+			- Full hour $500Before purchasing your coaching session, you must read , accept, and understand our full disclaimer.
+		- After your purchase you’ll be redirected to a form where you can describe your goals for the session and submit scheduling info.
+		- Important Details:
+			- Coaching is subject to availability
+			- Appointments are usually scheduled 1-3 weeks in advance and may be moved.
+			- After 9:30 PM Pacific time is preferred
+			- Sessions can be held sooner if your schedule is more flexibleFor questions about coaching, please fill out this form.
+		- Take 100% payment upfront
+		- Charge according to the value you bring to the table. At least 10%.
+		- "Positioning" by Al Ries and Jack Trout for more enlightenment on this subject. Read the books on freelancing by Bowerman, Bob Bly, or Steve Slaunwhite and you'll see a different way to get clients that actually have budgets
+		- How Much To Charge?
+		- "Prices don't go up over time... they go up over results."
+		- - Vin Montello
+		- [The Key To Getting The Fees You Deserve - The Michel Fortin Blog](http://michelfortin.com/key-fees-deserve/)
+		- [How much do you charge for writing video script?](http://www.warriorforum.com/copywriting-forum/271367-how-much-do-you-charge-writing-video-script.html)
+		- [How Much Should Be My Rates?](http://www.warriorforum.com/copywriting-forum/424180-how-much-should-my-rates.html)
+		- [How much should I charge? - Warrior Forum](http://www.warriorforum.com/copywriting-forum/317800-how-much-should-i-charge.html)
+		- [How Much To Pay a Copywriter?](http://www.warriorforum.com/copywriting-forum/79253-how-much-pay-copywriter.html)
+		- [How Much Are the Elite Copywriters Now Charging?](http://www.warriorforum.com/copywriting-forum/507334-how-much-elite-copywriters-now-charging.html)
+		- [Copywritting?](http://www.warriorforum.com/copywriting-forum/123341-copywritting.html)
+		- [One-Night-Stand Copywriters, and Moving the "Cheap" Line.](http://www.warriorforum.com/copywriting-forum/157533-one-night-stand-copywriters-moving-cheap-line.html)
+		- [Why Not to Charge $197 for your sales copy... Or pay it, either.](http://www.warriorforum.com/copywriting-forum/86603-why-not-charge-197-your-sales-copy-pay-either.html)
+		- [What to charge?](http://www.warriorforum.com/copywriting-forum/588677-what-charge.html)
+		- [How Much Do Copywriters Make?](http://www.warriorforum.com/copywriting-forum/437811-how-much-do-copywriters-make.html)
+		- [Help With Report Charge](http://www.warriorforum.com/copywriting-forum/75858-help-report-charge.html)
+		- [WarriorForum - Internet Marketing Forums - Good reasons to charge ...](http://www.warriorforum.com/copywriting-forum/686907-good-reasons-charge-more-not-less-your-copywriting-expertise-print.html)
+		- [Landing page price?](http://www.warriorforum.com/copywriting-forum/33949-landing-page-price.html)
+		- [Copywriting novice! Any help would be much appreciated](http://www.warriorforum.com/copywriting-forum/609467-copywriting-novice-any-help-would-much-appreciated.html)
+		- [How did you get your first few clients, and break into this ...](http://www.warriorforum.com/copywriting-forum/631358-how-did-you-get-your-first-few-clients-break-into-industry-age-old-question-i-know.html)
+		- [How much can I expect to make?](http://www.warriorforum.com/copywriting-forum/367343-how-much-can-i-expect-make.html)
+		- [What Would You Charge for Just a Squeeze Page?](http://www.warriorforum.com/copywriting-forum/175229-what-would-you-charge-just-squeeze-page.html)
+		- [What are copywriting rates in Uk ?](http://www.warriorforum.com/copywriting-forum/623919-what-copywriting-rates-uk.html)
+		- [How Much For An A/R Sequence?](http://www.warriorforum.com/copywriting-forum/33343-how-much-r-sequence.html)
+		- [Average price for squeeze page/copywriting](http://www.warriorforum.com/copywriting-forum/340247-average-price-squeeze-page-copywriting.html)
+		- [What should I charge for a copywriting critique?](http://www.warriorforum.com/copywriting-forum/85991-what-should-i-charge-copywriting-critique.html)
+		- [New Copywriters... Dealing With Tricky Customers... Paypal Chargebacks](http://www.warriorforum.com/copywriting-forum/314368-new-copywriters-dealing-tricky-customers-paypal-chargebacks.html)
+		- [How much is the average rate per word for a writer to earn decently?](http://www.warriorforum.com/copywriting-forum/68201-how-much-average-rate-per-word-writer-earn-decently.html)
+		- [resources for freelancing - how to get work and what to charge](http://www.warriorforum.com/copywriting-forum/25998-resources-freelancing-how-get-work-what-charge.html)
+		- [Attention: eBook writers looking for a copywriter to write a sales ...](http://www.warriorforum.com/copywriting-forum/552430-attention-ebook-writers-looking-copywriter-write-sales-letter-promoting-their-ebook.html)
+		- [Why Are Copywriters So Expensive? - Page 2](http://www.warriorforum.com/copywriting-forum/257947-why-copywriters-so-expensive-2.html)
+		- [How to start copywriting business up?](http://www.warriorforum.com/copywriting-forum/564031-how-start-copywriting-business-up.html)
+		- [How much does it cost to get a top copywriter to seriously ...](http://www.warriorforum.com/copywriting-forum/107385-how-much-does-cost-get-top-copywriter-seriously-critique-sales-page.html)
+		- [Copywriting at No Charge - THIS Time](http://www.warriorforum.com/copywriting-forum/215676-copywriting-no-charge-time.html)
+		- [Copywriting: a "recession-proof" business?](http://www.warriorforum.com/copywriting-forum/583140-copywriting-recession-proof-business.html)
+		- [The Mentality of Choosing Your Price Point](http://www.warriorforum.com/copywriting-forum/632455-mentality-choosing-your-price-point.html)
+		- [Rate my press release, please](http://www.warriorforum.com/copywriting-forum/649831-rate-my-press-release-please.html)
+		- [On an average, how much time do you take to write a good copy...](http://www.warriorforum.com/copywriting-forum/131915-average-how-much-time-do-you-take-write-good-copy.html)
+		- [IF I hired John Carlton....](http://www.warriorforum.com/copywriting-forum/269220-if-i-hired-john-carlton.html)
+		- [Offshoot from the $3000 thread-reasonable price for new copywriter](http://www.warriorforum.com/copywriting-forum/174135-offshoot-3000-thread-reasonable-price-new-copywriter.html)
+		- [How I've been consistently doubling, tripling, and quadrupling ...](http://www.warriorforum.com/copywriting-forum/638619-how-ive-been-consistently-doubling-tripling-quadrupling-conversion-rates.html)
+		- [Why You Should NEVER Hire a Cheap Copywriter](http://www.warriorforum.com/copywriting-forum/99417-why-you-should-never-hire-cheap-copywriter.html)
+		- [Does anyone make a living writing for Elance or Guru?](http://www.warriorforum.com/copywriting-forum/39464-does-anyone-make-living-writing-elance-guru.html)
+		- [WarriorForum - Internet Marketing Forums - Ramblings](http://www.warriorforum.com/copywriting-forum/690728-ramblings-print.html)
+		- [Wanted! Best Warrior Copy Writer](http://www.warriorforum.com/copywriting-forum/581499-wanted-best-warrior-copy-writer.html)
+		- [Finding a copywriting niche](http://www.warriorforum.com/copywriting-forum/499589-finding-copywriting-niche.html)
+		- [Would Like a Critique of First Draft Sales Letter](http://www.warriorforum.com/copywriting-forum/588702-would-like-critique-first-draft-sales-letter.html)
+		- [Where to Find Clients that Will Pay a Respectable Rate for Writing](http://www.warriorforum.com/copywriting-forum/273050-where-find-clients-will-pay-respectable-rate-writing.html)
+		- [What is a fair price?](http://www.warriorforum.com/copywriting-forum/358156-what-fair-price.html)
+		- [How much should I budget for a decent sales page?](http://www.warriorforum.com/copywriting-forum/46716-how-much-should-i-budget-decent-sales-page.html)
+		- [Critique of copy for a post card mailing](http://www.warriorforum.com/copywriting-forum/473363-critique-copy-post-card-mailing.html)
+		- [Specializing in writing autoresponder copy?](http://www.warriorforum.com/copywriting-forum/116131-specializing-writing-autoresponder-copy.html)
+		- [How much is my writing worth?](http://www.warriorforum.com/copywriting-forum/301601-how-much-my-writing-worth.html)
+		- [Copywriter Pricing Guide...](http://www.warriorforum.com/copywriting-forum/434528-copywriter-pricing-guide.html)
+		- [Starting copywriting](http://www.warriorforum.com/copywriting-forum/713123-starting-copywriting.html)
+		- [How Can I Charge For Something That People Expect For Free?](http://www.warriorforum.com/copywriting-forum/3250-how-can-i-charge-something-people-expect-free.html)
+		- [Contract for Royalties Resulting from Copy?](http://www.warriorforum.com/copywriting-forum/347584-contract-royalties-resulting-copy.html)
+		- [The Most Expensive Piece of Copy](http://www.warriorforum.com/copywriting-forum/635746-most-expensive-piece-copy.html)
+		- [Need tips on how 'not' to sell your work for pennies !](http://www.warriorforum.com/copywriting-forum/207959-need-tips-how-not-sell-your-work-pennies.html)
+		- [WarriorForum - Internet Marketing Forums - Disturbing trend in the ...](http://www.warriorforum.com/copywriting-forum/655787-disturbing-trend-copywriting-world-print.html)
+		- [What is the cost of hiring a copywriter](http://www.warriorforum.com/copywriting-forum/399578-what-cost-hiring-copywriter.html)
+		- [I Earnt $32 for 1.5 Hours Work](http://www.warriorforum.com/copywriting-forum/72167-i-earnt-32-1-5-hours-work.html)
+		- [Any tips on hiring copywriters?](http://www.warriorforum.com/copywriting-forum/672686-any-tips-hiring-copywriters.html)
+		- [8 Habits of Conversion-Focused Copywriters](http://www.warriorforum.com/copywriting-forum/647290-8-habits-conversion-focused-copywriters.html)
+		- [Copywriting Skill: How to Measure It](http://www.warriorforum.com/copywriting-forum/644010-copywriting-skill-how-measure.html)
+		- [For newer copywriters, a few bits of advice for getting paying ...](http://www.warriorforum.com/copywriting-forum/642524-newer-copywriters-few-bits-advice-getting-paying-clients.html)
+		- [How to command the fees you deserve as a pro copywriter](http://www.warriorforum.com/copywriting-forum/651683-how-command-fees-you-deserve-pro-copywriter.html)
+		- [Help estimating copywrite job](http://www.warriorforum.com/copywriting-forum/103041-help-estimating-copywrite-job.html)
+		- [SoThe 7 sacred RULES every copywriter must follow.](http://www.warriorforum.com/copywriting-forum/441460-sothe-7-sacred-rules-every-copywriter-must-follow.html)
+		- [My Interview With Craig Garber...](http://www.warriorforum.com/copywriting-forum/160208-my-interview-craig-garber.html)
+		- [CALLING: All Copywriters Who DEMAND Royalty Payments Tied to Their ...](http://www.warriorforum.com/copywriting-forum/610884-calling-all-copywriters-who-demand-royalty-payments-tied-their-results.html)
+			- REPUTABLE and your services make a big difference to their bottom line
+			- they have worked with writers
+		- - Seek referrals
+		- Recommendations
+		- Here’s what some of my clients had to say about my service…
+		- “I would very highly recommend Northword Writing and Jeff for any project involved with writing content material. I would rate them 5+++++++.”
+		- “Outstanding professionalism and very fast service!”
+		- Don’t spend days on your description, because most clients will judge you based on what you write in your proposal first. Still, spend at least an hour or so crafting a strong message that allows potential clients to get to know you a bit more.
+		- Your description should do several things:
+		- · Catch attention.
+		- · Immediately point out your strongest points.
+		- · Identify yourself as credible.
+		- · Build value in you as a freelancer.
+		- · Distinguish you from anyone else.
+		- Before beginning to write your description, it’ll help to sit down and come up with a list of your accomplishments. These can be anything that make you sound more credible. You can use these parts of your description in your profile, as well as in your proposals.
+		- If you don’t have previous professional writing experience, try to come up with anything that’ll improve how credible you sound. For example:
+		- · If you had straight A’s in English
+		- · If you have debate experience
+		- · If you’ve been published in your college newspaper (you could say you’re a published author)
+		- · If you’ve trained people in previous jobs
+		- · If you’ve worked for prestigious companies
+		- · Previous client or employer testimonials or comments. Even if it’s not about writing, but about your character – E.g. “Jane is one of the most hardworking people I’ve ever met.”
+		- · If you’ve studied literature for personal enjoyment
+		- · If you’ve ever been featured in a paper or local radio – Again, doesn’t have to be writing related. Just helps build an image of credibility.
+		- If you really truly can’t write a description that builds credibility, you can always just undercut all the first world country writers. You’ll have to work harder for less money, just to build credibility. Do that for your first $500 and you’ll then be able to use your experience to increase your bids up to the market rates (and beyond.)
+		- Note that your profile in the beginning can just be a couple of paragraphs long. Work on it and add to it over time.
+		- It also helps to look at high paid contractors and their profiles. I noticed that a lot of them had nothing fancy.
+		- Add all of your academic information with your major and relevant coursework.
+		- Add each of your previous work experiences, your responsibilities, and how you added value to the company for each of these placements.
+		- You can easily add “author” to your name. Just write an ebook — it only has to be 20-30 pages on a topic you know about. If it’s in the niche you specialize in in writing, then all the better. Voila! You’re an author.
+		- [http://72tips.com/2011/how-to-become-an-award-winning-writer/](http://72tips.com/2011/how-to-become-an-award-winning-writer/)
+			- BREVITY - clearly and concisely introduce yourself; 1-2 sentences
+			- Specific Praise - easy way to provide value, "I liked x because of ABC"
+			- Credibility - name drop so they quickly know where you've been featured or who you know
+			- Add Value - how can you help such as connections, e.g. I notice you feature x, I'm one and I also know a lot of others so if you ever need an introduction so let me know" PREFERABLY choose value for them + give before you ask for anything
+			- Do Your Research - why are you/their products or services a good fit, relate to their audience/values/story
+			- Make It Easy - provides specific instructions, text and images; give your number/location etc
+		- Starting With a Template
+		- Start with a template. Your template will make up the bulk of your proposal’s space. It should cover your most compelling points as a write. For example, this is what I’m currently using as my template:
+		- **********
+		- Tested TOP 5% - 10% in eLance tests
+		- I've been writing high converting, high ranking copy for the last 5 years. My clients have included:
+		- · Trainers in Anthony Robbins's organization.
+		- · Bryan Franklin, sales trainer and executive coach to Fortune 500 companies like Apple, Google, Cisco and Logitech.
+		- · A Washington real estate broker whose firm has handled over $120 million in real estate sales since 2006 and scored in the top 1% in sales volume in 2011.
+		- · Demand Media, a NYSE listed company currently valued at over $500 million dollars.
+		- · Plus many others. I've written well over 3,000 high quality articles throughout my career.
+		- Delivery time is 72 hours.
+		- **********
+		- Spend some time brainstorming your most compelling points and put together a concise yet compelling snippet that you can use in the body of your proposals.
+		- Again, I chose to highlight my writing experience because it’s my strongest point. However, if you don’t have writing experience, don’t despair. I didn’t either when I first started. I just highlighted other traits, such as having studied marketing and previous jobs I’d worked, to make my services look as presentable as possible.
+		- Graduated with 2:1 in Bsc Psychology. Currently a Behavioural Analysis Therapist and copywriter.
+		- Written for x x x
+		- Specialise in habit-related article writing eg health, success, etc
+		- Run email marketing campaigns with over 1000+ subscr
+		- Custom short paragraph or two at the beginning relating to job eg  relevant exp, their requirements etc not cookie cutter
+		- Finish with terms and conditions eg delivery time and pricing
+		- - show personality, highlight strengths/USP
+		- - write relevant samples for first few clients,
+		- it’s not always bad to work for free! I’ve done it many times. The key is (1) working for free strategically, and (2) always communicating why you’re doing it.
+		- Example:
+		- You work for free to build your portfolio so that when you charge, you’ll have something to show prospects. Ramit’s judgment: Good
+		- You work for free because you think that later you will magically be able to charge the same client $100. Ramit’s judgment: You are dumb
+		- You work for free because you know that the person has a huge network, and if you impress him, he will introduce you to all his friends. You make this explicitly clear up front. Ramit’s judgment: You are very savvy
+		- A good phrase to use when working for free:“My normal rate is $55/hour, but since I really like what you’re doing, I’m willing to waive my fee for the first 2 weeks. Assuming I do an extraordinary job, after two weeks I’d like to discuss my normal rate. Does that work for you?”
+		- [http://www.slideshare.net/choehn/recessionproof-graduate-1722966](http://www.slideshare.net/choehn/recessionproof-graduate-1722966) - selecting and choosing great clients
+		- Find out exactly the scope of work in writing
+		- > later you can 'prove' you have delivered exactly that
+		- Hey Chris,How are you? I know you’re a busy dude, so I’ll keep this brief.I have an article that I wanted to run by you and see if you’d be interested in accepting it as aÂ guestÂ post.It’s 106 Excuses That Prevent You From Ever Being Great. Jon Morrow has said that he really liked it, and I think it would work perfect for what you write about.Hope all is well, and hope to hear from you soon There are a few things going on in this email, so let’s break it down and see why it worked.
+		- First – The opening line acknowledges he’s busy, and that I respect his time.
+		- Popular bloggers are often sent long email pitches that are bothÂ irrelevantÂ and time consuming to read.
+		- Recognizing he’s busy, let him know right away I’m not another person who thinks his time is disposable.
+		- Second – Straight to the point. “I have an article I wanted to run by you and see if you’d be interested in accepting it as a guest post.”
+		- Because Chris, like other popular bloggers is very busy so I didn’t want to dance around the subject. By saying “see if you’d be interested…” also gave him an out, and indicated that I would accept “No” as an answer.
+		- Third – Â I got to the subject of the article, and let him know that I thought it would be perfect for his audience.
+		- Believe it or not, many people will pitch the idea of guest posting, without actually proposing a subject for their post. They say something like “I want to write for you, just tell me what I should write…”
+		- But, if a popular blogger wants something written, they’ll write it themselves.
+		- Having a solid idea of what you want to showcase and why, let’s them know you’ve done your research and doesn’t require them to think beyond “Yes this is good for my audience.” or “No, that’s not a good fit.”
+		- Fourth – A friendly close.
+		- By saying , “Hope everything’s going well, look forward to hearing from you”
+		- A. Show’s I care about what was going on and…
+		- B. the  reinforces I’d be ok with his decision either way.
+		- It’s funny, right after I wrote this, I checked Chris’s Google+ account, and he posted [this video](http://www.youtube.com/watch?v=aJSA39XzVVQ).
+		- Good email:
+		- Subject line: I want to work for you for free [Best subject line I've ever received]Hey Ramit,Love your site, especially the articles about automation and personal entrepreneurship. It’s because of you that I have multiple ING Direct accounts for my savings goals, a Roth IRA, automatic contributions, and asset allocation all set up. [Good buttering me up]I’m a web developer for [Company], a site that gets around 50 million hits per month. I used to do freelance work exclusively, and I’m preparing to make the switch back to doing freelance work ~30 hours / week while I travel and study in China. I work in Ruby on Rails, doing everything from the database to the front-end, and I’m especially good at rapidly prototyping new ideas and projects. [He's in my head: I'm always looking for talented developers and he's clearly one of them]In order to start getting myself back out there, I’d love to have the chance to do some development work for you, completely gratis. If you like my work and have some paid projects for me down the road, that’d be great of course, but I’d be happy just for the opportunity to network and receive a little advice. I’m sure you have a project or two in the back of your head that you haven’t had time to prototype yourself yet; let me do it for you! [I LOVE IT!! As a matter of fact, yes I DO have some side projects I've been wanting to do]You can give me a call at ###, or find me on Google Talk under this address. You can also check out some samples of my work here: [website]Thank you!
+	- Fwd: Maaximum Seduction UK Bootcamp
+		- ---------- Forwarded message ----------
+		- From: Aaron Sollesse <[aaronsollesse@gmail.com](mailto:aaronsollesse@gmail.com)>
+		- Date: 28 June 2013 17:27
+		- Subject: Re: Maaximum Seduction UK Bootcamp
+		- To: mitchell vernon <[mitchvernon@comcast.net](mailto:mitchvernon@comcast.net)>
+		- Hey Mitch,
+		- Haha I enjoyed reading it, I just love how varied the background of my students are. You'll be glad to know you're in the same boat as many of my students, they all tended to find out about game in college or later. Thanks for being so reflective on your current obstacles, these will all be systematically addressed at the bootcamp and as will any other blind spots you may have.
+		- I know this isn't July 5th yet, but the fundamental life change you're looking for will require steps beyond the bootcamp. After the weekend is over I'll be giving you materials and plenty of homework to make sure you continue to develop, but before that I hope that you would be happy to begin your training now.
+		- No matter what is going on in your life, I'm sure you have at least 5 minutes during the day which are free. I'm not going to ask for a lot, all I would like you to do is approach just 1 woman every day. All you have to do is walk up to any girl you see on the street and say "Hi", whatever happens after that is inconsequential. This is a keystone habit which will cause massive improvement in your dating success. When we meet in person I'll give you some tools to help ensure you stick to this habit but for now I want you to try doing so with just a reminder on your phone, calendar or somewhere you will see daily.
+		- For every approach you make, I also want you to record the approach in the Field Reports document that is attached to this email. As you already know by choosing to get a coach, getting feedback can drastically improve your growth. By recording and reflecting on your approaches using the Field Report table it will further highlight areas for development and this data will help me to optimise the training experience for you.
+		- As you can tell I like to push my students out of their comfort zone but don't worry if for whatever reason you haven't been able to approach every day. Just try your best and before the bootcamp make sure to send me any completed Field Reports. From the sounds of it though, it seems that you're up for a challenge.
+		- Also I understand you've paid your $360 deposit via Paypal? The next step is to pay the remainder ($840, at the time of writing = £550) which can also be sent via Paypal to [aaronsollesse@gmail.com](mailto:aaronsollesse@gmail.com).
+		- Looking forward to chatting to you soon,
+		- Aaron
+		- On 26 June 2013 22:20, mitchell vernon <[mitchvernon@comcast.net](mailto:mitchvernon@comcast.net)> wrote:
+		- Aaron,Hey thanks for following up with me! I'll give you a call later when I can. To answer your two questions:1) To understand my situation with dating and relationships I guess you would first have to know me a little better. I am a US Navy guy who just moved to England from Japan, I currently live in Huntingdon but just bought a house in Cambridge. I've spent about four years in the military and before that was in college for four years in a military training program.
+			- As a young man I was really shy around girls and kind of terrified of them. I guess that I kind of had successive bouts of one-itis about different chicks that I knew and was kind of a miserable kid. This sort of behavior kind of peaked my junior year of college when a girl that I really liked who also happened to be in the same military program invited me  to a party at a mutual friend's house. This particular girl knew girl that I liked her and to make a long story short fucked my mutual friend in the next room loudly kind of as a statement to tell me to back off or something. At this same time my grades were not doing well and I nearly washed out of the program and got kicked out of school, so I hit a serious low point. At this point I realized something was wrong with me and that I needed to change myself if I ever wanted to get laid before 40.
+			- A close friend of mine got me into the game and mystery method and we started going out every once in a while. I really felt like the stuff in the books was an accurate portrayal of how all of the steps of romantic relationships work and I eventually lost my V-card later that year with a chick that I knew (I'm sorry to mention mystery method/venusian arts here as you guys have a competing product but that's what was readily available to me at the time, I'm sure it's annoying hearing people talk about their shit). In my last job in Japan I was a ground officer in a fighter jet squadron and would go out to nightclubs in Tokyo with our pilots pretty much every weekend.
+			- This really helped my game; I had a steady girlfriend for about three to four months but later left her because I knew I could date other chicks, I had a fuck-buddy at one point and was usually able to kiss or number close in a night out. Our squadron deployed on an aircraft carrier and I visited numerous countries, and I got flags in the Philippines and Hong Kong. There you go, my life in a long ass paragraph you have to read.
+			- 2) Despite whatever success I've had I am currently dissatisfied with my current social skill level and coming to you because I want to really open the aperture and perform better in the field. I would say consistent problems that I have are -I am a physically awkward human being and would just generally like to be told how to walk and stand, I've been told that the way I walk is some sort of amalgamation of quasimodo's lurch and the hindenberg disaster.
+			- Most of my friends say that I look pissed off, I'm not, but I can tell that I give off that vibe to people and I want to break that habit.-Some of the girls that I've dated or hooked up with are just pretty good looking, I want the 9's and 10's.-I do not really understand how to use negs.-I run out of shit to say when I talk to girls.-The work that I do is sensitive, and despite the fact that it demonstrates value I am not really supposed to tell people what I do. It's tough to DHV when you can't really explain what it is that you do.-Sometimes I feel like my game loses sexual tension and I fall into the friend zone.
+			- In moving from Asia to Europe, I have noticed that game here is substantially more difficult, British and European chicks are way more savvy to the game than Asian women who are totally submissive and subservient to men. The nights that I have gone out here have been a serious challenge for me.-I went out a few nights alone here which I've never done before and it was extremely intimidating. I kind of got to the point where I felt like I wasn't terrified to be in a club by myself but would like to feel okay doing that.-In general, I feel like I can break through approach anxiety pretty easily but my game falls sometimes and I can't put my finger on the most consistent problem. In the next few years living here, I am going to have time on my hands and a fair amount of disposable income, and I would like to travel around Europe and the Near East meeting women.
+			- Also, I have thick skin and if you think what I'm doing is fucking stupid or I'm acting like a doofus, I would rather be told. Thanks Aaron, looking forward to working with you.MitchOn Jun 26, 2013, at 5:10 PM, Aaron Sollesse wrote:Hey Mitch,I'm Aaron, the trainer for your Maaximum Seduction bootcamp in London on 5-7th July. First, let me just give you some background experience on who I am: Most of my time is spent working as a Behavioural Analysis Therapist in which I deal with improving my client's physical, social and emotional development. I've been coaching dating skills for 3 years now, and in the past year have expanded my coaching services to offer new related aspects including:- Lifestyle Design - creating a career and lifestyle that makes you feel fulfilled and attracts women passively into your life- Belief & Behaviour Analysis - any negative beliefs and behaviours which are holding you back from success are immediately addressed, assessed and altered to maximise your success in every area of life- Fashion & Style Customisation - helping you to choose outfits which express your identity, attracts the type of girl you want and makes you feel confident
+			- Fat Loss & Muscle Development - designing a workout, nutrition and supplement routine for you in order to achieve your ideal bodyAll these other coaching services are offered for free with the classic dating skills coaching including street approaches, physical escalation, body language, etc. I want to make this the best possible bootcamp for you, so next I'd like to get to know you a bit better in order to customise this learning experience to your exact needs. Preferably we can talk over the phone to plan out a comprehensive customised personal bootcamp, if so just give me a call whenever you're free on 0770 2181 879.If you're unable to talk over the phone then could you reply to this email and give me a bit more background info on:1) A summary of your previous experiences with dating and relationships2) The obstacles you currently face and any known sticking pointsLooking forward to hearing from you,Aaron
+		- [](Fwd Maaximum Seduction UK Bootcamp_files/Field Reports.docx)
+	- Premium coaching - any time motivational calls and virtual coaching
+		- If I want to make a USP for coaching, may be best to start off with bodyweight HIT personal training for fat loss/muscle gain, or perhaps Daygame (done these before)
+		- Coaching - contact daily or live with me? (Done For You service, no hassle just a solution)
+		- Go to webinar - 6-10 people
+		- At start go into depth with them 1-to-1 to find out their personal problems
+		- 60-90m per week
+	- No, You Can't Pick My Brain. It Costs Too Much
+		- No, You Can't Pick My Brain. It Costs Too Much
+		- Your knowledge has value. You’ve invested time and money into learning your craft and it’s not fair for people to expect you to give it away for free. Giving away information is the quickest way to end up evicted or foreclosed on. Put that in proper perspective for a moment.
+		- For freeloaders - you either have to delay your plans or come up with the money to fund your dreams. Period.
+		- If you’re having problem drawing the line in the sand, here are some rules of thumb you should follow:
+			- Believe that what you know is valuable. If it wasn’t then why are they coming to you? You’re their chance to solve a problem or find a solution. That has value. Charge for it.
+			- Create a fee schedule. Whenever someone wants to pick your brain, make sure you have your fee schedule in front of you. Give them a quote for how much it will cost them. They’ll either pay it or move on. If they move on, good riddance. They weren’t interested in paying you anyway. Let them figure it out on their own.
+			- Decline lunch/coffee invitations unless they are strictly non-business.If the conversation swings around to business, quickly and politely tell them you’re off the clock. If they are interested in a consult they can book an appointment and let them know what the charge is for that.
+			- Keep it light. Some of you will probably cave and throw a few nuggets out there. If you do (I hope you don’t), keep it general. Give the why and what but never the how. Anything beyond the why and what comes with a charge. And don’t even point them in the direction to obtain the how. That’s short changing yourself.
+			- Prominently post that there are no freebies. OK not in those words. But if you have a blog or website, and even on your social media profiles, make sure you mention that consultations are available at a fee.
+			- Exchange for equal value. This puts you in an advantageous bargaining position. If someone requests free information or help, you must feel comfortable in asking for an in kind value service. Assess what they have that can be of equal benefit for you. If they are genuine, they should have no problem in an even exchange of knowledge. Only you will know if what they have is equal to what you’re giving.
+			- Refer them to your “free” resources. If you write a blog, have published articles, have archived videos or podcasts or have a show in which you dispense advice, refer them to that information. Explain that those are the only free information sources you offer. Anything specific or beyond what’s readily available has a cost.
+			- Don’t be afraid to send them to Google. You can recommend they go to Google, or any other search engine or to sites that have articles or information about what they need advice on. You can also recommend a book or magazine that might be helpful. Let them expend that energy they would have used in meeting you at [Starbucks](http://www.forbes.com/companies/starbucks/) and hit the search engines to find their answers. Problem is, they’ll be overwhelmed with varying degrees of information. Not fun for them, but when they’re ready to put it in proper perspective and implement, they can come to you…for a consult…a paid consult.
+			- Ask them for a paying referral. If they truly want your expertise, they have to be willing to help you out too. It’s kind of like the Equal Exchange point I made above crossed with paying it forward. Before you dispense any advice, ask them to provide you with referrals to others who most certainly need (and can afford) your service.
+			- Don’t back down. I know it’s hard to say “no” sometimes. But you can’t back down. People will know how far they can bend or push you. Stand firm, set your boundaries and guard your treasures (your brain and the know how in it). The minute you compromise you devalue yourself and your expertise.Most people are afraid to draw the hard lines in the sand for fear of angering a friend or losing a potential client or opportunity. Trust me, if they will walk away because they cannot get a freebie, they weren’t meant to be a client and there was no real opportunity in it for you.
+		- Many in the marketing circles will tell you the freebie give away is vital. But it doesn’t always lead to a sale. Likewise giving away what you would do in a given situation during an interview will not necessarily lead to you being hired. It’s up to you to determine what you’re willing to give away and how much of it. Know your worth, understand your value. Stop being taken advantage of. No more freebies.
+	- Note
+		- get at least 3 clients, ideally 10 to take this full-time
+			- If they're a level 1 in fashion/game/fitness etc, all I have to do is be a Level 5 and they'll pay me for it.
+			- A Level 10 wouldn't waste their time with such little problems + due to problem of being an Expert (you can't see or remmeber what it was like for a newbie
+		- Qualify prospects
+			- This is difficult but very good for x people
+		- Coaching is a great idea source.
+		- I actually speak to people every single day and as you know I have FastWebFormula.com. I am email coaching or forum coaching there so I a dozen or two questions every single day. Pretty good idea about what people want to know in the Internet Marketing Space. The same is true for business. I have my SilverCircle group each week. We’re on a call and I answer questions on three 90 min sessions. By the end of that, I have a very good understanding of the top issues facing business owners. Coaching is a terrific source. It’s real questions from real people and they’re timely.
+		- In reaching out to clients need to be maximise the desire to overpower their ego defence. Highlight how everyone fails diets and gym
+		- Market research - ask potential clients at gym if they would consider paying for a service like that
+		- Hi this is random but I'm trying do a bit of market research. How would you feel about a service/solution that allowed you to get the body you want and you don't even need to go the gym?
+		- Okay, I'm a behavioural analysis therapist and I help modify my clients behaviours.
+		- - how important is it for you to finally solve this issue?
+		- - Have you ever hired a personal trainer? How much did you pay them and for how long? What would you pay for a diet hacker?
+		- - what are your goals?
+		- Challenges you face? What would your solution look like?
+		- Also experts - email ABA therapists?
+		- Target local biz owners - yelp
+		- Pitch to gyms - offer diet hacking services
+		- Start convos with fat girls in gym for coaching? Older women
+		- Cards - free stamp. FREE TIP - eat protein (meat/fish/nuts) first ad it's the most filling, stopping you eat so much#
+		- I won't charge you for the first kilogram of weight lost - figure out how to use gym weighing scales
+		- Reach out to wives in stores/wedding shops?
+		- Pics off handstand in back room and one armer. Back mohawk pic, Then latest pic of body without face - credibility
+		- Or will that detract from no exercise idea. Separate ad for personal training? Grow muscle and strength in only one hour a week
+		- For those who want to build muscle as well, I can teach you how to do that in only 1 hour of exercise per week.
+	- SALES LETTER PITCH - Diet Hacking
+		- Want to Lose Weight Without Going to the Gym or Giving Up Chocolate?
+		- Diet Hacking Coaching for Rapid Fat Loss and Improved Health
+		- Truth be told, most people go about losing weight the completely wrong way.
+		- Most people think you have to do lots of 'cardio' to get rid of fat, but the math doesn't really work out.
+		- Generally speaking, running 1 mile burns 100 calories. A kilogram of fat contains about 7700 calories. This means you'd have to run almost 3 marathons to lose just a kilo!
+		- That isn't even half the problem though. When we exercise a lot it increases our hunger, so we end up eating often more than we've actually burned (plus there's the tendency to 'reward ourselves' after a particularly long run).
+		- No wonder we can never keep the weight off! Fortunately there is a far easier way.
+		- As a Behavioural Analysis Therapist I see that almost all failed attempts in losing weight come down to two problems: 1) Trying to use willpower alone to change eating habits and 2) Failure to identify the fundamental principles behind fat loss.
+		- The problem with trying to use willpower alone is that eventually we run out of steam and end up wolfing down a whole chocolate fudge cake. Trying to create 10 new habits in the New Year to become a New Healthy You always ends up failing by March for that reason. Willpower is a real, limited mental resource and it gets used up very quickly.
+		- We also have a tendency to like Shiny Objects, which are new weight loss pills or fancy diets. How many have you tried in the past year which have failed? What it all really comes down to is a few tried and tested fundamental principles behind fat loss.
+		- So what is the solution to these problems? You need a system that gives you simple, actionable step-by-step solutions which come from understanding the fundamental principles behind fat loss.
+		- This time you won't fail in losing weight and you will be able to keep it off - permanently.
+		- THE SCIENCE OF FAT LOSS
+		- The truth is 99.9% of fat loss can be achieved just through changing your diet. You can't out-exercise a bad diet.
+		- But it's hard to diet isn't it? Not if you're given simple, actionable step-by-step solutions. In my experience these have always provided the best long-term success rather than filling your head with 17-Things-You-Should-Have-Already-Been-Doing™ as most health professionals do.
+		- The reason why you've failed in the past is because you've never been given a complete walkthrough, instead way too much information is thrown at you at once. They expect you to create 34 new habits overnight, and when you inevitably fail they place all the blame on you.
+		- Not anymore. Now you have a helping hand with you all the way through my Diet Hacking Coaching which is completely customised to your lifestyle and the obstacles you face in achieving your goals.
+		- There are fundamental principles however that all clients will learn, including:
+		- ~ How to use Carb Overloading Diet Breaks to feast on sweets whilst supercharging your metabolism
+		- ~ The exact ORDER you should eat your meal to make it the most filling
+		- ~ The 5 Supermodel Secret Eating Strategies that make any meal instantly 3x more filling with NO extra calories
+		- ~ Why all calories aren't equal (and how to take advantage of that)
+		- ~ How to reprogram your biochemistry so that your hunger hormone (ghrelin) is not released 24 hours a day
+		- ~ Damage Control: The fundamental principles behind surviving Cheat Days and bingeing without gaining fat (through making your stomach absorb less calories, empty faster and other magical hacks)
+		- ~ Why you're a Sugar Burner and how to become a Fat Burner
+		- ~ Optimising automatic mental thoughts towards healthy food to make dieting satisfying and comfortable
+		- ~ 'See the Matrix' - Discover all the different aspects of the environment around you which 'nudge' you towards certain choices
+		- COACHING SESSIONS
+		- I offer email, phone/skype and in-person coaching sessions. The prices and best format for you will be discussed during an initial FREE coaching consultation. Also included in these sessions are custom meal plans, free Choice Environment Analysis of all of the venues which encourage you to make poor food choices and more.
+		- You can reach me on 07702181879 for your FREE initial consultation.
+		- Looking forward to talking to you soon,
+		- Aaron Sollesse
+		- Behavioural Analysis Therapist & Diet Hacker
+		- get rid of sugar cravings
+		- Turn features into benefits
+		- [http://www.gumtree.com/fitness-dance-health/west-london](http://www.gumtree.com/fitness-dance-health/west-london)
+		- Email Support -
+		- Phone/Skype Coaching - much more indepth and customised than email support due to a better ability to get to know you and the personal obstacles you face. These start at £30/hour and there are discounts for bulk purchases e.g. 10 hours are £
+		- In-Person Coaching Sessions - I'll take you around your local supermarket and other places you shop or eat to 'reveal the Matrix' of how bad nutritional choices are being promoted and how to remove their negative influence.
+		- You can also choose to have a Choice Architecture Assessment of your home to assess how it is influencing your eating habits and you will be given a step-by-step action plan to realign your home with your fat loss goals.
+		- You also get a personalised Choice Architecture Analysis consultation
+	- SOCIAL PHOBIA - INITIAL CONSULT
+		- Social Phobia
+			- First off I've got to hand it to you for contacting me. I know how difficult it is to open up and admit that you need help with a problem, but you've made a huge step in the right direction. Most people never take action but I can already tell that you're miles ahead
+			- Ask then what time it is where they're at
+			- how much does this problem affect you? Compare my solution to alternatives
+			- Their background
+				- Job, location
+				- Brief synopsis of current issue
+				- Detailed thorough timeline of events
+				- Your story - past relationships, family, childhood
+				- Have you tried to solve this problem before? How
+				- What Would You Say Is Currently Holding You Back Most?
+				- What's your motivation (trance words)
+					- Pain points + their true lifetime cost
+					- Fears - what future consequences do you dread
+					- "Finally overcoming your social anxiety would feel great wouldn't it?"
+				- What's the homerun for you - SMART goal
+			- My approach
+				- Drugs
+					- Side effects like messing up your ((649b1242-f32f-4ca8-9c5e-aab3915b7834))
+					- Just a temporary solution, addressing symptom not cause, band aid over a bullet wound
+				- CBT
+					- Crap is the long way round because we're trying to change our internal beliefs before our external behaviour, and behaviour is FAR easier to change because it then changes beliefs
+					- actually this includes behavioural interventions
+				- Small steps - quantitative measurement of confidence and measuring improvements
+					- I'm an experienced ABA therapist
+					- I've learnt one of the biggest problems with behaviour change is feeling overwhelmed, so I'm all about easy, step-by-step solutions
+						- Practical actionable steps with only as much background info as is necessary to give you the reason why you're doing something, so you don't get overanalysing it inside your head
+						- This allows you to quantitatively measure progress, so you can see yourself actually getting better in realtime. Otherwise you just feel like your spinning your wheels
+					- Instant Result
+						- And we can create progress through interventions proven by scientific research to make you happier and less anxious.
+						- For example, the 3 Blessings exercise pdf - write down 3 things daily you're grateful for. Keep a list of these
+				- Overcome objections and fears
+					- Use their trance words
+					- Create a vision using homerun SMART goal
+				- Holistic lifestyle - like I said with bandaid over bulletwound, changing behaviour is good but you need a reinforcing lifestyle otherwise you'll eventually go back to your old ways
+					- I've become a biohacker, martial artist, snowboarder,
+			- Pitch
+				- I hope this talk has been useful to you, how would you feel about doing ongoing coaching with me?
+				- Qualify prospects e.g. how Prices
+				- I do several packages
+					- Email Support
+						- For a fixed price
+						- On a weekly basis I'll send you homework exercises for the week, check in with previous assignments I've given you, address any thoughts and concerns you have, monitor your progress.
+							- We'll be implementing habits, different challenges to your comfort zone, happiness tests and identifying what will give you the most benefit to your life.
+						- You can also increase the level of correspondence you want up to daily emails, where I'll be checking with your mood, day-to-day thoughts and actions to help modulate how you process these experiences
+						- Price: £20/week for weekly emails (increasing frequency lowers the price) £40 2x, £55 3x, £70 4x, £80 5x, £90 x6, £100/daily (paid monthly via paypal)
+					- Skype/Phone Support
+						- Content is similar to the email support in terms of me giving you exercises, monitoring progress BUT much more in-depth
+						- Because we can identify the route causes of the problems, in-depth discussions of the day-to-day experiences and how you process them
+						- Price: These instead you buy packages of hours at a time because each week might be different.
+							- Minimum you can purchase is 2 hours which is £80, but if you buy say 10 hours the cost is only £300
+					- Always-There package
+						- This is the most hands-on approach available if you're not able to come to London for coaching session in-person
+						- I offer moment-by-moment accountability 24 hours a day whenever you need you have my personal mobile number and are free to call me or text me whenever you need to
+						- We'll deal with any anxiety-causing experiences, I'll coach you through comfort zone challenges and it comes with unlimited daily phone calls to help analyse
+						- Price: £1500/mo
+					- In-Person Coaching
+						- This is the intensive infield coaching where we will push your comfort zone to the limits. This is essentially a your problem solved, as long as you turn up on the day.
+						- Price: £400 for a 5-hour day
+					- Intake Materials - all of these packages come with a series of intake materials
+						- 3-Blessings Exercise pdf for gratitude
+						- Social Anxiety score - testing this regularly
+						- Social Freedom Test - so you can see how much you're progressing
+						- e.g. educational pdf, personality testing, strengths finder, motivation test etc
+							- Weekly mood test sheet Authentic Happiness Index questionnaire for your baseline measure.  Go to http://www.authentichappiness.sas.upenn.edu
+							- Little Book of Happiness + little things you can do
+								- e.g. start laughing crazily or put on a big smile or stretch/do a little dance
+								- give to someone else e.g. compliment
+		- Be authentic - tell them of my mistakes
+		- Extended DISC psychometric profile report provided to each client
+		- .
+		- I always tell my clients that we won’t even work with someone that doesn’t commit to 6 month minimum of coaching.  Also include a written coaching agreement that they have to sign that has them commit to the 6 month minimum in writing.
+		- “Look, I understand if you are concerned whether or not you’ll be able to afford this for a whole 6 months, but I’m your coach. I care about your results and if you are broke and can’t make ends meet, we are not going to go repossess your house because you’re not paying your coaching fees.  That’s just not going to happen.  I’m not saying that you won’t owe us the money, and I’m not saying that I won’t expect you to follow through on your commitment to coaching for that 6-month period of time. But if you are in dire financial situations, I won’t be another negative for you. As a coach my commitment is to be a positive force in your life.  This commitment you’re making to 6 months of coaching is a positive commitment, not some financial obligation, so don’t think of it that way.”
+		- “It is true that the financial and time commitments are going to put some pressure on you, but that’s the point.  That pressure is a good thing because, frankly, if we don’t put that kind of pressure on you – if you don’t make a LONG TERM commitment to your positive future – then this whole coaching thing is a waste of time for you and you should just resign yourself to living the same life you’ve been living.  But I know you’re committed to more than that for yourself, and that’s why this commitment is something that I demand of you (and you should demand of yourself).  I already make a good life coaching salary.  This commitment isn’t for me. It’s for you.”
+	- Speaking
+		- sign up to tedx london group [http://tedxlondon.com/](http://tedxlondon.com/) [http://www.ted.com/tedx/groups/52](http://www.ted.com/tedx/groups/52)
+		- Books to read:
+		- Resonate by nancy duarte
+		- keep practicing with timer
+		- 20 minutes before the talk: I walk around the park outside the museum, jumping up and down, taking deep breaths and listening to my “Inspire Me” playlist including songs from MC Yogi, Taylor Swift, Slumdog Millionaire, Orishas, the musicals Wicked & RENT, Pitbull and the World Cup 2010 theme song. Don’t ask about the music selection – it just works for me.
+		- After that session in the park, I felt invincible.
+		- DREAM EVENTS
+			- TEDx
+			- World Domination Summit
+			- Live Your Legend LIVE event
+	- Where To Get Clients
+		-
+			- 11/5 - 7 pitches - 3 gave number (2 had Lifestyle Assessment + hwk) 4 rejections
+		- BIZ CARDS - place in books and magazines. + starbucks coaster, in banks, doctors, inside gym clothes in shops, on the train, supermarket. Targetted wastes less money
+		- - put in books over several days/weeks because I don't have transport and don't want to travel too far. Plus if I find a good niche mag/book, can keep hitting the same target market
+		- WH Smith, library, Waterstones (picaddily), Blackwells + Foyles (charing cross rd)
+		- London Review Bookshop, WC1A 2JL
+		- - walk up to people reading books and pick them up?
+		- "I couldn't help but notice you were reading x"
+		- Women primarily: Fiction books, health & alternative medicine, busy female professionals,
+		- fat game guys, smokers,
+		- NEXT: Free session on craigslist; gumtree, local newspaper ads
+		- Message bloggers who desc problem,ask people everywhere what they're struggling with/#1 concern atm?; do some crazy daygame then give cards to bystanders;
+		- speed dating - say I'm a dating coach. Do you really think you can meet guys here
+		- [www.meetup.com](http://www.meetup.com/); toastmasters, mens groups, therapy groups, dating/pickup meetups, quantified self,
+		- Other: offer sample sessions via blog post, to big organisations/uni
+		- if you have an upcoming speech, call them and say, “Did I tell you my talk comes with four coaching sessions? I’m sorry I forget to mention that. To whom shall I deliver the coaching?”
+		- where do they research problem/solutions
+		- Problem: Replacing/creating/eliminating habits
+			- IM/entrep; Writing; Meditation/mindfulness; Study; Exercise/run/cycle; Procrastination, Smoking;
+				- Smoking [http://www.consumeractiongroup.co.uk/forum/forumdisplay.php?156-Give-up-smoking-here.](http://www.consumeractiongroup.co.uk/forum/forumdisplay.php?156-Give-up-smoking-here.)  [http://forum.nosmokingday.org.uk/](http://forum.nosmokingday.org.uk/) [http://forum.nosmokingday.org.uk/](http://forum.nosmokingday.org.uk/) [http://www.nosmokingforum.co.uk/](http://www.nosmokingforum.co.uk/)
+				- Finance - save money, increasing earning http://www.forums.moneysavingexpert.com  iwillteachyoutoberich getrichslowly
+			- Choose 3 habits based on how much they are willing to pay, headache, competency req, perceived value high (e.g. not on psychology forums as other solutions? or because they will appreciate it. Look for beginners not experts e.g. I'm level 6 so target level 3's who can then become level 5 or 6 through me) etc
+			- Positivity (but they have greater access to same info?) lifestyle, pickup/dating,
+			- Pathology (more desperate for info?) Obesity, social phobia, depression
+			- 3 tiered offers
+			- ((66a2d2f3-2757-4602-af49-61b6a7663e3d))
+				- Email - vitamin D; saturated fat; mood rating
+				- Full-Term Recovery - emergency 24/7 access via personal mobile number
+			- Obesit
+				- Paleo - cut out grains
+				- Eat first meal 30m later (every day) + have it be bacon and eggs
+				- Buy scales and measuring tape + take pics
+				- Buy MCT oil
+				- 30g protein within 30m of waking up
+				- Eat loads of protein with every meal
+		- [freelancing work](http://www.iwillteachyoutoberich.com/blog/case-study-earning-more-niche-skills/) to earn more money. [Over the last 3 weeks](http://www.iwillteachyoutoberich.com/blog/category/earning-more/),  Earning More [http://www.iwillteachyoutoberich.com/blog/case-study-earning-more-niche-skills/](http://www.iwillteachyoutoberich.com/blog/case-study-earning-more-niche-skills/)
+		- Look for interested people, don't try to convince disinterested people
+		- - people actively looking for solutions? not just problem-centers where they complain
+		- Give a presentation. Find a group or organization that is willing to listen to your one-hour training. Give them your best information, because you may never have the opportunity to give it to them again. How to get life coach clients from this? Midway through your presentation, pass around a sheet of paper for each person to fill out for a request for a free coaching session. Continue to provide value, and at the end have a second offer. Perhaps a great deal on a coaching program or product that you offer through your life coaching business.
+		- I had a person call me this morning about a program of mine he was considering that cost $10,000 to join and he was scared and skeptical and uneasy about it and I said to him, “How much time do you and I have right now?” and he said he had an hour, and I was in San Diego and needed to begin my seminar there in a little over an hour so I said, “Good! Let’s say you have paid your 10k, you are in my program already, and you and I are working together, we have time traveled into the future, what is the first challenge in your life that you would want you and me to SOLVE together? What would that be? And he told me about a big challenge he had and I asked a lot of questions about it and found out all his thoughts and feelings about it and all his wife’s thoughts and all his thoughts about his wife’s thoughts and we then looked at how his future would always be the same unless he ERASED this pattern in his life that he had set in motion and REPLACED it with a thoroughly re-written future, which he and I proceeded to WRITE for him on the SPOT. The hour ended WAY to soon for him and he said the check was on its way.
+		- Pay-per-click Campaign
+		- Write a "Teaser Ad"
+		- You need to see if you can attract motivated people in your advertising space with a simple ad. For example "All About Creativity - 7 Little Known Secrets to Unleash Your Creative Genious." If you can't get people clicking (or writing in) in response to a very inexpensive and well targetted ad... don't bother spending any more time or money.
+		- Survey the people who respond
+		- This is the key step that most people ignore. For example, someone planning to have a "Creativity Coaching" practice might either skip the research entirely,... or they might survey people in general about creativity. No! You need to find out what's on the minds of people when they are motivated to proactively search for your topic. The only way to do that is to get them when they're responding to an actual ad. (And you need to understand their language for their problems and concerns in the area... not yours).
+		- Analyze the survey to identify the problems and concerns
+		- Find out what the problems and concerns of your chosen niche are, as defined in your advertising space, and in response to your teaser copy.
+		- Answer their problems and concerns
+		- Go out and get the answers to their questions. Write it up (or hire someone to do it for you - I'll show you how to find them very inexpensively). Or have a friend interview you about the answers and then transcribe it.
+		- Keep your teaser running, but send people to a newsletter sign up instead
+		- Now that you know what they want, tell them all they have to do is sign up for your newsletter and you'll send them the answers, gratis. (Kind of like what I'm doing for you right now... this message series was developed using the above process).
+		- > then teleseminars
+		- Have a friend interview you about the questions you got from the survey (the same things you've been talking about in the irresistible newsletter... after all, you already know that's what they're interested in). Take a few questions at the end in person, for anyone who wants to speak up.
+		- This lets the prospect get to hear your voice, and see how you interact with others.
+		- By the way, there are many teleconferencing services you can use at no cost now! And you can also record the call and make it available for people to listen to on replay lines, or on the web. (None of this requires any technical programming ability - there are low-cost services to do it all for you).
+		- From your teleconferences, you step-ladder people up to "rap sessions." A rap session is kind of like a group coaching session you facilitate, but you structure it with questions and exercise surrounding their topics of interest.
+		- Finally, you stepladder people from the rap sessions to your sample individual sessions. (Of course,... there are also pathways to let people go directly from the newsletter to these sample sessions, and from the initial teleconferences too).
+	- Diversification
+	    collapsed:: true
+	- Arbitrage
+		- Arbitrage Overview
+			- Market Knowledge for Arbitrage buy low, sell high
+			- OR buy low, fix up, sell high
+			- Fix up = "Be a good middleman." - Networking, connecting people, project management, sales frontend for dev team backend etc
+			- Requires:
+				- networking and marketing skills
+				- market research and testing
+				- some of these involve startup capital (unless you secure a deposit)
+					- You can hire employees to do the Production Optimisation for you (project managers) but this eats into profit marginsBusiness Models:
+				- Digital project management [http://www.rooshvforum.com/thread-29744.html](http://www.rooshvforum.com/thread-29744.html)
+				- Blue collar project management [http://boldanddetermined.com/2013/08/18/how-to-make-side-money-with-a-blue-collar-business/](http://boldanddetermined.com/2013/08/18/how-to-make-side-money-with-a-blue-collar-business/)
+				- eCommerce [http://www.storecoach.com](http://www.storecoach.com/) [http://www.shopify.com](http://www.shopify.com/)
+				- Import/export [http://www.theelevatorlife.com](http://www.theelevatorlife.com/) [http://www.originalgrain.com](http://www.originalgrain.com/) [http://www1.internationalliving.com/pdfs/kits/ImportExport2008.pdf](http://www1.internationalliving.com/pdfs/kits/ImportExport2008.pdf)
+				- Virtual employee agency
+				- Computer refurb [http://www.rooshvforum.com/thread-37732.html](http://www.rooshvforum.com/thread-37732.html) [http://www.rooshvforum.com/thread-30698-page-2.html](http://www.rooshvforum.com/thread-30698-page-2.html)
+				- Buy and sell shit you have deep knowledge about (comics, antiques whatever)
+				- Buy PLR courses for niches, edit, put it on a membership site, get traffic
+				- Affiliate marketing (traffic arbitrage)
+		- Computer refurb and sale biz
+			- [http://www.rooshvforum.com/thread-37732.html](http://www.rooshvforum.com/thread-37732.html)
+			- Scaling Business and technical equipments.
+			- i am running a sidebusiness, that by the end of the year or early 2015, it will allow me to finally and permanently leave my scientist job; and with it, the jungle of [office politics](http://www.rooshvforum.com/thread-34884-post-696858.html#pid696858).
+			- I have certain technical questions i need help with:
+			- #1. Do anybody knows of a good, versatile, hard drive cloning device? Has anybody use [the Kanguru cloning device](http://www.neweggbusiness.com/Product/Product.aspx?gclid=CImZ7ZL9pL8CFcvm7Aod8SgA3Q&Item=9B-22-243-013&nm_mc=KNC-GoogleBiz&cm_mmc=KNC-GoogleBiz-_-pla-_-Desktop+External+Hard+Drives-_-9B-22-243-013&ef_id=U7Mc8AAAAeldJiib:20140701204301:s) before? or anything similar? I need something like that, but also have the versatility of [COOLMAX cloning Adapter](http://www.tigerdirect.com/applications/searchtools/item-details.asp?EdpNo=7220658&SRCCODE=WEBGOOPA&utm_source=google&utm_medium=paid_search&utm_campaign=paid_search_google_pla&scid=scplp690826&gclid=COP2gfSMpb8CFabm7AodgEIA1A)
+			- #2. Is there a [Kanguru](http://www.neweggbusiness.com/Product/Product.aspx?gclid=CImZ7ZL9pL8CFcvm7Aod8SgA3Q&Item=9B-22-243-013&nm_mc=KNC-GoogleBiz&cm_mmc=KNC-GoogleBiz-_-pla-_-Desktop+External+Hard+Drives-_-9B-22-243-013&ef_id=U7Mc8AAAAeldJiib:20140701204301:s) like device for charging computer batteries-- something that is versatile enough to charge various kinds of batteries types and sizes(hp, dell, mac, toshiba, etc) while they are not attached to the computer; the same way the Kanguru cloning device can clone the HD without it being inserted into the computer. A version of that for computer batteries that can charge 14 or 30 batteries at a time.
+			- This will be a godsend. I can shave off 2 to 3 days from my turnover time of 2 to 3 weeks. Allowing me to pump out more volume... Multitasking the battery charging and cloning is disruptive to my work momentum. I basically have to create a stack of computers to charge batteries and clone HDs.
+			- QUICK BACKGROUND ON THE BUSINESS:
+			- My side business is computer refurbishing/sale and it generates in pure profit around $5,000 to $8,000 per 2weeks to 3 wks interval. That is based on a turnover of 50 to 100 computers every 2 to 3 weeks.
+			- The profit margin is around 100% to 150%.
+			- Something like this [HP elite notebook](http://www.neweggbusiness.com/product/product.aspx?item=9b-34-256-811), i am selling it for $180... i acquired the product parts, etc for nothing more than $35. I am shipping out a total of 42 of those Elite HP by the end of this week. I like to do batch sales.
+			- I obtained various used computers, and computer parts, from hospitals, recycling centers, government agencies, schools, Dell or HP warehouses, etc... at $25 to $35 range per computer...i then take them apart to test and salvage functional parts of the computer(SATA harddrives, solid states hardrives, from 40GB to 160 GB range, motherboards, memory chips btw 2gb to 4gb, chargers, batteries, functional heat sinks, CMOS batteries, computer cameras, digitizers, screens, etc...
+			- Basically, I cannibalizes the used computers, take out all functional parts, categorizes and sort them out. I then use the functional parts to custom built re-furbished computers, clean and polish them spanking new, and sell them just below the competitors price on amazon, ebay, or ship them overseas to china, egypt or pakistan. After shipping, labour, parts, etc has been factored in, the profit margin is around 100% to 150% for me.
+			- This is my sidebusiness..... (my regular job is being a super scientist extra-ordinaire. hehehe)
+			- As a one man army, in addition to doing my regular scientist job, i only have time enough to only clear around 50 to 100 computers maximum per 2 to 3 weeks, depending on the level of technical difficulties i encounter per batch of computer/computer parts. I am in the process of scaling the business using an assembly line model that employs a bunch of university students(with strong preference for background in engineering, computer science and IT concentrations). To work on different, specific function in the computer disassembling and reassembling process. Of course, i will pay them beer money. I already found a warehouse-like structure close-by to a technical/engineering university, also in promixity to postal office.
+			- With proper scaling of the business, i can see myself doing 4 to 5 times the current volume that i am doing right now. I promise to do a datasheet for RVF community when everything is set and smooth sailing.
+			- Anyways, when i look at the workflow process of my business, the choke point is charging the computer batteries and the cloning the harddrives.
+			- Currently, i clone the harddrives in an exponential manner, i.e, clone one and then use both to clone 2 HDs, then use the four of them to clone 4 HDs.. etc. The ratio is still 1:1. It takes roughly 10 to 15 minutes to clone each harddrive. You try to multitask, but this adds up. Especially, since i have to install the newly cloned harddrive, and load up the [Acronis software ](https://www.google.com/#q=acronis+true+image)whenever i am turning a newly cloned harddrive into a master harddrive for cloning new ones. This eat up my time, disrupt work momentum, despite multi-tasking. That is why i need those equipments, especially, if i am going to be having teams of university students working for me... and paying them by the hour.
+			- Any suggestions with regards to versatile equipment for batch cloning HDs and batch charging of computer batteries?
+			- regards,
+			- Nemencine
+			- p.s. the plan is to scale the business successfully, see how things go when i run it fulltime using my saved vacation time from my current regular job; if things go well, call it quit at my regular 9 to 5. step on the accelerator, expand my rolodex and go nuts. I promise to do a datasheet on how i got started, how i set it up, and how i scale it; in the future. But for now, i cannot put the horse before the cart. I still need to scale this side business and turn it into a full-time business.
+		- Digital Project Management: Website Development
+			- [http://www.thejourneyofsuperman.com/how-i-made-5600-without-doing-much-work/?utm_source=dlvr.it&utm_medium=twitter](http://www.thejourneyofsuperman.com/how-i-made-5600-without-doing-much-work/?utm_source=dlvr.it&amp;amp;utm_medium=twitter)
+			- [http://www.rooshvforum.com/thread-29744-page-2.html](http://www.rooshvforum.com/thread-29744-page-2.html)
+			- [http://www.leavingworkbehind.com/monthly-income-report-august-2013/](http://www.leavingworkbehind.com/monthly-income-report-august-2013/)
+			- I used to think I was an entrepreneur running a web design company, but the reality was far from entrepreneurial.Clients were my bosses, and we were at the mercy of their whim.
+			- It’s not easy to make a lot of money in web design. It’s decent sustenance, but a poor investment.
+			- You can’t really differentiate yourself for starters – I mean, you’ll think you can – but in reality you’ll always be one of a gazillion companies in a global marketplace. It’s not like software, where one company can literally own a market; no one web design company owns 0.01% of their market.
+			- Like everyone else, we charged clients fixed rates. If our projects were a storming success, our reward remained the same. At best, you’ll earn yourself more work. Well done! You just won yourself more work.
+			- Understand how this is different from many other businesses. If you make a best-selling solar powered torch your reward is your own, and so is your destiny. You can choose to change your product, your brand, your strategy as you see fit. If you’re the best, the rewards are immense. But with web design, you essentially earned yourself more, slightly better work.
+			- As for his arguments, sure, web developers trade their time for money. Web development is a trade, not a true fire-and-forget passive income stream. But as trades go, it's a damn good one for smart men.
+			- The author of that article complained that web developers are always busy, and doing a good job "just leads to more work." He claimed that web development was sucking up all his time and keeping his company from focusing on software products.
+			- Those aren't real problems. You've got too much work? Double your rates. Even if you lose half your clients, you're making the same revenues for half the time. Troublesome clients? Fire them. Choose to work with people who are on the level.
+			- arbitraging IT contractor hours from somewhere SEA to Europe. He’s the nice sales front end, and has hired project managers and worker bees who then deliver the projects. (Actually, he seems to have hired sales guys too these days. Even better.) Pocket the difference. That’s it.
+			- I’ve seen and met dozens of these companies by the way, as a buyer. What you need, apart from a pipeline of workers, is to have a list of good leads (cough) and call each one of them every quarter or so to fill the calendar. Cold call the CEOs to build your list.
+			- 3.1 Just Go With It
+			- For the lulz: how I landed my first project.
+			- I was working an unrelated job in Kuala Lumpur and one night went to visit a friend who lived above Pavilion Mall, if any of you knows it. In the elevator to my friend’s apartment, a Chinese man struck up a conversation with me.
+			- Being white in Malaysia, you get opened more often and enthusiastically than Scarlett Johansson walking through downtown Hyderabad. Over time, that started really pissing me off. But, it’s hard not to look back on this particular encounter as a major, positive inflection moment in my life. Shit’s funny that way.
+			- Anyway, the guy’s English was bad as my Malay, and as we talked he got the impression I built websites.
+			- I tried correcting him——but, nothing doing.
+			- We chatted, best as we could, for 15 or 20 minutes. Turned out he was an importer and wholesaler... and he wanted an online catalog for his customers... and he wanted LouieG, Ace Caucasian Web Developer, to build it.
+			- To bring things to an friendly conclusion, I said Yeah, no problem, gave him my card, and figured I’d never hear from the guy again.
+			- A few days later, he emailed an RFP, in garbled English, describing the website he wanted.
+			- Even minus the language barrier, the technical jargon would’ve been Greek to me, but there was one thing that I did understand: He listed his budget as Rm 15–20k. About $6000.
+			- At a previous job, I’d used WordPress & knew that out-of-the-box eCommerce themes sold for less than $100. Did a little more research, and realized the RFP didn’t ask for any functionality that wasn't available, by default, in open source eCommerce CMSs.
+			- I remember thinking, Well goddamn.
+			- So I pulled a contract template off Google, pasted the RFP text into the contract’s body, priced the job at Rm 19k, then called my new friend and told him we had a deal. I got a check for half the money within the week.
+			- I hired a college friend who majored in CS to help me along the way. He set me up with Magento and a Magento theme, found & configured the hosting service, checked my work versus best practices, did some customization of product categories, and eventually handled the launch.
+			- I did content insertion, played around with Magento’s built-in options, and learned enough HTML to add pictures and links to the homepage slider blocks. Simple shit, but being an absolute beginner it took me awhile.
+			- Kickoff to launch, the project took three weeks and I estimate I spent 50 hours on it. I paid my friend $1000 for something like 15 hours of work, so I netted about $5k.
+			- That's $100 / hr for work I had no ‘qualifications’ to do. My interest was piqued.
+			- But, new clients were not beating down my door on the basis of that first site, which meant I’d have to scramble for sale #2.
+			- The good news was that, just after the Magento site launched, I went back to the U.S. for a month. I spent most of that time finding / approaching potential clients, and I started to establish a little sales pipeline.
+			- That month was my first foray into sales and—I remember very distinctly—there were a lot more misses than hits.  But here’s what I found worked...
+			- 3.2 Solid Fundamentals
+			- To date, 90% of my projects have been on one of four platforms: WordPress, Drupal, Magento, and Squarespace.
+			- If you’ve never done any web dev before, read about the out-of-the-box features and functionality of those four CMSs. Find a couple sample sites and play around with them—ThemeForest is my go-to resource for sampling WordPress themes and has some good Magento stuff as well.
+			- That should take you two hours, tops.
+			- (In my business life, I’m a big proponent of learning only what's necessary. Never let the nagging sense that you need to learn more get in the way of turning a profit.)
+			- Two hours will give a strong grasp on what’s possible from a high-level perspective: using open source CMSs and ready-made themes / plugins, you can do ecommerce, portfolios, photo galleries, mailing list integration, blogs, etc. That's what really matters.
+			- During the sales process (likely later in the project too), clients will ask specific questions about those top-level features that you won’t have an answer to. Happens to me nearly every day. They’ll want to know how to do something, whether it’s possible, what the industry standard is, how much it will cost, etc.
+			- The answer to those questions is, “Yes, it’s possible, but let me double check the specifics and get back to you.” Then research, learn it cold, and give them a great answer. Never let them see you stumped.
+			- The bigger lesson there is, always tell potential clients "yes.”
+			- (Unless the answer is obviously “no.” Over time, you’ll develop a sense for when the answer is obviously no.)
+			- But right off the bat, it’s pretty fucking unlikely your clients will want anything that isn’t extremely standard. They’ll be mostly low-budget, non-technical folks, and they won’t have the savvy to think of things that are difficult to implement. Your default response to any request should be, “yes.”:
+			- So: 30 minutes of experience with WordPress, Drupal, Magento, and Squarespace, plus the “always say yes” principle. That’s the fundamental knowledge you need to sell your first site.
+			- Sounds like many of you are already lightyears ahead of that—try not to let that get in your way
+			- 3.3 Finding Likely Clients
+			- Don’t respond to RFPs. Don’t build a website and wait for work to come your way. I can’t say ‘don’t buy paid advertising,’ since I’ve never tried it, but my gut is you shouldn’t buy paid advertising.
+			- Instead, create a list of likely clients and get yourself in front of them. A likely client is:
+			- 1) A functioning, for-profit business - Don’t bother with friends, artists, musicians, startups, academics.
+			- It sounds hard-hearted, but I write off non-profits too. When I was a beginner, non-profits fell in one of two camps: Those who couldn’t pay me, and those who could pay so much they’d never bother with me. Probably there’s a middle ground but I never found it.
+			- 2) Has no website or a crappy website - Confirm you can make a better website than what they already have before pitching them.
+			- 3) Needs a website - Almost every business needs a web presence, but many high-profile businesses get theirs for free thanks to Yelp and similar business directories.
+			- Restaurants, for example, can skimp on the website, as long as their Yelp reviews are good. Same for many businesses in the leisure / entertainment and retail arenas.
+			- OTOH, many B2B and service niches have no directory site with the authority or Google-ranking power of Yelp. If you find a printed phone book (assuming those still exist), flip through the Yellow Pages and you’ll see a bunch of them. For example, after the Malaysian wholesaler, my next four sites were…
+			- —an art appraiser
+			- —a boutique investment bank
+			- —a kitchen / bath design studio
+			- —a cosmetics wholesaler
+			- For businesses like these, a good website and a good Google page rank for keyword variations on “[their niche] [their geographic location]” is absolute gold.
+			- The art appraiser mentioned above went from zero web presence to being, for a few months, the first result for several art appraisal keywords + “New York City.”
+			- Concurrently, he went from being de facto retired to busier than ever before in his career.
+			- Businesses like these stand to reap serious benefits from putting a decent site online; you are not peddling snake oil. Once you identify them, all you’ve gotta do is get in front of them, and convince them as much.
+			- 4) High margin, low volume - I recommend the sites you try to sell cost several thousand dollars apiece (and a lot more, eventually).
+			- If a site has to generate 1000 leads to pay off that investment, it’s probably not worth it for the client. (True for the clients you’ll start with; obviously not for major brands / retailers.)
+			- But that art appraiser I mentioned charged upwards of $10k per engagement. Based on the leads his $8k site generated, the ROI for its first year online was something like 1250%.
+			- That’s a much easier sale than telling some cafe you’ll build a site that sends 5,000 sandwich eaters their way.
+			- 3.4 First Contact
+			- My cold approach was simple. I printed 200 glossy postcards with a nice photo and my business’s name on one side, and blank space + fine printed contact info on the other.
+			- In the blank space, I Sharpie’d two columns:
+			- Left column - What I estimated the business’s profit to be on one sale, two sales, three sales, etc, of whatever service they offered. I kept my estimates of their profit-per-sale very conservative. I remember the principal of the investment bank laughed in my face for guessing he made only $20k per engagement.
+			- That was embarrassing, but then he signed on for a $17k website, which provided a great deal of consolation.
+			- Right column - The cost of a basic website. I made sure the cost was always less than the profit from two (at most three) sales for the client.
+			- At the bottom I included a little note saying I’d like to meet & discuss further. I mailed them out on a Monday.
+			- Almost nobody called back, and no one I ultimately sold to did. But I spent all day Thursday and Friday placing follow up calls, introducing myself, and asking if they’d received my postcard.
+			- Many that I spoke to had, and a lot said they wanted to learn more. I kept these phone calls brief, and pushed for in-person talks. Some balked, some bit.
+			- I set up a round of meetings for the next few weeks.
+			- 3.5. The Insta–Portfolio
+			- You inexperience is a liability* and I highly recommend… massaging the truth to cover it up.
+			- I arrived at my first sales meetings with a laptop, a link to my Magento site, and screenshots of 8–10 premium WordPress themes: a portfolio theme, a restaurant theme, an ecommerce theme, etc.
+			- If you want to get fancy, sign up for an account at DreamHost or Bluehost or [insert cheap web host here], pirate some premium themes, and install them on your server.
+			- If you’ve never done that before, don’t worry. There are tutorials that explain how to do it in <10 minutes.
+			- Then strip out the test content, replace with [lorem ipsum](http://www.lipsum.com/), and tell the client you made the sites.
+			- That’s it. An hour’s work, and you’ve got a portfolio with sites suited to a variety of businesses, all featuring professional-quality design, retina-ready graphics, three responsive breakpoints, parallax scrolling, SEO-optimized design, whateverthefuck—reading the theme descriptions and memorizing these selling points is also very handy in making yourself sound more experienced than you are.
+			- [Sidenote: If you have an ethical bone in your body, lying like this should give you at least a moment’s pause. I know I felt weird about it, at first.
+			- Now I remember that feeling and think, Was I ever so young?
+			- Since my business has taken off (basically the last 12 months), I’ve partnered with a couple legit agencies to pitch big design / dev deals. That’s given me the chance to sit in pitch meetings and listen to veteran Creative Directors claim they’re best buds with major names in web / app design, then walk out of the meeting and laugh about how they’ve never even met those guys.
+			- I’ve seen agencies / designers contribute ten pixels of design to a project, then include it as the centerpiece of their portfolio.
+			- I know of multiple dev firms that burned clients and never wrote a line of launchable code for them, and still include those clients’ names on their homepages.
+			- Point being, it’s all bullshit out there. In this biz, being scrupulously honest about your bona fides is a far greater liability than being inexperienced or having huge gaps in your portfolio.
+			- I lie like hell to my clients all day long. I also deliver them good work on time and hope that on balance, it’s at least a wash, karmically-speaking.
+			- When in doubt, I remember the wise counsel of Memphis Bleek:
+			- ... & then I don't worry about it too much.]
+			- Anyway—I suggest you ignore this step until you secure one sit down meeting. Until then, it will only be a waste of time and money. If a potential client asks for work samples over the phone, say you’ll pull together some samples and send them after the call.
+			- *Not because it prevents you from building a decent website. Open-source CMSs, pre-made themes, and a little hired help enable anyone to build a decent website. Nevertheless, rightly or wrongly, anyone paying for a site wants an experienced PM.
+			- 3.6 The Meeting
+			- If someone agrees to meet with me, I am really fucking close to selling them a site. Proceed as if they’ve already chosen to buy.
+			- My general sales meeting template is this:
+			- 1) Rapport building. If you’ve never met before, try to bullshit with them for 10-15 minutes.
+			- Don’t talk about websites and avoid even talking about their company. If you notice them looking impatient before the 10 minute mark, then get down to business.
+			- This step is so important—probably in any industry, but especially in tech, which is full of Aspy eccentrics. Being likable and pleasant to work is the ultimate leg up. It also makes it harder for them to tell you ‘no’ in the end.
+			- 2) Talk about their current web presence. Ask, in more delicate terms, why their current website sucks balls (or why they don’t have one at all).
+			- It’s amazing how many of my clients have a story about a previous web dev company that was inept / unresponsive, they got fed up and let the relationship lapse, a few years passed, and then their website was woefully out of date.
+			- Press them for details on why they’re unhappy with their actual site—are they embarrassed to show it to clients? Is it hard-coded and difficult for them to update? Is it on some proprietary hosting / CMS system that costs $700 a year?
+			- Figure this stuff out and remember it.
+			- 3) Explain how you will solve all these problems.
+			- You will respond to all their emails in 15 minutes or less. You will set them up with a hosting account that costs $3.99/mo. You will give them a WordPress backend that a chimp could navigate. You will give them beautiful, au courant design that looks great on desktop, tablets, and smartphones.
+			- 4) Talk about their wishes and requirements.
+			- Some clients will have no trouble telling you what they want. That’s helpful; the challenge in those cases is identifying requirements that are beyond the client’s budget or your capacities.
+			- Other clients (especially low-budget clients) will need you to tell them what they want. That’s why I suggest coming into the meeting with a list of page templates and some questions about each. Here’s a standard list of templates and common questions:
+			- Homepage
+			- —What do they want as the centerpiece of their homepage: their logo, a recent blog post, and featured portfolio piece? Slider with links to internal pages?
+			- —What text (if any) do they want on the homepage?
+			- —What internal content would they want featured on their homepage? A widget that pulls recent blog posts? ‘Employee of the Month’? A widget to feature recent deals?
+			- Blog
+			- —Would they use a blog?
+			- —How frequently would they post?
+			- —Would blog posts be text, images, both?
+			- Portfolio Page
+			- (Most business websites have a portfolio page of some sort)
+			- —What would they include in their portfolio?
+			- —What’s the balance of image / text in their portfolio content?
+			- —Could they put all their portfolio pieces on one page? Or will they need a ‘Listing’ page to show everything, and ‘Detail’ page for extended info on individual items?
+			- —How often will they add new portfolio items? (To suss out how easy updating the portfolio should be for them.)
+			- Basic Internal Page
+			- (For those not versed in this: this is a simple page with headline / title, and a rich-content area; most often used for About pages, company histories, Terms of Use, etc)
+			- —What would they put on their Basic Internal Page? Anything that a WYSIWYG editor and rich content box couldn’t easily accommodate?
+			- Contact Form
+			- —Do they want a contact form?
+			- —Would they need anything beyond standard contact form fields: name, email address, nature of inquiry drop down box, comment field?
+			- A lot of low-budget client just want a fucking website. Don’t annoy them with all of these questions if it’s clear they haven’t thought about this stuff and would prefer you take control and come back in a month with something that looks reasonably professional.
+			- Instead, pick a few big questions—what they want on the homepage, whether they would use a blog—offer a couple sensible suggestions, and tell them you’ll take it from there.
+			- 5) Budget. I always ask about budget during sales meetings. If I’m lucky, I get an actual number. More often, the client will say, “I’m not sure, what do you think [the website we’ve just discussed] will cost?”
+			- The appropriate answer is some variation on, “I have to sit down and look over the details we’ve discussed. But based on my experience, a very preliminary estimate is somewhere between $X and $Y thousand,” — where $Y is a number substantially higher than you have any expectation of charging.
+			- Odds are they’ll flinch at that. If so, tell them there is a ton of flexibility in price based on final design and feature set, and you’ll help them find an acceptable balance between features, design, and cost.
+			- Then, come back and ask what part of your range they’re comfortable with. At that point, they’ll give you a number. Unless it’s hopelessly low, smile and tell them Awesome, let’s see what we can do with that.
+			- 6) Goodbye. Price range & client expectations in hand, tell them you’ll review the details and put together a ‘ballpark’ proposal.
+			- Tell them to expect it in three days; turn it around in <24 hours. (More on this later—beating deadlines is a big part of being a good PM.)
+			- 3.7 Creating the proposal (AKA contract)
+			- You should create the contract in two steps:
+			- 1) the ballpark proposal
+			- 2) the final document
+			- There’s tons more to say about contracts than I’m gonna cover in this thread. Here are the broad strokes of what your two documents should include:
+			- Ballpark
+			- —Intro: 1-3 paragraph overview of project goals, including a note that this is a non-binding ballpark and ‘intended as a discussion document to define scope and project goals.’ (There’s some exact language for you to jack.)
+			- —Services overview: A bulleted list of all page templates, all elements in each template (e.g. photo slider, sidebar, rich text body content area, photo gallery w/ lightbox features, Constant Contact widget, contact form with the following fields…), and all elements that the client will be able to edit via the CMS (if any).
+			- For clarity, I sometimes break this into two sections: Frontend, which describes the templates and features / design elements, and Backend, which describes what’s editable via the CMS.
+			- For CYA purposes, these lists should be absolutely as detailed as possible. Based on what you know of the client, choose a CMS & theme and carefully investigate what’s possible within it. Then write your contract accordingly.
+			- —Technical details: Will the site be responsive? How many breakpoints? Which browsers & versions will it be compatible with? Which CMS are you using? How will SEO be addressed, if at all?
+			- If the answer to any of these questions is, “it won’t be responsive / SEO’d / compatible with IE 8” you should explicitly say so.
+			- —Not included: What services are you NOT providing? Give a bulleted list.
+			- Likely candidates: Copywriting, design / styling beyond the chosen theme’s default options, custom photography, stock photography selection, web hosting, non-bug changes or fixes after site launch.
+			- Also stipulate that the client, not you, is responsible for 3rd party fees—font licensing, web hosting, and stock photography fees being the big ones there.
+			- —Hours limit: For small projects (<$5k) I set a limit on the hours I’ll spend, so that clients understand there’s a limit on changes and revisions they can request. My goal is at least $90/hr. Breaking in, you should probably bend on that number.
+			- Instead, get a sense of A) how soon the client wants this project done, and B) how many hours you/your team can devote to it per week, then set your hours limit accordingly.
+			- —Pricing: For the ballpark: give a range! I’ll delve more into pricing later. If you believe you can handle all the work, then it’s simply a matter of deciding what price makes this project worth your time.
+			- If you think you’ll need help from a hired developer or designer, then you need to figure in some of their time. Get a written estimate from them and bake that into the price.
+			- Then inflate your baseline price 25-30% to get the range you’ll negotiate within.
+			- When submitting the ballpark, set up phone call to discuss with the client. Use that call to discuss the templates, features, and functionality you’ve included, and to temperature check your price.
+			- As much as possible, you should finalize everything during that call. You may have to submit a couple version of the ballpark before all is set.
+			- Then you create your…
+			- Final Contract, which includes:
+			- —Intro (same as before, minus ballpark language)
+			- —Services (same as before)
+			- —Technical details (same as before)
+			- —Not included (same as before)
+			- —Hours limit (same as before)
+			- —Pricing (fixed price agreed upon while negotiating ballpark; include a payment structure with 2-3 milestones, the first being the contract signing)
+			- —Signature space
+			- Unfortunately, the best description of a contract that I can provide is nowhere near as useful as a real example. Sometime later this week, I’ll strip one down to the general language I use and post a PDF for you to work from.
+			- 3.8 Repeat, repeat, repeat
+			- Potential clients flake. Hot leads lose interest. 90% of the way through the process, they decide they’d rather have their nephew build the site. Or that they can only afford $500. Or they get swamped with other work and stop responding.
+			- You’ll follow up every week or two. That’s still no guarantee you’ll get the job.
+			- Keep at it. Perseverance at this is richly rewarded, IME.
+			- 3.9 General Principles
+			- Sell to businesses, and present your service / product as a wise business decision. Show them how money invested in a website is repaid, then doubled or tripled.
+			- The single most powerful sales technique, I’ve found, is comparing [the price of a website] to [the value of a single sale for your client]. If the website pays for itself by generating one or two sales, it's a no-brainer.
+			- Remember: In the client’s eyes, your value prop is not that you’re a brilliant web designer / developer. It's that you can create and launch a website. Although that’s easy these days, between WordPress / Squarespace / Magento etc, many people don’t realize that.
+			- Or they’re intimidated by the idea of choosing a host, choosing a CMS, choosing theme, learning the minimal HTML/CSS required, inserting content, launching and managing the thing.
+			- Or it’s simply not a prudent use of their time to handle all of that, and they’d rather farm it out—even at a cost of several thousand dollars.
+			- Don’t bother with RFPs. To start, your sole competition should be the client’s inclination to not spend the money and not go through with the project.
+			- You defeat those inclinations by convincing the client that by not hiring you, they are—in the long run—leaving money on the table.
+			- Keep it simple. Understand what the major CMSs are capable of out-of-the-box, then sell those default capabilities to clients.
+			- Don’t promise or agree to anything beyond them. As long as you’re only working with default options and light HTML / CSS styling, you can do all the work yourself.
+			- Go through the process a few times and get a handle on what’s involved. Then start seeking more complicated projects that require hiring devs, and allow you to charge accordingly higher prices.
+			- My second and third projects I did 95% on my own, with only light support from my developer friend to vet my work and assist with launch. That was great training to eventually land larger jobs, do solid work on them, and give the clients excellent service from sales to launch.
+			- 3.10 Thinking short term & long term
+			- Keep at it and you’ll hit your stride on sales.
+			- You’ll develop an instinct for which clients are likely to bite.
+			- If you’re targeting the right clients and giving them good work, they will refer you to friends and colleagues, which will give you a passive sales pipeline.
+			- That’s all wonderful, except it won’t necessarily advance your business. You’ll get leads on a lot of jobs that very closely resemble the jobs you already handled, and they’ll bring you more jobs just like those, and more & more… etc.
+			- I didn’t appreciate this at the time, but it was blessing that I started this business while working another job full-time.
+			- That gave me freedom to walk away from jobs that were too similar to work I’d already done.
+			- Instead, I waited for jobs that would extend my range in some interesting way.
+			- The upshot was that after 8–10 completed jobs, I had 7–8 portfolio pieces that were substantially different and included some ‘hook’—a novel Magento product page; a WordPress site for a small journal with a high-concept homepage layout and a cool custom widget for displaying back issues; a Drupal site with a redesigned & streamlined Admin control panel.
+			- The price & complexity of my projects steadily increased. That wasn’t part of some grand plan, though if I’d been smarter and more methodical, it would would’ve been.
+			- In a sense, that put me ahead of established shops with larger portfolios full nearly-identical sites. My shop’s reputation and salability to clients grew by leaps and bounds, even while revenue growth was a bit slower.
+			- It’s hard to walk away from projects and guaranteed money, and you may not have that option for very practical reasons.
+			- Just keep in mind that there’s an opportunity cost to accepting a project that will net you $50 / hour: It means you can’t find a project that pays $60 / hour.
+			- Think about the long-term. Don’t undervalue your time or expertise.
+			- ####
+			- RE: Digital Project Management: Programming for hustlers
+			- torontokid Wrote:Why do you do hourly rates instead of fixed rates. How do you justify hourly rates?
+			- Nearly all my projects are flat priced (meaning we agree on a number and that’s all my company gets, unless the client decides to expand scope). I find the flat price by assigning an hourly rate to my contractors’ work, estimating how many hours they’ll spend on the project, and multiplying that out.
+			- Twice, I had a client come to me without a set budget and without a clear scope. In those cases I insisted on billing hourly against a monthly retainer. But generally clients require flat pricing.
+			- And, even hourly clients want (understandably) hours estimates for each deliverable. Blowing those estimates will tank a client relationship, fast.
+			- Earlier this year I had a messy breakup with an hourly client due poor estimates on my part, among other things.
+			- Pricing really deserves a post of its own—gonna add that to the list.
+			- torontokid Wrote:Also, do you have the ability to be location independent at all?
+			- I did this for ~10 months from Malaysia, working almost exclusively with American clients.
+			- But not all clients area equal. I have clients now who expect regular, in-person meetings. Though it’s a time sink and ties me to NYC, they pay rates that justify that expectation.
+			- I do have the flexibility to take lengthy ‘working holidays.’ All told, I’ve spent more than a month abroad this year.
+			- Hotwheels Wrote:What are JPG's and PSD's?
+			- Image files. JPG—jpegs—I’m sure you’ve heard of.
+			- PSDs are Photoshop files. Developers can open them and quickly get precise information on things like color, spacing, and dimensions of elements.
+			- If I'm doing only design for a client (no dev), my final deliverable will be PSD files. Until that point, I would only show them JPGs.
+			- saeta119 Wrote:I can't see how you could have a full time job and doing this on the side.
+			- Now, I couldn’t.
+			- At the start, my project load was much less. I worked my full-time gig during Malaysian business hours and then handled this at night, during U.S. business hours.
+			- saeta119 Wrote:Also, most of your clients you meet them in person? How's your experience with clients in other countries? say you found them on elance, etc?
+			- I see no reason you couldn’t work with clients in other countries. It might make meeting them and cutting a deal harder.
+			- The main drawback is once you reach a certain price point, clients will start to expect at least some face time. Rightly so—bigger clients will have multiple stakeholders involved in decisions, and it’s hard to a have productive conference call with 5+ participants on the line.
+			- I don’t use eLance. My understanding is the rates are shit. Tbh, I’ve never even looked into it.
+			- Brisey Wrote:Did you study or do any courses on stuff like this prior to getting in to it?
+			- There are a few project management certifications. I believe the most common is the PMP.
+			- I don’t have one and would never consider getting one. None of my clients would give a shit and, by now, my on-the-job training is far beyond anything a program would teach me.
+			- I suspect it’s much more valuable if you want to PM in-house.
+			- Not to open a whole ‘nother can of worms… but I have a liberal arts degree—English + history major—and think it’s been immensely helpful. Suck it, Aaron Clarey.
+			- Frex, client meetings are nothing but broad, free-flowing discussions, very much like those I had during four years of history seminars.
+			- Writing well; distilling complex ideas into simple sentences; listening to someone else’s idea and then expanding upon it, extemporaneously and on the spot—i.e., the things you practice as a liberal arts major—are not worthless skills.
+			- You just have to leverage them to valuable ends.
+			- bojangles Wrote:I've applied to a few contracts but no luck, but it be better for me to spend some money creating a website and say that I worked on building that digital project?
+			- My advice, as detailed above, is to put together a simple, quick-n-dirty portfolio. Do this as quickly and cheaply as possible.
+			- Use that to impress low budget clients and get their business. Build them good websites, then go out and find clients with slightly higher budgets.
+			- Build them good websites, increase your rates, and repeat.
+			- There are alternative routes. Getting agency experience will only help you. But based only on personal experience, I don’t think it’s strictly necessary.
+			- VincentVinturi Wrote:What are you thoughts on the potential to sell your business, passive income potential, hiring out managers and payroll and basically taking yourself out of the picture with this business model so you own it but don't have to juggle it?
+			- I can’t imagine anyone buying my business except in an acqui-hire situation. For now, I am the business… man. So while I expect I could find a buyer for my rolodex, current clients, and contractors, the price would be pennies on the dollar compared to what they are worth to me if I continue running the show.
+			- Hiring managers is a more realistic way to step aside without demolishing the value of the company. I know of a couple dev shops where the founder still owns the place and is uninvolved, day-to-day.
+			- Personally, my ambition—and I’ll say more about this later—is reaching a point where my expertise and reputation are such that an hour of my shop’s time is extremely valuable and salable at a massive markup.
+			- That’s why I’m always shooting for more complex jobs, with cooler designs and novel UX/UI features or strategy innovations. I want to eventually be regarded as a guy who can design and build a site that few other shops could pull off.
+			- It’s a long term plan, but if I continue down that road, I can envision a point where I make excellent money with a minimal project load, and only accept clients who want to do innovative and interesting work.
+			- Btw, VV— really enjoy your posts on the forum.
+			- kaka Wrote:Do you think its wise to spend my time learning cs6? … I just figured that it would be good to know at least the foundations of the systems used. Or spend my time trying to get clients and hire people to make the websites?
+			- Definitely—anything you learn will be useful.
+			- My point is, don’t let learning get in the way of selling. If you’re an Adobe master, you will still have to prove that to people by finding clients, delivering great designs, and then seeing them through to launch. Get that process underway now.
+			- If you’re interested in designing—which I totally understand; I've played around with Illustrator and love it—then develop those skills concurrently. By the time you’re getting good, you’ll already have a roster of clients ready to pay for your design work.
+			- 2014 Wrote:As far as I could tell, anyone could do this... unless there is a hidden barrier to entry I can't see?
+			- Oh yeah. The greatest barrier to entry of all: You gotta actually sack up, approach clients, and convince them to pay you.
+			- Most people won't ever do that; most people will think about it for a minute, then go to the fridge and microwave another plate of frozen taquitos.
+			- Then at the higher levels, you gotta approach clients and have the expertise to provide good work and good client service.
+			- The pool of shops that can do both is tiny.
+			- The pool of clients who hate their web dev shop and want to find someone good is—from what I’ve seen—boundless.
+			- To my mind, there are many uncertainties about the future of web design and development. The possibility that the field might become over saturated with quality competition is nowhere among them.
+			- CYA - Cover Your Ass
+			- RFP - Request for Proposal
+			- OTOH - On the Other Hand
+			- B2B - Business to Business
+			- RE: Digital Project Management: Programming for hustlers
+			- Over the next two posts, I’m going to describe the project lifecycle after the sale is complete.
+			- As case studies, I’m gonna use two of my recently-launched projects: one a major rebrand / web redesign / dev project for several sister companies, and the other a much smaller design & dev project that resulted in an ‘internal prototype’ for a publishing group.
+			- This first post tackles the bigger project and illustrates all the ins & outs / phases / considerations a project might have. I’ll walk through a very comprehensive framework for organizing a high-complexity, high-budget job.
+			- The next post will describe the smaller project, and distill the comprehensive framework to the key pieces needed to do quality work within a limited budget and timeframe.
+			- After these posts, I’ll give more detail on:
+			- —hiring developers and designers
+			- —PM best practices
+			- —pricing
+			- —some of my key organizational techniques.
+			- These case studies should provide some helpful context for the points I’ll make in those later posts.
+			- Alright. Down to business.
+			- PART 4: The Complete Project Lifecycle
+			- 4.1 From Generalist to Specialist & Back
+			- If you follow my career trajectory and start from the bottom, you’ll begin by handling every aspect of a project: design, development, content insertion, launch, and sometimes ongoing maintenance. You might throw in some copywriting or set up the client with a professional photographer.
+			- You need those first clients' business, so you give them whatever services they ask.
+			- After awhile, you’ll probably find it more profitable to specialize in one or two phases of a project.
+			- For example, I soon began signing clients, working with them to create a written design spec, hiring a design agency to take 95% control of the project during wireframing and design, and then taking the wheel again for development.
+			- Development was what I knew and where I earned my money, so specialized in it.
+			- During that time, I was getting more complex projects, but I didn’t have any connections to hire designers directly. Even if I could’ve hired them, I didn’t have the experience to supervise their work. Outsourcing to a reputable agency was my best option.
+			- The drawbacks to that were A) my company wasn’t making money off design, B) because of the agency’s markup, the clients and I were paying $150 / hour for $50 / hour junior design work, and C) I lost control during design.
+			- Which sucked. So I reached out to design folks, tried some out, found a freelance Creative Director, and assembled a team of freelance designers directly responsible to him & me. Increasingly I cut out the design agency on projects I personally pursued / landed.
+			- As luck had it, my Creative Director had a reputation for being an excellent web strategist (“design is strategy” is a common refrain in this industry). He also had a working relationship with a well-regarded guy who freelanced on projects as a “Head of Strategy.”
+			- With their help, I started landing a whole new kind of client: Instead of clients who came to me with detailed specs and long lists of demands, they would pay us to A) tell them what to do and B) execute our recommendations.
+			- The transition was akin to going from a carpenter, who works off someone else’s blueprint, to an architect who has the vision and authority to chart the creative course. Excuse the shitty analogy.
+			- With that shift, my company was once again overseeing the entire course of projects: initial research & strategy (aka “Discovery”), design spec, design, development & launch.
+			- 4.2 Project Types
+			- I explain all this to show that what I uniformly label as “projects” actually come in many different types. On two simultaneous engagements, my company might handle completely different kinds of work.
+			- On some projects, we only do dev. Others, we do only design.
+			- Some, we've done wireframes (initial outlines of designs), let another firm do final designs, and then handled dev.
+			- Once, I ran Discovery and formulated a design & tech spec, which the client turned into an RFP and opened for bidding. I then lost the bid process and had nothing to do with rest of the project.
+			- When I say “project lifecycle,” I’m referring to the full extent of my own shop’s involvement in the project.
+			- As you can see, that’s sometimes only one phase, and sometimes it’s every last aspect.
+			- 4.3 The Client
+			- The job I’m outlining here was the full-service sort. A family of four outsourced HR firms (I call them Companies X1, X2, X3, and X4 below) had retained a major NYC agency to conduct a Discovery round and propose a plan for complete rebrand and web redesign.
+			- Assuming the plan was half decent, the agency would’ve transitioned directly into the $150k rebrand/redesign/development project.
+			- In fact, the big agency treated the HR firms like small potatoes and gave them a boilerplate plan. HR firms balk; big agency gets fired; LouieG & Friends step in to the save the day.
+			- The HR firms wanted my company to start from scratch. We’d run a new Discovery phase, create our own plans for branding and web redesign, and then get all the branding / design / dev work, provided our plans didn’t blow.
+			- (No need to worry about that big agency. They picked up where they left off: Handling branding and websites for companies with multibillion dollar market caps.)
+			- 4.4 Discovery Phase
+			- The purpose of a Discovery Phase is to A) identify specific project goals, B) create a list of content-to-create / features-to-develop that satisfies those goals, and then C) bend the content & features until they fit within the client’s budget and (when applicable) technical capacities.
+			- The deliverable is usually some combination of:
+			- —Website plan: A written doc including content overview, page templates, feature set & functionality, and information architecture map
+			- —Design overview: Describing the style of web design and likely design elements; look for words like “playful,” “modern / clean,” “spacious,” “savvy,” “humorous,” “aspirational."
+			- —Branding plan (when branding is in scope): Similar language and intent to the design overview. Also includes a list of branding assets to make: logo, brand guidelines, letterhead, business cards, email signature.
+			- —Tech specs: CMS / hardcoded? Stripe / PayPal / Authorize.Net? Responsive web design? Retina ready graphics? If there are ambiguous functions or workflows, this is an opportunity to spell out how they’ll work, step-by-step.
+			- Discovery isn’t a necessary part of every project. If the client comes to me knowing what they want in every detail, I skip it.
+			- If they’re expecting me to generate ideas, I'll insist on a Discovery phase. Finding/refining ideas and getting them approved by the client is a time-intensive process that absolutely should be built into a project’s pricing and timeline.
+			- With regard to the specific project I’m discussing—I won’t say much about contracts here, but as a note on process, we began with a $6k deal for 60 hours of discovery work. $4k on signature, $1k on delivery of rough draft plans and final draft plans.
+			- No guarantee we’d get a dime beyond that, although we & the client were hoping the relationship worked out.
+			- So this particular Discovery phase went as follows:
+			- Meeting 1: Kickoff
+			- Actually, five kickoff meetings: one with the stakeholders from all four sister companies, then breakout sessions with the individual companies.
+			- A well-run kickoff meeting includes a lot of ‘handwaving’—business jargon for shit you do simply for appearances, to reassure the client you’re doing job. We explained the Discovery deliverables, outlined our process & the meetings we’d conduct, and spoke about our belief in the importance of doing good work andreally listening to clients.
+			- The client, for their part, bitched about their poor treatment from the previous agency, complained about their self-evidently terrible websites, and told us how they believe in doing good work and really listening to clients.
+			- Signal-to-noise was 1:100. Kickoff meetings are like that.
+			- The important thing was that, somewhere amidst all the platitudes, we impressed upon them that we actually gave a shit. There’s a lot of politicking in this job.
+			- Meeting 2: Branding
+			- Later that week we had Branding discussions with all the companies. These are pretty fun, as meetings go. We ordered a keg to their office and once everyone was a couple in, started breakout sessions with the companies.
+			- Typical structure for branding meetings is for the agency to ask a question, then go around the room and listen to all the answers. If you’re a stickler for accuracy, you might require participants to write their answers to the questions beforehand.
+			- Typical branding questions:
+			- —If Company X were an animal, what animal would it be?
+			- —Circle five words that represent Company X’s brand, as it exists today: cause, invent, plan, stimulate, gamble, accomplish, respond, nurture, sex, win over [list continues…]
+			- —What does Company X stand for?
+			- —What reputation would you like Company X to have in three years?
+			- And so on. The animal one is the classic branding question.
+			- If this sounds silly, it turns out to be surprisingly useful; not least because it makes the client feel like they’ve really let loose and been heard.
+			- Meeting 3: Web Strategy
+			- Same as branding: four breakout meetings with the separate companies. Again, it was mostly us asking questions and listening. No keg this time.
+			- Questions included:
+			- —Who’s your website's target audience? Does the site need separate—the term of art is silo’d—areas for different types of clients?
+			- —Is this site a “digital calling card,” or should it actually have some useful functionality?
+			- —What design characteristics do you want to see? (sophisticated, playful, aspirational, refined, etc.)
+			- —Which of your competitors have good websites? What do you like about them?
+			- —What pages from your current site should we keep? How should we change them?
+			- —What new pages / sections would you like?
+			- —How much time does your company have to update the site? This one's important and overlooked way too often—every company wants a blog and a social component and Employee of the Month / Quote of the Day / Tip of the Week section that will require continual updates. 1 in 50 has the manpower to actually maintain that shit. Always flag for clients where their ideas are committing them to lots of extra work.
+			- During initial Discovery meetings, I refrain from offering any meaningful recommendations. To wrap things up, I tell the client I've learned a ton and will get back to them soon.
+			- Meeting 4: Tech Team
+			- These companies had a couple in-house devs. We met with them and asked their thoughts on choice of CMS, whether they saw any roadblocks in redeveloping and deploying the websites, whether there were any other digital assets we should consider during Branding work.
+			- This was useful for two reasons:
+			- 1) They raised a couple technical issues that later caused me to revise my estimate upwards.
+			- 2) During sales and Discovery, it’s wise to sniff out stakeholders (people on the client-side who have an interest and / or voice in the process) who don’t attend the meetings with you & your team. In big organizations, there will be a few.
+			- I knew these developers would eventually review my development plans and pricing, so I wanted to show them I’m a decent guy who knows his shit, more or less. Again, politicking.
+			- Meeting 5: First Draft Plans
+			- Based on those meetings, we put together website & branding plans for all four companies. For each one I used this outline:
+			- Website
+			- —Key Goals: 4–5 bullet points; very general and bullshit-y. “Drive home Company X’s status as an elite HR agency”; “Provide potential clients an entry point for starting a relationship with Company X.”
+			- —Website Sections: Same as the template list I outlined in [Part 3](http://www.rooshvforum.com/thread-29744-post-576830.html#pid576830), but more descriptive. Example: Instead of saying the homepage has a rich text block, I’d say it features “a succinct, compelling expression of Company X’s services and value props.”
+			- Branding
+			- —Key Brand Goals: 4-5 bullets. “Company X stands out as a company of awesome people who understand how to do X, Y, and X in a high-touch, personal style.” “Appeal to disparate clientele by walking a fine line between humor and professionalism.”
+			- —What Company X Offers: 2-3 bullets
+			- —What Sets Company X Apart: 2-3 bullets
+			- —Brand Challenges: 2-3 bullets. “Must counter negative perceptions that…” “Must convey that Company X is elite and worth a premium price.”
+			- —Branding Deliverables: What we’re gonna produce. A typical list is brand guidelines, logo, and business cards / letterhead / email signatures.
+			- I’m a fan of sprinkling these documents with quotes lifted directly from previous meetings with the client. Put them in quotation marks to be clear about what you’re doing. It feels lazy but people love it—imagine how you’d feel if some consultant picked your words to encapsulate a key point about your company.
+			- We had a round of face-to-face meetings to get feedback on these plans. That gave the client a chance to say “we don’t need this website feature” or “you forgot this branding deliverable”—essential to know, as we were getting close to creating a contract for the actual branding / design / dev work.
+			- From a client relations standpoint, this was also a chance for them to ooh and ahh over how well we understood them.
+			- Meeting 6: First Draft Plans
+			- We revised the plans docs based on their feedback, then discussed over conference calls. Little different from the previous round.
+			- Meeting 7: Ballpark Proposal
+			- Created a ballpark proposal along the lines of what I described in the last post. Because of the size of the job, this monstrosity was 25+ pages. Contents:
+			- 1) Overview
+			- 2) Services for Company X1
+			- —Website design: frontend features & content, design process
+			- —Web copywriting
+			- —Web backend development
+			- —Responsive development (they had some very specific reqs here)
+			- —Branding: Deliverables and process
+			- 3, 4, 5) Services for Company X2, X3, X4
+			- —Same as above with minor variations as needed
+			- 6) Process
+			- —Which meetings would be in person vs. conference calls
+			- —Which of my staff would be involved & how. It’s common to stipulate that certain key deliverables must be created entirely by a senior designer, while others can be delegated to junior folks.
+			- —Rough timeline, plus giant disclaimers that this could be changed later
+			- 7) Client Responsibilities
+			- —Client had to provide current branding assets, give us internal market research docs, give us access to key personnel, pay for various 3rd-party fees
+			- 8) Payment
+			- —Fixed price
+			- —Milestones
+			- —Hourly work agreement - for incidental design or dev work they might want along the way
+			- Since it included prices, this document required a ton of prep work. A ballpark estimate isn’t binding, but you’ll look extra bush-league if you revise your numbers significantly upward between the ballpark and the actual contract (unless the client expands scope). So we approached this as we would a final draft.
+			- My creative director and I handled estimates for each design and branding deliverable.
+			- I had my lead developer and my best frontend and backend junior devs independently do estimates for the dev work, then had a long meeting with all of them to hash out the discrepancies in their numbers.
+			- I then fit those hours estimates to a months-long schedule to make sure we weren’t committing to anything that exceeded the company’s bandwidth.
+			- We presented the ballpark only to the C-level leadership of all four companies. They had some sticker shock, which we tamped down by explaining how much work is involved a project this big—clients always underestimate the difficulty of what they want.
+			- Other than that, no real criticisms.
+			- Meeting 8: Final Proposal
+			- Double checked our estimates and schedule, added a signature page to the ballpark, and sent it back to client. End of discovery.
+			- Total time elapsed: About six weeks. Could’ve been condensed 40% if the client responded faster (often the case).
+			- 4.5 Branding Phase
+			- The good thing about a comprehensive Discovery is that, once it’s done, I can skip the kickoff discussions that would typically begin a Branding or Design project. I’ve already got all the information I need.
+			- For this branding phase, we’d promised to prepare four things for each company
+			- —New / ‘refreshed’ logo
+			- —Letterhead
+			- —Business cards
+			- —Email signature
+			- Normally, a rebranding project entails preparing a “brand guidelines” document which would’ve added many hours & thousands of dollars to the price. Guidelines are useful for clients because they explain all the decisions behind your branding work and give examples of how to create more branded materials. Working off the guidelines, low-cost designers can create easily create brand-consistent work.
+			- This client decided to pass on that because the above deliverables, plus the web redesign, pretty much covered all their needs.
+			- If I’m doing it right, the structure and approximate schedule of Branding and Design are stipulated in the contract, and that determines the flow of both phases.
+			- Our contract promised 3 concepts of the logo & 5 revisions of the chosen logo concept, plus 2 concepts of the other deliverables and 3 revisions. My Creative Director had to take primary responsibility for all concepts and the first revision. After that, the changes requested were much smaller, and we could pass the work to a cheaper designer.
+			- The timetable looked like this:
+			- Meeting 1: Logo Concepts for Company X1 & X2 – Ten days after signing the contract, we gave an in person presentation of all logo concepts for the first two brands.
+			- Meeting 2: Logo Concepts Feedback – Two days later, we had a conference call to receive feedback.
+			- Meeting 3: Logo Revisions #1 – Two days after that, we turned around revisions of the client’s chosen concepts. Face-to-face presentation.
+			- Meeting 4: Logo Revisions #1 Feedback – Two more days, and we got feedback on a conference call.
+			- Meeting 5: Logo Revisions #2 & Feedback – At this point, we were making minor adjustments and the client was comfortable giving feedback immediately during the presentation meeting.
+			- After that, we continued turning revisions around every 2-3 days until we got through the five rounds of revisions promised in the contract.
+			- And in fact, we may have done more than five rounds—that number is specified in the contract to protect against clients making endless, unreasonable demands. I suggest not being a stickler about contractual points until it’s absolutely necessary to stay on schedule & budget.
+			- Once the client chose a concept, we started a similar Concepts-Feedback-Revisions pattern for the letterhead, cards, and email sigs. We presented concepts and first revisions in person, then switched to conference calls. Turnaround time on revisions was similar, 2 or 3 days.
+			- Start to finish, it took us about 5 weeks to reach final versions of all branding deliverables for the first two companies.
+			- Then we started over and did the same process for the other two companies.
+			- Branding on a fixed-price project is risky because what constitutes a good logo / business card / [insert other brand asset] is subjective and the designer has limitless options.
+			- Web design is also subjective, but options are constrained by functional requirements (must have a navbar, has to work on certain screen sizes, must be buildable within client budget) and existing brand guidelines govern most of the aesthetic choices.
+			- To protect ourselves, we spent a lot of time (gently) explaining a couple ground rules for branding:
+			- 1) We’re the experts. Our ideas are good and will work, even the client doesn’t see it right away.
+			- 2) The client is responsible for conceptual feedback (“this feels too edgy,” “needs to be more striking”) but not specific design ideas (“add some flames in the background”). If you let the client dictate by telling you what to design, the process will never end and/or the final product will be awful.
+			- Even so, we hit a snag when the President of one of the individual companies would not get onboard with any of our logo concepts.
+			- That’s when the early politicking becomes handy. I was buddy-buddy with the owner of all the companies, and I was able to have a frank conversation with him about the trouble this guy was causing us. He intervened and we got back on track.
+			- 4.6 Web Design Phase
+			- Web design follows a pattern very similar to branding: Present concepts of all page templates, let the client choose, and then proceed through the allotted number of revisions until the client’s happy.
+			- To add another layer of organization, in the contract I’ll define which templates are “primary” and “secondary.” Primary templates are designed first, and get more concepts and revisions.
+			- The sites we built in this project were fairly basic in structure—for simplicity’s sake, let’s say each had 8 templates: homepage, basic internal, and then a “listing page” and “detail page” for three sections.
+			- (FYI, listing & detail templates are very common in website structures. As one example, the main page of a blog is a listing page, since it lists all the posts. The page for a single blog post is a detail page. Another example: A page that shows portraits of everyone who works at a company is a listing page. Click on a portrait and you get a bio of the individual—that’s the detail page.)
+			- For each site, I divided the primary & secondary templates like this:
+			- Primary
+			- —Homepage
+			- —Basic internal
+			- —Listing & Detail (one pair)
+			- Secondary
+			- —Listing & Detail (two pairs)
+			- Primary templates got 3 concepts and 3 revisions as wireframes, and then 2 concepts and 5 revisions as mockups. See [here](http://www.wirify.com/wp/wp-content/uploads/2011/02/The-New-York-Times-Original-vs-Wirify-wireframe.jpg) for an example of a wireframe (right) vs. a mockup (left). Creative Director was responsible for all concepts and first revisions.
+			- Secondary templates got 2 concepts and 3 revisions as mockups only. Creative Director only had to provide guidance on these.
+			- The Design phase schedule looked like this:
+			- Meeting 1: Present concepts for homepage & basic internal wireframes
+			- Meeting 2: Feedback
+			- Meeting 3: Present revisions of homepage & basic internal wireframes
+			- Meeting 4: Feedback
+			- Meeting 5:
+			- —Present revisions of homepage & basic internal wireframes
+			- —Present wireframe concepts of primary listing & detail page
+			- Meeting 6: Feedback
+			- Meeting 7:
+			- —Present homepage & basic internal mockup concepts
+			- —Present primary listing & detail page wireframe revisions
+			- Meeting 8: Feedback
+			- Meeting 9:
+			- —Present homepage & basic internal mockup revisions
+			- —Present primary listing & detail page mockup concepts
+			- Meeting 10: Feedback
+			- Meeting 11:
+			- —Present homepage & basic internal mockup revisions
+			- —Present primary listing & detail page mockup revisions
+			- —Present secondary listing & detail page mockup concepts
+			- —Feedback
+			- (At this point we started wrapping presentations & feedback into the same meeting)
+			- Meeting 12:
+			- —Present homepage & basic internal mockup revisions
+			- —Present primary listing & detail page mockup revisions
+			- —Present secondary listing & detail page mockup revisions
+			- —Feedback
+			- Meeting 13:
+			- —Present homepage & basic internal mockup revisions [final round]
+			- —Present primary listing & detail page mockup revisions [final round]
+			- —Present secondary listing & detail page mockup revisions
+			- —Feedback
+			- Meeting 14:
+			- —Present secondary listing & detail page mockup revisions [final round]
+			- —Feedback
+			- And then, send over JPGs of final designs so the client has a record what they’ve agreed to.
+			- There were likely some emails traded after that last meeting to adjust details here and there. Potentially out-of-scope as per the contract, but I’ll always honor requests like that, provided they don’t require much time.
+			- We went through that 14-ish meeting process with two companies at a time. After the first few rounds, I would drop out and let the Creative Director and Head of Strategy take over. Later meetings were all conducted by phone.
+			- After we finished the first two companies, we repeated with the next two.
+			- Web design work began immediately upon wrapping a company’s branding deliverables. Similar to branding, it took about 5 weeks per site.
+			- 4.7 Copy Phase
+			- Basically the same as web design & branding, only with a lot fewer rounds. The Head of Strategy oversaw this process.
+			- Once the client chose a concept for a page template’s mockup, the Head of Strategy would start writing the necessary copy—or assign it to a freelancer he regularly works with.
+			- For copy, we set the limit at one concept, two revisions. Review meetings were wrapped into the web design meetings outlined above.
+			- Copy isn’t a standard part of web design and I’ve only done two big budget projects where it was requested. Based on that limited sample, my observation is that clients are less particular about copy than about graphic design, and you can push through the copy phase with a lot less fuss & revising.
+			- 4.8 Web Development
+			- My wheelhouse.
+			- Until this point, my role was limited to setting schedule & hours budgets, handling client communications, putting together the contract, sending invoices when necessary, and remaining visible / available to the client. The feedback I gave to the Creative Director and Head of Strategy was limited and very high-level (when I gave it at all).
+			- During the Dev phase, all final responsibility rests with me.
+			- To start web development, I’ll review the designs and tech requirements and create two schedules:
+			- 1) One schedule lists all the tasks to be accomplished during development, in the approximate order they should be tackled. Templates to code, functionalities to enable, dev / test sites to configure.
+			- This list is extremely granular and goes on for pages, even on simple sites. Along with each task I list the hours required.
+			- (I say “I” do this—really, it’s usually the lead developer.)
+			- 2) The second schedule shows which tasks should be finished each day. I’ll check this schedule several times per day to make sure the devs are keeping pace.
+			- These schedules give me specific target dates for each step of development.
+			- To the client, I’ll provide more general timelines: test site will launch [this week], QA will require [this many weeks], expect to launch [on or around this date].
+			- For this project, all four sites were straightforward and, best of all, very similar. That meant that after we developed the first one, we could reuse large chunks of code for the others.
+			- My estimates were at least three weeks of full-time development for the first site, and no more than two for the rest. For each site, one dev would handle both frontend & backend.
+			- As development progressed, I would send the client a couple updates per week. Their involvement was over at this point, but you never want complete radio silence.
+			- The rough timetable for development looked like this:
+			- Week1: Full time dev on Company X1
+			- Week2: Full time dev on Company X1
+			- Week3:
+			- —Full time dev completes Company X1
+			- —Full time dev starts Company X2
+			- Week4:
+			- —Launch test site for Company X1; QA, content insertion, & client review
+			- —Full time dev completes Company X2
+			- —Full time dev starts Company X3
+			- Week5:
+			- —QA, content insertion, & client review for Company X1 wrap
+			- —Launch test site for Company X2; QA, content insertion, & client review
+			- —Full time dev completes Company X3
+			- —Full time dev starts Company X4
+			- Week 6:
+			- —QA, content insertion, & client review for Company X2 wrap
+			- —Launch test site for Company X3; QA, content insertion, & client review
+			- —Full time dev completes Company X4
+			- Week 7:
+			- —QA, content insertion, & client review for Company X3 wrap
+			- —Launch test site for Company X4; QA, content insertion, & client review
+			- Week 8:
+			- —QA, content insertion, & client review for Company X4 wrap
+			- Week 9, 10:
+			- —Set up hosting, analytics, webmaster tools in prep for launches
+			- —Lead developer does final checks on our work vs. best practices
+			- —Otherwise, holding pattern: client wants to do some press shit and internal prep ahead of simultaneous site & rebranding launch
+			- Week 11: Launch
+			- —We handle the website launches. Client’s responsible for deploying branding however they want.
+			- Note that the first few weeks of this schedule overlapped with the last weeks of web design for Companies X3 & X4.
+			- I personally do a broad-strokes internal QA on all sites we launch. I also hire QA & content insertion “specialists” to vet very fine details.
+			- I’ll set up a few review meetings with the client to get their feedback on the test site. In theory, unless something is truly broken, my company isn’t responsible for changing it. In practice, I’m lenient on that (partly because my estimates always account for some out-of-scope client requests in the run up to launch).
+			- I also hold training sessions for CMS-based sites and provide my standard instructional documents for Magento / WP / Drupal.
+			- 4.9 Ongoing Maintenance
+			- Almost without exception, clients want to change or add to their site once it’s launched. Feedback from business partners or family members or employees that weren’t involved the redesigns will give them brilliant new ideas, or make them rethink stuff they thought was brilliant before.
+			- In anticipation of these second thoughts, plus general ongoing design / dev needs, I push to set up hourly retainer agreements after the fixed price work is done. It’s easy for even small clients to burn through $1k monthly retainers.
+			- In the project described above, the client signed a $3k retainer, which thus far they’ve used mostly for design work on posters, infographics, holiday party invitations, and other non-web stuff.
+			- Retainers are great. My shop, even with it’s limited time in business, already gets a substantial revenue each month from its retainers. And on average retainer work is easier than initial development, and can be assigned to junior (i.e., low cost) devs and designers.
+			- 4.10 Finish
+			- So that’s a really large project, from start to finish.
+			- It’s important to go into any project with a clear understanding of what each phase will entail, because:
+			- 1) It helps you check that you’ve got the time and staffing for all your projects
+			- 2) When formulating estimates, you need to know how many meetings / concepts / revisions / miscellaneous tasks are required between kickoff and launch. If you don’t foresee the full complexity of every phase and each deliverable, the tendency is to underestimate and whittle away your margins.
+			- 3) Clients love to talk procedure. They’ll ask: What’s the process for Design? What’s involved in development? How long between launching the test site and launching the live site? Be ready to answer these questions like a seasoned vet, and you’ll impress + reassure them.
+			- 4) Having a plan lets you set the agenda. You should always be scheduling the next meeting and defining the next deliverable/goal. Clients hire you because they’re unfamiliar with this shit. They’re in a vulnerable, uncertain situation and they want to be led! (One among many similarities between managing clients and gaming girls.)
+			- Of course, process varies and has to be tailored to each project. For my first few jobs, the process described here would’ve been sandblasting a cracker.
+			- In the next—and much shorter—post, I’m going to outline a scaled-back version of the above that I use on small projects. After that I’ll do a few posts on staffing, pricing, & mechanics of day to day work.
+			- RE: Digital Project Management: Programming for hustlers
+			- speakeasy Wrote:I have a question, how is your business structured? Are you a sole-proprietor? Did you incorporate?
+			- My company is an LLC, on the advice of a lawyer.
+			- At the time he explained why this was a good idea, but it was in one ear and out the other, so I can’t speak to the wisdom of an LLC vs. S-corp vs. C-corp vs. sole proprietorship.
+			- speakeasy Wrote:Also, what about getting clients remotely? I was recently perusing job ads on craiglist for developers of all sorts and I notice over and over that employers mention in their ad, "This is an in-house position only, don't waste our time if you are a contractor or agency or live outside the country”.
+			- While I was living in Malaysia, my strategy was to spend a short period at home making contacts with lots of potential clients, then go abroad and follow up on those leads remotely.
+			- Some leads came through, and some that came through led to referrals. The referral clients contacted me knowing that I worked abroad and that I did good work anyway.
+			- If returning home weren’t an option, then I would start by working my connections in the U.S. and cold approaching clients in cities where I’ve lived.
+			- As with job descriptions, RFPs will list tons of 'required' characteristics the client wants in a contractor, and you can still feel confident if you only satisfy 60% or so. But some requirements you'll recognize as actual deal breakers, and my inclination is that if someone's specifying they'll only consider domestic shops, they mean it.
+			- The beauty of the cold approach is that you’re contacting people who haven’t already decided their web dev contractor must have characteristics X, Y, and Z (locally-based, years of experience with whatever CMS, an in-house creative director, etc).
+			- speakeasy Wrote:Also, what are you thoughts on using freelancer sites like elance, odesk, etc for those getting started? Is it worth trouble? What about using those sites to find coders?
+			- Never tried it myself.
+			- My understanding is that on eLance you submit a simple RFP, coders respond with proposals, and then you pick among them.
+			- That doesn’t fit my model because I don’t hire coders for specific projects. Or, I may if a project demands a specialty none of my guys have, but the plan will generally be to keep the coder onboard after that.
+			- My other concern— before making an offer, I interview a candidate twice and my lead dev interviews him once + administers a test.
+			- Do eLance or oDesk allow for a process like that? If not, I’d steer clear, or try to get the prospect's contact info and vet him outside the site’s system.
+			- kaka Wrote:I do have one suggestion my friend, perhaps you could post a glossary or explain the terms you are using?CYA, CMA, RPFs, OTOH, B2B...
+			- BoneDaddy already got all these.
+			- The one thing I’ll add is that CYA, along with standing for “Cover Your Ass,” is a key principle of project management (probably of running any business). Though it’s important to provide great client service and accommodate all sorts of annoying little requests with a smile, you also have to protect yourself from unreasonable demands and accusations that you fucked something up when you didn’t.
+			- So, for instance, after every meeting or phone call, I send an email summarizing all decisions of any importance. On several occasions I’ve had to dig out these emails and tell a client, “No, that’s not what we agreed to…”
+			- Similarly, my contracts are almost ludicrously detailed. That’s because the difference between My Understanding of Minor Feature X and My Client’s Understanding of Minor Feature X could mean days of development time. Better to make sure they agree to My Understanding at the outset.
+			- VincentVinturi Wrote:What do you pocket after a project like this Louie?
+			- Ha. Kinda catching me off guard here. I still haven’t done a proper accounting and hours reconciliation for that project. Business administration is an area where I could improve.
+			- Based on a quick check of my invoicing / time-tracking system, here’s what I’m seeing:
+			- + $6k Discovery
+			- + 145k Branding, Web Design, Dev phases
+			- – 6k Discovery (to be conservative, I’ll assume my Creative Director / Head of Strategy / Lead Dev’s hourly rates ate up all 6k)
+			- – 18k Branding (design)
+			- – 7k Branding (copy)
+			- – 21k Web design (designers)
+			- – 4k Web design (creative direction)
+			- – 12k Web design (copywriting)
+			- – 15k Development (developers)
+			- – 4k Development (quality assurance)
+			- – 7k Development (lead developer)
+			- – 3k Expenses (dinner / drinks with client, cabs, sample branding materials - a guesstimate and probably high)
+			- ————
+			- +54k
+			- Which is a healthy markup. But a question I need to investigate further is: When you divide that number by the many hours I put into the project, how does it compare to my $20k dev projects, some of which are 'set it and forget it' once I hand the work off to coders?
+			- I suspect that on an hourly basis, I personally earn more off the smaller, simpler projects.
+			- The true payoff of the job described above is over the longterm. That’s a serious portfolio piece which I’m already leveraging in some exciting ways.
+			- FunctionalPsycho Wrote:BTW how do you handle the legal stuff? Is there a need to register as a company for working with online-only and offline clients ?
+			- Not sure if there’s a need, strictly-speaking.
+			- I will say that I spent a large chunk of the money earned from my first two projects to get my business in order, legally speaking. I hired a legit lawyer to help with structuring the business, draw up contract templates, create a standard Terms & Conditions document, and give some general advice on keeping the operation on the right side of the law.
+			- To me that was money well spent, if only for the peace of mind.
+			- Then again, I’ve never been sued or had a contract dispute that required lawyers getting involved, so perhaps I could’ve done without.
+			- RE: Digital Project Management: Programming for hustlers
+			- Thanks to everyone who asked questions & sent PMs while I was away. I’m gonna work my way through each of those.
+			- As to why it’s taken me three weeks to post again…
+			- 10 percent of the delay was me [fucking around](http://www.rooshvforum.com/thread-30226-post-584132.html#pid584132); 90 percent was due to an unexpected short-term gig that’s winding down this week. It’s been a huge time sink, but also enlightening and directly relevant to this thread.
+			- The backstory is that a few months ago, I met a guy who’s a principal at a prominent NYC digital agency that handles web design and coding. I told him about my little no-name shop, and it turned out I’d done a modest web design/development project with lots of similarities to a major engagement his agency was then beginning.
+			- Fast forward to mid-November. We’d emailed a couple times since meeting. Nothing past that. Out of the blue he called and asked to get drinks ASAP.
+			- We met that evening and he gets right down to brass tacks: the project he told me about is going splendidly, except that it’s massively off schedule. As in, his estimated launch date for the website was eight months later than what the contract stipulated. Mind, this project had only been under way three months!
+			- I had to laugh. That is a royal fuckup that could only stem from a mixture overconfidence and total negligence.
+			- We talked about how this happened, and sure enough, his agency and the client agreed to a project schedule that “felt” right without sitting down to assess the deliverables and the time needed to complete each.
+			- That’s problematic on a $5k project. This is (guesstimating) a $500k project. Shit was going down. The client already hired people who won’t have anything to do when their contracts start, because the site won’t be ready. Board members were intervening, jobs were supposedly in jeopardy, and obviously all those involved were sweating bullets.
+			- The night after we got drinks, I met with the client and some folks from the agency. They offered me a consulting contract to help get the project back on track.
+			- Which was funny, because everybody else in that room had years of experience in this industry that I don’t have.
+			- So along with tending to my own projects, I spent the last few weeks helping them. Broadly speaking, the process was something like this:
+			- A) Discovery meetings –The agency conducted a brief discovery phase that left major questions unanswered. Critical, complicated functionalities were never discussed.
+			- You don’t necessarily have to explain to the client how you’re going to code every functionality, but you always need to discuss the user experience for any non-trivial function. Those discussions should produce a flowchart showing all possible outcomes, or at least a step-by-step walkthrough of the main outcomes.
+			- For instance, the site they’re building will have news and informational articles. Registered users can save favorite articles in their account dashboard. Thatcould work a number of ways:
+			- Option One: User clicks “save” icon on an article. Page title & link are added to their account dashboard under a list called “Saved Articles.” End of process.
+			- Option Two: User clicks “save” icon on an article. A pop-up prompts the user to give the saved page a custom title. The custom title and link are added to their account dashboard under a list called “Saved Articles.” End of process.
+			- Option Three: User clicks “save” icon on an article. They are redirected to their account dashboard, which includes a list called “Saved Articles.” Within “Saved Articles,” the user has created multiple subfolders. The user picks a subfolder for this latest article and confirms the save. End of process.
+			- …and so on, through 500 possible permutations. A key goal of discovery is to decide which process is right for the site and commit it to paper. Then you design according to the written specifications.
+			- Well, that didn’t happen in this case. Instead, they were figuring out these processes as they designed the site’s many, many templates. Each time the client or agency changed their mind about a process, it required the agency alter the designs of multiple page templates.
+			- That’s a hugely time consuming process. It adds extra revisions to the design process and distracts the client from what they should be focused on—whether they’re happy with the look & feel of the designs.
+			- Unsurprisingly, their design phase was proceeding at a glacial pace.
+			- To rectify this, we (me & the agency’s guys) held dozens of additional discovery meetings with individual stakeholders and created detailed spec documents describing every template, feature, and function.
+			- Then we turned those documents into directions for the agency’s designers. That will streamline their design work and make it much easier for them to satisfy the client’s expectations in only a few rounds of revisions.
+			- This could easily have been done in the beginning of the project. That it wasn’t had already wasted a month, easy.
+			- B) Responsive tech review – The site will be responsive with three breakpoints. That is, it will have versions tailored to desktop, tablet, and phone. Try resizing the your browser window on [this page](http://foundation.zurb.com/) to see what this means.
+			- The hardest possible way to create a responsive site is to make separate wireframes and designs for each breakpoint.
+			- The easier way is to use a responsive theme or framework. In simple terms, this method uses ready-made code to automatically rearrange & resize your desktop design so it looks good on tablets and phones, too.
+			- Astoundingly, the agency had planned to do it the hard way. That was unnecessary for at least 75% of the site’s templates. My lead developer helped them create a responsive plan that drastically reduced the design & dev work for mobile platforms.
+			- C) Rewriting the project schedule – With mobile design & dev simplified and many of site’s details clarified, we wrote a new project schedule.
+			- Because the design phase will no longer be so “exploratory,” we were able to cut 1-2 rounds of revisions from nearly all templates. Using a responsive framework will save weeks if not months on coding.
+			- The original target launch date was hopelessly optimistic, so the site will still go live months later than hoped. But not eight months—more like four or five.
+			- Moral of the story...
+			- My point here is twofold:
+			- 1) Project management doesn’t require expertise in any particular discipline. What it requires is that you be meticulous and think critically about the work your team does.
+			- I’m no expert on responsive development or user-experience design. Far from it.
+			- But I hire people who are, and I know how to ask them questions to make sure they leave no stone unturned in their thinking. Between my attention to detail and their expertise, we create good project plans, good concepts, and ultimately good websites.
+			- Valhalla Wrote:Am I the only one here who's read this and still confused on how to start?I have no experience with wordpress or making websites.
+			- 2) If you don’t know shit about making websites, don’t worry. You won’t be alone in that regard.
+			- The most interesting part of these past few weeks was talking with highly-regarded web dev professionals about all the ways they fucked up on this project. And I can’t help but think I would’ve done better, even though some of their past work makes my best work to-date look like fucking Geocities sites.
+			- The agency’s lead guy on this job is a veteran creative director with major programming bona fides. On paper, you couldn’t be more qualified to run a project like this one. In fact, he still was in completely over his head.
+			- But, props to him—whatever his faults, they didn’t prevent him from landing this half-million dollar deal. He took the job and when he found a snag he couldn’t handle, he hired someone () to handle it for him. And although he paid me well, my cut was a pittance compared to what he and his agency will walk away with.
+			- That’s what I’m advocating here. It’s not programming or design or any specialized skill set—it’s plain old arbitrage. Sell a client on a website, build as much as you can, hire people to do the rest, pocket the balance, and repeat.
+			- After the last couple weeks, I’m more convinced than ever that if you understand that process, you already know more than enough to begin.
+			- ——
+			- That said, I’m working on a post outlining a simple project lifecycle, and then one explaining how you find and hire programmers (or other experts). Those and PM responses are coming this weekend, honest injun.
+			- ——
+			- P.S. I appreciate all the encouragement w/r/t to selling this info somehow. To tip my hand, I do plan on monetizing it eventually, tho I’m undecided on whether a paid info product or content marketing material for my business is the route I wanna try first.
+			- In either case, this forum gives me a perfect venue to put down my thoughts in rough draft form and get feedback on what’s most useful and what’s missing.
+			- Step 1: Create an impressive agency website.
+			- Step 2: Build a portfolio by doing very cheap work for family, friends and acquaintances. At this point you're running at a loss but consider it an investment in your business. Invest in building strong relationships with developers and designers, and use good ones.
+			- Step 3: Once your portfolio is impressive, figure out a strategy to get leads. Work on it to the point where you're getting a steady inflow of leads. Figure out a sales strategy that consistently works for you.
+			- Possible strategies include-
+			- PPC advertising.
+			- SEO.
+			- Networking.
+			- Cold Calling.
+			- Etc. Figure out what works for you and get good at that advertising method. Also the more clients you get the more repeat work and referalls you'll get.
+		- Domain Selling
+			- (4:55:58 PM) Greg: fuck.photography
+			- (4:55:58 PM) Greg: fuck.solutions
+			- (4:55:58 PM) Greg: fuck.training
+			- (4:55:58 PM) Greg: fuck.academy
+			- (4:55:58 PM) Greg: fuck.agency
+			- (4:55:58 PM) Greg: fuck.education
+			- (4:55:58 PM) Greg: fuck.international
+			- (4:55:59 PM) Greg: fuck.institute
+			- (4:55:59 PM) Greg: escort.rentals
+			- (4:56:00 PM) Greg: escort.review
+			- (4:56:04 PM) Aaron: early bird gets the worm
+			- (4:56:13 PM) Aaron: fuck agency
+			- (4:56:21 PM) Aaron: theyre all pretty genius
+			- (4:56:34 PM) Aaron: some porn studio is gonna realise and try to buy em up
+			- (4:56:43 PM) Greg: there is room for speculation still on those
+			- (4:56:50 PM) Greg: fuck was the first thing to come to mind
+			- (4:57:08 PM) Aaron: sex, life, world
+			- (4:57:21 PM) Aaron: men
+			- (4:57:26 PM) Aaron: male
+			- (4:57:41 PM) Aaron: mobile
+			- (4:57:42 PM) Aaron: business
+			- (5:14:52 PM) Greg: did you change the login for techscape?
+			- (6:07:29 PM) Greg: wait till you see my new domain names
+			- (6:07:30 PM) Greg: fuck ya
+			- (6:08:14 PM) Aaron: let me guess
+			- (6:08:19 PM) Aaron: 20 more fucks?
+			- (6:08:58 PM) Greg: i found a great system - i look up the name on godaddy, where they charge sometimes 2000 or more for a domain, and buy from techscape, where they charge 250,000 rupiah or 450,000
+			- (6:09:10 PM) Greg: godaddy has good suggestion system
+			- (6:09:19 PM) Greg: and gives me some idea of valuation too
+			- (6:10:29 PM) Aaron: nice
+			- (6:10:47 PM) Aaron: did u get some worth thousands? :O
+			- (6:13:01 PM) Greg: creditcards.creditcard
+			- (6:13:01 PM) Greg: freelance.photography
+			- (6:13:01 PM) Greg: girl.clothing
+			- (6:13:01 PM) Greg: girl.directory
+			- (6:13:01 PM) Greg: girl.graphics
+			- (6:13:01 PM) Greg: girl.land
+			- (6:13:01 PM) Greg: girl.shoes
+			- (6:13:02 PM) Greg: girls.clothing
+			- (6:13:02 PM) Greg: girls.guide
+			- (6:13:08 PM) Greg: girls.website
+			- (6:13:08 PM) Greg: men.gallery
+			- (6:13:08 PM) Greg: men.photos
+			- (6:13:08 PM) Greg: mobile.land
+			- (6:13:08 PM) Greg: woman.attorney
+			- (6:13:09 PM) Greg: woman.directory
+			- (6:13:09 PM) Greg: woman.expert
+			- (6:13:10 PM) Greg: women.lawyer
+			- (6:13:10 PM) Greg: world.properties
+			- (6:14:19 PM) Greg: and there are some other good ones I didn't buy yet
+			- (6:15:03 PM) Aaron: nice
+			- (6:15:15 PM) Aaron: i like .land
+			- (6:15:33 PM) Aaron: clothing and shoes
+			- (6:15:56 PM) Aaron: heh could be a pretty good business in itself doing domain arbitrage
+			- (6:16:05 PM) Greg: hope so
+			- (6:16:20 PM) Greg: the first one cost a bit more - 1.8 million
+			- (6:17:18 PM) Aaron: id try finding a bank that hasnt registered .creditcard
+			- (6:17:28 PM) Aaron: then selling it to them
+			- (6:18:45 PM) Greg: there are promoters who make big money for credit card signups
+			- (6:20:27 PM) Aaron: yup
+			- (6:20:45 PM) Aaron: they must be all expensive tlds
+			- (6:22:25 PM) Greg: women.layer on godaddy lists for 2000
+			- (6:22:32 PM) Greg: Per year!
+			- (6:22:41 PM) Greg: i got it for about $20
+			- (6:22:52 PM) Greg: same for woman.attorney
+			- (6:23:06 PM) Greg: creditcards.credit
+			- (6:23:06 PM) Greg: card lists for $1000
+			- (6:23:19 PM) Greg:    freelance.photogra
+			- (6:23:20 PM) Greg: phy lists for $250
+			- (6:23:44 PM) Greg: girl.shoes and girls.clothing lists $250
+			- (6:23:53 PM) Greg: girls.website $700
+			- (6:24:25 PM) Greg: this really is another landrush, I think
+			- (6:24:52 PM) Greg: I used to sell these on ebay
+			- (6:24:57 PM) Greg: but I would develop them first
+			- (6:25:35 PM) Greg: actually I have over 200 domains, and I should put them up for sale on some domain selling websites.  I need to hire someone to handle that
+			- (6:28:23 PM) Greg: so I now officially own the domain woman.expert
+			- (6:33:25 PM) Greg: prostitute.agency
+			- (6:36:01 PM) Aaron: layer is 2000?
+			- (6:36:06 PM) Greg: new.computer
+			- (6:36:07 PM) Greg: new.recipes
+			- (6:36:12 PM) Aaron: why is layer expensive :S
+			- (6:36:13 PM) Greg: ya
+			- (6:36:18 PM) Greg: on godaddy
+			- (6:36:41 PM) Greg: godaddy has some algorithm that knows what to charge
+			- (6:36:42 PM) Aaron: hm cant think what niche it refers to
+			- (6:37:14 PM) Greg: but the other website has lower prices.  Weird but cool
+			- (6:37:40 PM) Aaron: great arbitrage
+			- (6:37:55 PM) Greg: pussy.tv
+			- (6:37:55 PM) Greg: pussy.services
+			- (6:37:55 PM) Greg: pussy.rentals
+			- (6:37:55 PM) Greg: prostitute.agency
+			- (6:37:55 PM) Greg: prostitute.center
+			- (6:38:02 PM) Aaron: pussy tv
+			- (6:38:04 PM) Aaron: nice
+			- (6:38:21 PM) Greg: new.computer has to be worth something
+			- (6:40:18 PM) Greg:   used.clothing
+		- Repair tech
+			- Repair Tech
+			- repair tech.
+			- Eventually I'd like to go into consulting.
+			- I'll give some money makers for those of you out there that like to repair and earn money.
+			- Reballing- Most Hardware is soldered with that shitty lead free hippy crap, no no no, what you want is LEAD solder, LEAD solder is great for repairing boards. Read up on it online at engineering forums, you'll see them support Lead solder, especially the older techies. Basically you heat up the motherboard to a certain temp, and you pull the CPU or GPU that's developed cold/cracked joints, and you "reball" it with new lead solder balls. Special equipment is needed to go into this. This is how you fix the "Red Rings of Death" and the "Yellow Light of Death" on the consoles. I guarantee the new systems that just came out will have this problem eventually, so the potential money that can be earned will always be there. I've seen some half assed low lifes only offer "reflows", but that does not fix the root of the problem, Reflows do not last long because you're reusing the old solder. So Reballing >Reflow
+			- Tools Needed- Something to see the joints with (expensive camera stuff), Reballing Station, Heating Station, Flux, Tracing Pads, Soldering balls, lighting
+			- ...
+			- Phone/Tablet repair- especially anything to do with "Apple"-
+			- I come across many clients who somehow break their idevice, usually the digitizer which is easy to replace. (Buy a case for your phone, take care of your stuff, common sense folks)
+			- Again, special tools are needed, but there's a lot of money to be made from this. People are terrified of opening their devices for whatever reason, but I kid you not it's easy once you have the tools.
+			- I've seen some people who would rather buy a new device rather that get it fixed, this should be your target customers.
+			- Tools: Digitizers on hand, Digital Mulitmeter (Fused), Microtools, tools in general,practice
+			- ...
+			- Cord repair-/Laptop Chargers, Stereo Amps, Preamps, headphones, anything to do with wiring.
+			- Many patrons break their charging cables for whatever device it's used for. For Laptop Chargers, if the light is showing green on the brick but you have no charge, then the cable from the Brick to the laptop has most likely been broken somewhere. What I use to fix that is the same gauge of wire, maybe a PC Power cord, and just resolder that to the brick. (The old power tip is probably still good, just strip the sheathing to expose the soldering points) You'll need Soldering equipment of course. Same thing for USB wires of any kind, just need the wire layout (-5 v, +5v, -D, +D, G).
+			- Xbox Cables have that bulge at the end, honestly I'd just resolder new wire from the board in that to the unsheathed USB tip.
+			- Unbalanced headphones, another easy fix. doesn't matter if the entire cables been ripped as long as you have the headphones themselves and the drivers intact. Just need to resolder new wires and/or a jack to the drivers. Wire layout of course is bare copper=ground, red=right, white=left, that's usually how it's coded. There's people who's only make money soldering new wiring to headphones, and I'm talking $100-$3000+ Headphones being soldered with very expensive wire that can easily go into the hundreds for mere feets worth. If you don't believe me then check out "headfi.org" and see what the companies on there charge.
+			- You can take two faulty controllers and make one good working one from parts of both, sometimes the controllers will be different models though. Had this happen when I opened up some Dualshock and one of the sticks had one more extra joint on it.
+			- Tools, Soldering Iron(get the Hakko station if you can, adjustable temp.), Desoldering Wick or Iron, Flux, Soldering Iron cleaner (Hakko makes a good one), LEAD rosin core solder,
+			- 60%tin/40%lead should do just fine for most applications, Heatshrink multiple sizes, Electrical Tape-good brand, multiple gauges of copper wire. Wire stripper, pliers, wire cutter, scissors, lighting, "helping hands with magnifier"
+			- ...
+			- Computers of course- Laptops or Desktops, both easy to fix for the problems that the average user has.
+			- ...
+			- T.V.s, need some practice with this, but it's not so bad with practice.
+			- On the older RPTV CRT's, sometimes the convergence will go wonky, the cause is bad convergence chips which are easy to replace.
+			- Sometimes older non HD CRT's get too dark and it'll be full brightness from the menu, well you'd need to open the TV and adjust some knobs or potentiometers that should be near the cord that goes to the yolk, just adjust it to get the picture brighter. Bleeding colors? Too much Red/Green/Blue? Need to adjust a "pot" (potentiometer) somewhere until the bleeds gone. If that doesn't work then you'll have to adjust the "rings" on the base of the CRT. Some TVs can adjust this in the advance service menu.
+			- Need tools for this, some pots aren't insulated so insulated tools are needed.
+			- Oh man there's so much you can fix once you start fixing TV's, Arcade machines for one. Those older CRT arcades have multiple problems as they age, especially if the owner took poor care of it. Broken traces, burnt caps/resistors/chips, you'll see it all.
+			- ...
+			- I can't think of much more at the moment as it's late and I'm tired, I've forgotten to write a lot, but once you repair tech you find out what's profitable or not.
+			- ...
+			- Oh and you'll want something to disharge capacitors, because some of the big ones can be fatal. Connect a grounded wire to some gator clips and connect that to insulated gripped flathead, short the cap, and then you'll be safe from any shock after that.
+			- Short it more than once to be safe.
+	- eCommerce Marketing
+		- 4HWW Notes on ECOM AND MVPS
+			- Yahoo shopping cart > PDF with billing/shipping info sent > button on yahoo management page charges all customer credit cards > save PDFs as excel purchase orders and email the purchase orders to product manufactuers who then email it to customers who are paid 90 days later (net-90 terms). His PPC is $700/month, Yahoo $99 for hosting/shopping cart
+			- PRODUCT: maximum $500 to test, automatable within 4 weeks and can't require more than 1 day/week of management
+			- high-ticket items have better ROI?
+			- like copy services and copy courses, in my biz, gives you more room to play. You can spend more on PPC with high end stuff, so you can usually beat competitors that way.
+			- or focus on backend e.g. I've been using $47 ebooks as loss leaders, just to get the customer.
+			- Wholesalers ask for 40% discount and distributors ask for 70% off
+			- -Use smart positioning and distribution
+			- Testing: low-priced book related to product as an advert in niche magazine, need confirmed through orders
+			- *More competing resellers, the faster your product goes extinct. Use a large reseller who move large quantities and agree to maintain advertised pricing
+			- *Exclusivity is useful as you can negotiate better profit margins, marketing in-store, faster payment, etc.
+			- DECIDE HOW YOU WILL SELL/DISTRIBUTE BEFOREHAND
+			- It is illegal to control how much someone sells your product for, but you can dictate
+			- how much they advertise it for. This is done by including a Minimum Advertised
+			- Pricing (MAP) policy in your General Terms and Conditions (GTC), which are agreed
+			- to automatically when a written wholesale order is placed. Sample GTC and order
+			- forms are available at www.fourhourworkweek.com.
+			- Use a niche you are familiar with in order to know what they would buy e.g. student, athlete, psychologists,
+			- -look at habits, hobbies, past and present, books/magazines, websites, newsletters, sunscriptions
+			- Which of identified groups have their own magazines - reachable through one or two of them. Make it a market that spend money on products of some type.
+			- Call magazines, speak to advertising directors, tell them to email their current advertising rate card and include both readership numbers and magazine back-issue samples.
+			- Search back issues for repeat advertisers who sell direct-to-consumer via 800 numbers of websites - the more repeat advertisers > more frequent their ads > more profitable a magazine is for them and thereby me
+			- Pick 2 markets with full-page advertising that costs less than $5000, no fewer than 15k readers
+			- Strive to be largest/best/first in a niche (use muse math on book's companion site for determining market size of a recent product)
+			- Main benefit can be described in one sentence - e.g. 1,000 songs in your pocket
+			- Cost the customer $50-200 - less competition in premium price-range, better perceived value, requires less units/customers, attracts lower-maintenance customers, higher profit margins for safety. Not too high that they have to speak to someone on phone before purchase, aim for 8-10x markup
+			- No longer than 3/4 week to manufacture - keeps costs low, helps adapt to sales demand, recommended is 2 weeks. To find out how long it takes contact manufactures in the niche e.g. www.thomasnet.com. Google product keyword with organisation or association to find appropriate organisations then ask for referrals to contact manufactuers and names of their trade magazines. Request pricing in terms of 500/1k/5k units to ensure proper markup is possible
+			- Should be explainable with good online FAQ
+			- 1) RESELL A PRODUCT (easy but least profitable, fast to set up and to die off due to competition between resellers)
+			- -Profitable lifespan is short unless exclusivity agreement
+			- -Useful for secondary back-end products e.g. iPod covers, car GPS systems, as there is no advertising cost to acquire the customer
+			- Contact manufacturer and request a wholesale pricelist (generally 40% off retail) and terms. If business tax ID number is needed, print off forms from government website and file for an LLC for
+			- 4HWW Notes on ECOM AND MVPS
+			- Yahoo shopping cart > PDF with billing/shipping info sent > button on yahoo management page charges all customer credit cards > save PDFs as excel purchase orders and email the purchase orders to product manufactuers who then email it to customers who are paid 90 days later (net-90 terms). His PPC is $700/month, Yahoo $99 for hosting/shopping cart
+			- PRODUCT: maximum $500 to test, automatable within 4 weeks and can't require more than 1 day/week of management
+			- high-ticket items have better ROI?
+			- like copy services and copy courses, in my biz, gives you more room to play. You can spend more on PPC with high end stuff, so you can usually beat competitors that way.
+			- or focus on backend e.g. I've been using $47 ebooks as loss leaders, just to get the customer.
+			- Wholesalers ask for 40% discount and distributors ask for 70% off
+			- -Use smart positioning and distribution
+			- Testing: low-priced book related to product as an advert in niche magazine, need confirmed through orders
+			- *More competing resellers, the faster your product goes extinct. Use a large reseller who move large quantities and agree to maintain advertised pricing
+			- *Exclusivity is useful as you can negotiate better profit margins, marketing in-store, faster payment, etc.
+			- DECIDE HOW YOU WILL SELL/DISTRIBUTE BEFOREHAND
+			- It is illegal to control how much someone sells your product for, but you can dictate
+			- how much they advertise it for. This is done by including a Minimum Advertised
+			- Pricing (MAP) policy in your General Terms and Conditions (GTC), which are agreed
+			- to automatically when a written wholesale order is placed. Sample GTC and order
+			- forms are available at www.fourhourworkweek.com.
+			- Use a niche you are familiar with in order to know what they would buy e.g. student, athlete, psychologists,
+			- -look at habits, hobbies, past and present, books/magazines, websites, newsletters, sunscriptions
+			- Which of identified groups have their own magazines - reachable through one or two of them. Make it a market that spend money on products of some type.
+			- Call magazines, speak to advertising directors, tell them to email their current advertising rate card and include both readership numbers and magazine back-issue samples.
+			- Search back issues for repeat advertisers who sell direct-to-consumer via 800 numbers of websites - the more repeat advertisers > more frequent their ads > more profitable a magazine is for them and thereby me
+			- Pick 2 markets with full-page advertising that costs less than $5000, no fewer than 15k readers
+			- Strive to be largest/best/first in a niche (use muse math on book's companion site for determining market size of a recent product)
+			- Main benefit can be described in one sentence - e.g. 1,000 songs in your pocket
+			- Cost the customer $50-200 - less competition in premium price-range, better perceived value, requires less units/customers, attracts lower-maintenance customers, higher profit margins for safety. Not too high that they have to speak to someone on phone before purchase, aim for 8-10x markup
+			- No longer than 3/4 week to manufacture - keeps costs low, helps adapt to sales demand, recommended is 2 weeks. To find out how long it takes contact manufactures in the niche e.g. www.thomasnet.com. Google product keyword with organisation or association to find appropriate organisations then ask for referrals to contact manufactuers and names of their trade magazines. Request pricing in terms of 500/1k/5k units to ensure proper markup is possible
+			- Should be explainable with good online FAQ
+			- 1) RESELL A PRODUCT (easy but least profitable, fast to set up and to die off due to competition between resellers)
+			- -Profitable lifespan is short unless exclusivity agreement
+			- -Useful for secondary back-end products e.g. iPod covers, car GPS systems, as there is no advertising cost to acquire the customer
+			- Contact manufacturer and request a wholesale pricelist (generally 40% off retail) and terms. If business tax ID number is needed, print off forms from government website and file for an LLC for $100-200
+			- 2) LICENSE A PRODUCT
+			- -Licensor sells rights of product for 3-10% of sale price (usualyl around 40% off retail) for each unit sold (whereas we get 90%+ of profit)
+			- -Licensing is dealmaking intensive, thus creative contract negotiation is essential. Case studies on www.fourhourworkweek.com, from how to sell inventions without prototypes to how to secure rights to products as a newb
+			- 3) PRODUCT CREATION (least complicated and most profitable for most)
+			- -Elance for certain hard prototypes, which is then taken to a contract manufacturer. Generic products from contract manufacturers can also be re-labelling and repurposed e.g. own line of vitamin products in chiropractors office
+			- Information products are time-consuming to duplicate, fast to manufacture and low-cost e.g. low-budget how-to DVD for people who want to do xx
+			- Work out minimal customer base (e.g. to make $500 a month)
+			- Info can be paraphrased, repurposed content from public domain e.g. government docs and material that predates modern copyright law, licensed or pay an expert
+			- -read to top 3 best-selling books on home-page design for creating a good simple website
+			- two CDs (30-90 mins each), 40 page transcription of CDs and 10page quickstart guide for $50-200?
+			- How can you tailor a general skill to your market (niching down) or add to what is being sold successfully in your target magazines? (narrow and deep rather than broad)
+			- What skills are you/your market interested in and would pay to learn?
+			- What experts could you interview and record to create a sellable audio CD? offer them a digital master copy of the interview to do with or sell as they like (this is often enough) and/or offer them a small up-front or ongoing royalty payment. Use Skype with HotRecorder
+			- Do you have a failure-to-success story that could be turned into a how-to product for others?
+			- EXPERT STATUS (basic credibility indicators e.g. having a Masters or Phd)
+			- -join 2/3 related trade organisations with official-sounding names e.g. www.acmet.org Association for Conflict Resolution www.ifge.org International Foundation for Gender Education, can be done in 5 mins with credit card
+			- -read top 3 books on topic (historical New York Times bestseller lists) and summarise each on one page
+			- -give one free 1-3hr seminar at closest Uni with posters to advertise and branches of 2 well-known companies e.g. IBM. Tell them you've spoke at X university and belong to XXX trade organisations. Emphasise you are offering it to them to get additional speaking experience outside academia and will not be selling products or services. Record seminars from two angles for later use as a DVD possibly
+			- -offer to write one or two articles for trade magazines in your topic, citing 1 and 3. if they decline, offer to interview a known expert and write the article - it still gets your name listed as a contributor.
+			- -join ProfNet, which journalists use to find experts to quote for articles. use 1/3/4 to show credibility and this will get you featured in media e.g. BBC news
+			- Find Yoda (3 Days)
+			- Call at least one potential superstar mentor per day for three days. Email only after attempting a phone call. I recommend calling before 8:30 A.M. or after 6:00 P.M. to reduce run-ins with secretaries and other gatekeepers. Have a single question in mind, one that you have researched but have been unable to answer yourself. Shoot for "A" players—CEOs, ultrasuccessful entrepreneurs, famous authors, etc.—and don't aim low to make it less frightening. Use www.contactanycelebrity.com if need be, and base your script on the following.
+			- Unknown answerer: This is Acme Inc. [or "the office of Mentor X"].
+			- You: Hi, this is Tim Ferriss calling for John Grisham, please.30
+			- Answerer: May I ask what this is regarding?
+			- You: Sure. I know this might sound a bit odd,31 but I'm a first-time author and just read his interview in Time Out New York.32 I'm a longtime33 fan and have finally built up the courage to34 call him for one specific piece of advice. It wouldn't take more than two minutes of his time. Is there any way you can help me get through to him?35 I really, really appreciate whatever you can do.
+			- Answerer: Hmmm . . . Just a second. Let me see if he's available. [two minutes later] Here you go. Good luck, [rings to another line]
+			- John Grisham: John Grisham here.
+			- You: Hi, Mr. Grisham. My name is Tim Ferriss. I know this might sound a bit odd, but I'm a first-time author and a longtime fan. I just read your interview in Time Out New York and finally built up the courage to call. I have wanted to ask you for a specific piece of advice for a long time, and it shouldn't take more than two minutes of your time. May I?36
+			- John Grisham: Uh ... OK. Go ahead. I have to be on a call in a few minutes.
+			- You (at the very end of the call): Thank you so much for being so generous with your time. If I have the occasional tough question—very occasional—is there any chance I could keep in touch via e-mail?37
+			- 30. Said casually and with confidence, this alone will get you through surprisingly
+			- often. "I'd like to speak with Mr./Ms. X, please" is a dead giveaway that you don't know
+			- them, if you want to up the chances of getting though but risk looking foolish if they
+			- call the bluff, ask for the target mentor by first name only.
+			- 31. I use this type of lead-in whenever making off-the-wall requests. It softens it and
+			- makes the person curious enough to listen before spitting out an automatic "no."
+			- 32. This answers the questions they'll have in their head: "Who are you and why are
+			- you calling now?" I like to be a "first-time" something to play the sympathy card, and I
+			- find a recent media feature online to cite as the trigger for calling.
+			- 33. I call people I'm familiar with. If you can't call yourself a longtime fan, tell them that
+			- you have followed the mentor's career or business exploits for a certain number of
+			- years.
+			- 34. Don't pretend to be strong. Make it clear you're nervous and they'll lower their
+			- guard. I often do this even if I'm not nervous.
+			- 35. The wording here is critical. Ask them to "help" you do something.
+			- 36. Just rework the gatekeeper paragraph for this, and don't dillydally—get to the point
+			- quickly and ask for permission to pull the trigger.
+			- 37. End the conversation by opening the door for future contact. Start with e-mail and
+			- let the mentoring relationship develop from there.
+			- Confirming Sufficient Market Size
+			- •-Writer's Market (www.writersmarket.com)
+			- Here you'll find a listing of thousands of specialty and niche magazines, including
+			- circulation and subscription numbers. I prefer the print version.
+			- •-Standard Rate and Data Services (www.srds.com)
+			- Check out this resource for annual listings of magazine and company customer
+			- mailing lists available for rent. If you're considering creating a how-to
+			- video for duck hunting, check out the size of customer lists from hunting
+			- gun manufacturers and related magazines first. Use the print version in
+			- libraries instead of paying for the somewhat confusing online access.
+			- Finding Manufacturing or Products to Resell
+			- •-Thomas's Register of Manufacturers (www.thomasnet.com)
+			- (800-699-9822) This is a searchable database of contract manufacturers
+			- for every conceivable product, from underwear and food products to
+			- airplane parts.
+			- •-Dropship Source (www.dropshipsource.com) (877-637-6774) This site
+			- offers an extensive how-to guide for finding manufacturers willing to dropship
+			- product to your customers, which allows you to avoid prepurchasing
+			- inventory. If this fails, just order the product you'd like to resell from a
+			- competitor and Google the "from" shipping address. This will often lead
+			- back to the drop-shipper, who can then be contacted directly.
+			- •-www.ingrambook.com, www.techdata.com
+			- See these two sites for electronics, DVDs, and books.
+			- •-www.housewares.org, www.nationalhardwareshow.com
+			- (847-292-4200) For housewares, hardware, and related talent (on-screen
+			- demonstrators), also consider attending local or state fairs.
+			- •-www.expoeast.com, expowest.com
+			- See these sites for consumables and vitamin products.
+			- Finding Public Domain Information to Repurpose
+			- Be sure to speak with an intellectual property attorney before using apparent
+			- public domain material. If someone modifies 20% of a public domain work
+			- (through abridging and footnotes, for example), their "new" complete work
+			- can be copyrighted. Using it without permission would then be a punishable
+			- infringement. The details can get confusing. Do the beginning research
+			- yourself, but get a pro to look over your findings before moving ahead with
+			- product development.
+			- "Project Gutenberg (www.gutenberg.org)
+			- Project Gutenberg is a digital library of more than 15,000 pieces of literature
+			- considered to be in the public domain.
+			- •-LibriVox (www.librivox.org)
+			- LibriVox is a collection of audiobooks from the public domain that are
+			- available for free download.
+			- Recording Phone Interviews with Experts for CD Products
+			- •-HotRecorder (www.hotrecorder.com)
+			- HotRecorder records any phone call starting from or received by a PC and
+			- can be used in conjunction with Skype (www.skype.com) and other
+			- programs.
+			- Licensing Ideas to Others for Royalties
+			- •~InventRight (www.inventright.com) (800-701-7993) Stephen Key is the
+			- most consistently successful inventor I've ever met, with millions in
+			- royalties from companies like Disney, Nestle, and Coca-Cola. He is not
+			- high-tech but specializes in creating simple products or improving on
+			- existing products and then licensing (renting) his ideas to large
+			- corporations. He comes up with the idea, files a provisional patent for less
+			- than $200, and then lets another company do the work while he collects
+			- checks. This site introduces his fail-proof process for doing the same. His
+			- techniques for cold calling alone are invaluable. Highly recommended.
+			- •-Guthy-Renker Corporation (www.guthyrenker.com)
+			- (760-773-9022) GRC is the 800-pound infomercial gorilla. It brings in
+			- more than $1.3 billion per year in sales with mega-hits like Tony Robbins,
+			- Proactiv Solution, and Winsor Pilates. Don't expect more than a 2-4%
+			- royalty if you make the cut, but the numbers are huge enough to make it
+			- worth a look. Submit your product online.
+			- Trolling Patents for Unexploited Ideas to Turn into Products
+			- "^United States Patent and Trademark Office (www.uspto.gov) (800-
+			- 786-9199)
+			- •-www.autm.net
+			- For licensable technologies developed at universities, see "view all listings"
+			- under "Technology Transfer Offices."
+			- •-www.uiausa.org/Resources/InventorGroups.htm
+			- For inventors' groups and associations, call and ask if members have anything
+			- to license.
+			- Becoming an Expert
+			- •-ProfNet via PR Leads (www.prleads.com/discountpage)
+			- Receive daily leads from journalists looking for experts to cite and interview for media ranging from local outlets to CNN and NY Times. Stop swimming upstream and start responding to stories people are already working on. Mention my name to get 2 months for price of 1.
+			- •-ExpertClick (www.expertclick.com)
+			- This is another secret of the PR pros. Put up an expert profile for media to
+			- see, receive an up-to-date database of top media contacts, and send free
+			- press releases to 12,000 journaUsts, all on one website that gets more than 5
+			- million hits per month. This is how I got on NBC and ended up developing
+			- a prime-time TV show. It works. Mention my name on the phone, or use
+			- "Tim Ferriss $100" online, to get a $100 discount.
+			- TESTING THE MUSE
+			- MICROTESTING (inexpensive adverts to test consumer response)
+			- -Google Adwords for 5 days for $500 or less (for a full 90 day PPC marketing plan visit www.fourhourworkweek.com ) fee each time someone clicks through to your site
+			- (it is illegal to charge customers prior to shipment however many state allow 3/4 weeks for deliver, useful blackhat strategy)
+			- 1) BEST - look at competition and create more compelling offer on basic 1-3 page website
+			- 2) TEST - test offer using 5-day google adwords campaign
+			- 3) DIVEST OR INVEST - cut losses with losers and manufacture the winner(s) for sales rollout
+			- case study - yoga instructor who found rock climbers signing up, therefore yoga instructional DVD with spiral bound manual tailored to that sport?
+			- Firstly find related keywords to product, then visit top 3 websites that consistently appear. How can you differentiate yourself? (credibility indicators e.g. testimonials, better guarantee, better selection, faster/free shipping?)
+			- Secondly create a one-page testimonial-rich ad that emphasises differentiators and product benefits using personal photos/stock photos from stock photo websites. (300-600 word). Collect other intriguing adverts for use as a model, ask clients for testimonials or get pics of others using products. www.pxmethod.com for a good example. free how-to seminars as recommended in the Expert Build are ideal for identifying popular selling points and securing testimonials
+			- *look at slogans of successful products to emulate
+			- eBay testiong - 48 hour with reserve at 50% price, receive bids and see if it goes near target price, cancel last min
+			- Purchase button takes them to page with pricing/shipping/handling (so they dont finalise just to confirm total pricing) and basic contact fields (email and phone)
+			- -next page says unfortunately we are currently on back order but will contact you as soon as we have product in stock. thank you for your patience
+			- OR could use email sign-up and take a percentage of that as an order
+			- Google Adwords campaign with 50-100 search terms, daily budgets set at $50 a day (visit www.google.com/onlinebusiness to understand terminology)
+			- -use specific keywords, aim for second through fourth positioning but no more than $0.20 CPC
+			- -google analytics to track orders and page abandonment rates and www.aweber.com to track email signups
+			- -make ads that focus on differentiators
+			- He creates five groups of 10 search terms each - can to test different domain names, product names or guarantees.
+			- -disable google feature which serves only best-performing ad in order to compare and find best headline/domain name and body text for final ad
+			- (COSTS $250 OR LESS)
+			- 100 specific terms at low CPC perform better than expensive broad kw's. if budget permits, allow related terms and daily expenditure so PPC test costs 1k
+			- Compare CPC cost with hypothetical profit (e.g. 10 purchases x $50 profit per widget minus $200 adwords cost = xxx profit)
+			- OVERTURE is second largest PPC engine
+			- after this setup a yahoo store for $99 a month and contact customers again, then advertise in magazines in future (asking for first-time advertiser discount then citing competing magazine to get another 20% discount at 50% off total for small display add). Order more product with net-30 payment terms then a toll-free number in print ad that forwards to cellphone in order to determine FAQ and compare offer of buy two get one free to normal sale
+			- -if low interest, offer a better guarantee (e.g. double money back)
+			- decides to negotiate a longer-term ad agreement
+			- with the magazine. He sends his sales rep a check for four issues at
+			- 30% of their published rates. He calls to confirm that they received
+			- his check via FedEx and, with check in hand and deadlines looming,
+			- they don't refuse.
+			- put pricing on a separate page so it can be isolated as a testing variable
+			- -low cost domainds www.domainsinseconds.com
+			- -use two providers (one backup) sign up with www.no-ip.com which can redirect traffic (DNS) to backup in 5 mins rather than 24 hours
+			- www.getty.com for stock photos www.freestockphotos.com
+			- ebay store even or shopify?
+			- google checkout or paypal cart (google requires customers to have google ID)
+			- www.offermatica.com www.vertster.com www.optimost.com for testing, which alternates dif versions of homepages to see which is best settings
+			- alexa for competitive site traffic
+			- www.tollfreemax.com for toll free numbers, forwarded to your phone
+			- AUTOMATION
+			- look at McDonald's organisational chart
+			- (and calculate advertising cost per unit)
+			- -Ensure outsourcers are willing to communicate among themselves to solve problem, and give them written permission to make most inexpensive decisions without consulting you first (e.g. start at 100 then move to 400
+			- Phase 1 (0-50 units)
+			- -do it all yourself and put your phone number on site for general questions/order taking in order to learn FAQ
+			- -investigate opening merchant account for later outsourced card processing
+			- Phase 2 - >10 units per week
+			- -add FAQ to website, find local fulfillment companies at www.mfsanet.org or call local printers and ask for recommendations. limit field to those who agree no setup fees and monthly minimums, if not ask for 50% off both and request setup fee be applied as an advance against shipping or other fees. then limit to those who can respond to order status email or customer phone calls. email responses you have used can be copy-paste for them
+			- > sample email responses for fulfillment purposes on website
+			- - also explain you are a startup with small budget, need cash for advertising for more shipment, mention competitors
+			- -ask for three client references and ask where there issues or weaknesses or incidents or disagreements are
+			- -ask for net-30 terms
+			- -use this ideally with smaller operations
+			- Phase 3 - >20 units per week
+			- -end-to-end fulfillment houses that handle it all, interview them about costs and ask for referrals to call centers and credit card processors they've collaborated with for file transfers and problem solving
+			- -need merchant account
+			- Optionally, set up an account with one of the call centers your
+			- new fulfillment center recommends. These will often have toll-free
+			- numbers you can use instead of purchasing your own. Look at the
+			- percentage split of online to phone orders during testing and consider
+			- carefully if the extra revenue from the latter is worth the hassle. It
+			- often isn't. Those who call to order will generally order online if
+			- given no other option.
+			- Before signing on with a call center, get several 800 numbers they
+			- answer for current clients and make test calls, asking difficult
+			- product-related questions and gauging sales abilities. Call each number
+			- at least three times (morning, afternoon, and evening) and note
+			- the make-or-break factor: wait time. The phone should be answered
+			- within three to four rings, and if you are put on hold, the shorter the
+			- wait the better. More than 15 seconds will result in too many abandoned
+			- calls and waste advertising dollars.
+			- -create less decisions for customers, less options e.g. basic or premium, only premium fast shipping, not overnight shipping or expedited as they produce tonnes of anxious phone calls, eliminate phone orders, do not offer international shipments as 10 mins per order for customer forms then product costs bare more with tariffs and duties
+			- find more customers who don't cause problems
+			- raise wholesale min to 12-100 units and require a tax ID number to qualify resellers who are real business people and not time-intensive novices.
+			- refer all potential resellers to an online order form, never negotiate pricing and cite company policy due to problems in teh past
+			- offer low-priced products instead of free products to capture info for follow up sales (e.g. to gauge interest such as email signup). offering free gets the bad customers.
+			- offer lose-win guarantee instead of free trials e.g. if you dont like it we'll pay for brand of your choice, 60 day return, return for full refund including shipping but you can keep product as a gift, lifetime guarantee, return and get twice money bback,
+			- HOW TO LOOK BLUE-CHIP
+			- -dont be CEO, be Vice president, director of xxx, useful in negotiations
+			- -put multiple email and phone contacts on site all forwarded to your email
+			- set up interactive voice response remote receptionist on www.angel.com
+			- end-to-end fulfillment $500+ setup
+			- www.mfpsinc.com www.moultonfulfillment.com www.nationalfulfillment.com
+			- order-taking call centers
+			- www.west.com www.liveops.com www.convergys.com
+			- Closer (convert callers to buyers)
+			- www.inpulseresponse.com www.protocolmarketing www.tritontechnology.com
+			- www.transfirst.com www.paymentech.com www.trustcommerce.com credit card processors interact with fulfillment
+			- www.myaffiliateprogram.com
+			- discount media buying agencies
+			- www.manhmedia.com www.novusprintmedia.com www.mercurymedia.com www.revshare.com www.marketingarchitects.com www.radiodirect.com
+			- Online marketing/research firms
+			- small www.sempo.org
+			- mid www.clicks2cust0mers.com www.workingplanet.com
+			- big www.marketingexperiments.com www.did-it.com (ferisss' team) www.pepperjamsearch.com www.iprospect.com
+			- Full-Service Infomercial Producers
+			- These are the companies that made Oreck Direct, Nutrisystem, Nordic-
+			- Track, and Hooked on Phonics household names. The first has an excellent
+			- DRTV glossary, and both sites offer excellent resources. Don't call unless
+			- you can budget at least $15,000 for a short-form commercial or more than
+			- $50,000 for a long-form infomercial.
+			- •-Hawthorne Direct (www.hawthornedirect.com) (641-472-3800) "-Scriptto-
+			- Screen (www.scripttoscreen.com) (714-558-3971)
+			- Retail and International Product Distribution
+			- Want to get your product on the shelves of Wal-Mart, Costco, Nordstrom,
+			- or the leading department store in Japan? Sometimes it pays to have experts
+			- with relationships get you there.
+			- •-BJ Direct (International) (www.bjgd.com) (949-753-mi)
+			- Celebrity Brokers
+			- Want a celebrity to endorse your product or be a spokesperson? It can cost a
+			- lot less than you think, if you do it right. I know of one clothing endorsement
+			- deal with the best pitcher in Major League Baseball that cost just
+			- $20,000 per year. Here are the brokers who can make it happen.
+			- •-Celeb Brokers (www.celebbrokers.com) (310-268-1476) President Jack
+			- King was the person who first turned me on to this fascinating world. He
+			- knows it all inside and out.
+			- •-Celebrity Endorsement Network (www.celebrityendorsement.com)
+			- (818-225-7090)
+			- Celebrity Finding
+			- •-Contact Any Celebrity (www.contactanycelebrity.com) It is possible to do
+			- it yourself, as I have done many times. This online directory and its helpful
+			- staff will help you find any celebrity in the world.
+			- 00-200
+			- 2) LICENSE A PRODUCT
+			- -Licensor sells rights of product for 3-10% of sale price (usualyl around 40% off retail) for each unit sold (whereas we get 90%+ of profit)
+			- -Licensing is dealmaking intensive, thus creative contract negotiation is essential. Case studies on www.fourhourworkweek.com, from how to sell inventions without prototypes to how to secure rights to products as a newb
+			- 3) PRODUCT CREATION (least complicated and most profitable for most)
+			- -Elance for certain hard prototypes, which is then taken to a contract manufacturer. Generic products from contract manufacturers can also be re-labelling and repurposed e.g. own line of vitamin products in chiropractors office
+			- Information products are time-consuming to duplicate, fast to manufacture and low-cost e.g. low-budget how-to DVD for people who want to do xx
+			- Work out minimal customer base (e.g. to make $500 a month)
+			- Info can be paraphrased, repurposed content from public domain e.g. government docs and material that predates modern copyright law, licensed or pay an expert
+			- -read to top 3 best-selling books on home-page design for creating a good simple website
+			- two CDs (30-90 mins each), 40 page transcription of CDs and 10page quickstart guide for $50-200?
+			- How can you tailor a general skill to your market (niching down) or add to what is being sold successfully in your target magazines? (narrow and deep rather than broad)
+			- What skills are you/your market interested in and would pay to learn?
+			- What experts could you interview and record to create a sellable audio CD? offer them a digital master copy of the interview to do with or sell as they like (this is often enough) and/or offer them a small up-front or ongoing royalty payment. Use Skype with HotRecorder
+			- Do you have a failure-to-success story that could be turned into a how-to product for others?
+			- EXPERT STATUS (basic credibility indicators e.g. having a Masters or Phd)
+			- -join 2/3 related trade organisations with official-sounding names e.g. www.acmet.org Association for Conflict Resolution www.ifge.org International Foundation for Gender Education, can be done in 5 mins with credit card
+			- -read top 3 books on topic (historical New York Times bestseller lists) and summarise each on one page
+			- -give one free 1-3hr seminar at closest Uni with posters to advertise and branches of 2 well-known companies e.g. IBM. Tell them you've spoke at X university and belong to XXX trade organisations. Emphasise you are offering it to them to get additional speaking experience outside academia and will not be selling products or services. Record seminars from two angles for later use as a DVD possibly
+			- -offer to write one or two articles for trade magazines in your topic, citing 1 and 3. if they decline, offer to interview a known expert and write the article - it still gets your name listed as a contributor.
+			- -join ProfNet, which journalists use to find experts to quote for articles. use 1/3/4 to show credibility and this will get you featured in media e.g. BBC news
+			- Find Yoda (3 Days)
+			- Call at least one potential superstar mentor per day for three days. Email only after attempting a phone call. I recommend calling before 8:30 A.M. or after 6:00 P.M. to reduce run-ins with secretaries and other gatekeepers. Have a single question in mind, one that you have researched but have been unable to answer yourself. Shoot for "A" players—CEOs, ultrasuccessful entrepreneurs, famous authors, etc.—and don't aim low to make it less frightening. Use www.contactanycelebrity.com if need be, and base your script on the following.
+			- Unknown answerer: This is Acme Inc. [or "the office of Mentor X"].
+			- You: Hi, this is Tim Ferriss calling for John Grisham, please.30
+			- Answerer: May I ask what this is regarding?
+			- You: Sure. I know this might sound a bit odd,31 but I'm a first-time author and just read his interview in Time Out New York.32 I'm a longtime33 fan and have finally built up the courage to34 call him for one specific piece of advice. It wouldn't take more than two minutes of his time. Is there any way you can help me get through to him?35 I really, really appreciate whatever you can do.
+			- Answerer: Hmmm . . . Just a second. Let me see if he's available. [two minutes later] Here you go. Good luck, [rings to another line]
+			- John Grisham: John Grisham here.
+			- You: Hi, Mr. Grisham. My name is Tim Ferriss. I know this might sound a bit odd, but I'm a first-time author and a longtime fan. I just read your interview in Time Out New York and finally built up the courage to call. I have wanted to ask you for a specific piece of advice for a long time, and it shouldn't take more than two minutes of your time. May I?36
+			- John Grisham: Uh ... OK. Go ahead. I have to be on a call in a few minutes.
+			- You (at the very end of the call): Thank you so much for being so generous with your time. If I have the occasional tough question—very occasional—is there any chance I could keep in touch via e-mail?37
+			- 30. Said casually and with confidence, this alone will get you through surprisingly
+			- often. "I'd like to speak with Mr./Ms. X, please" is a dead giveaway that you don't know
+			- them, if you want to up the chances of getting though but risk looking foolish if they
+			- call the bluff, ask for the target mentor by first name only.
+			- 31. I use this type of lead-in whenever making off-the-wall requests. It softens it and
+			- makes the person curious enough to listen before spitting out an automatic "no."
+			- 32. This answers the questions they'll have in their head: "Who are you and why are
+			- you calling now?" I like to be a "first-time" something to play the sympathy card, and I
+			- find a recent media feature online to cite as the trigger for calling.
+			- 33. I call people I'm familiar with. If you can't call yourself a longtime fan, tell them that
+			- you have followed the mentor's career or business exploits for a certain number of
+			- years.
+			- 34. Don't pretend to be strong. Make it clear you're nervous and they'll lower their
+			- guard. I often do this even if I'm not nervous.
+			- 35. The wording here is critical. Ask them to "help" you do something.
+			- 36. Just rework the gatekeeper paragraph for this, and don't dillydally—get to the point
+			- quickly and ask for permission to pull the trigger.
+			- 37. End the conversation by opening the door for future contact. Start with e-mail and
+			- let the mentoring relationship develop from there.
+			- Confirming Sufficient Market Size
+			- •-Writer's Market (www.writersmarket.com)
+			- Here you'll find a listing of thousands of specialty and niche magazines, including
+			- circulation and subscription numbers. I prefer the print version.
+			- •-Standard Rate and Data Services (www.srds.com)
+			- Check out this resource for annual listings of magazine and company customer
+			- mailing lists available for rent. If you're considering creating a how-to
+			- video for duck hunting, check out the size of customer lists from hunting
+			- gun manufacturers and related magazines first. Use the print version in
+			- libraries instead of paying for the somewhat confusing online access.
+			- Finding Manufacturing or Products to Resell
+			- •-Thomas's Register of Manufacturers (www.thomasnet.com)
+			- (800-699-9822) This is a searchable database of contract manufacturers
+			- for every conceivable product, from underwear and food products to
+			- airplane parts.
+			- •-Dropship Source (www.dropshipsource.com) (877-637-6774) This site
+			- offers an extensive how-to guide for finding manufacturers willing to dropship
+			- product to your customers, which allows you to avoid prepurchasing
+			- inventory. If this fails, just order the product you'd like to resell from a
+			- competitor and Google the "from" shipping address. This will often lead
+			- back to the drop-shipper, who can then be contacted directly.
+			- •-www.ingrambook.com, www.techdata.com
+			- See these two sites for electronics, DVDs, and books.
+			- •-www.housewares.org, www.nationalhardwareshow.com
+			- (847-292-4200) For housewares, hardware, and related talent (on-screen
+			- demonstrators), also consider attending local or state fairs.
+			- •-www.expoeast.com, expowest.com
+			- See these sites for consumables and vitamin products.
+			- Finding Public Domain Information to Repurpose
+			- Be sure to speak with an intellectual property attorney before using apparent
+			- public domain material. If someone modifies 20% of a public domain work
+			- (through abridging and footnotes, for example), their "new" complete work
+			- can be copyrighted. Using it without permission would then be a punishable
+			- infringement. The details can get confusing. Do the beginning research
+			- yourself, but get a pro to look over your findings before moving ahead with
+			- product development.
+			- "Project Gutenberg (www.gutenberg.org)
+			- Project Gutenberg is a digital library of more than 15,000 pieces of literature
+			- considered to be in the public domain.
+			- •-LibriVox (www.librivox.org)
+			- LibriVox is a collection of audiobooks from the public domain that are
+			- available for free download.
+			- Recording Phone Interviews with Experts for CD Products
+			- •-HotRecorder (www.hotrecorder.com)
+			- HotRecorder records any phone call starting from or received by a PC and
+			- can be used in conjunction with Skype (www.skype.com) and other
+			- programs.
+			- Licensing Ideas to Others for Royalties
+			- •~InventRight (www.inventright.com) (800-701-7993) Stephen Key is the
+			- most consistently successful inventor I've ever met, with millions in
+			- royalties from companies like Disney, Nestle, and Coca-Cola. He is not
+			- high-tech but specializes in creating simple products or improving on
+			- existing products and then licensing (renting) his ideas to large
+			- corporations. He comes up with the idea, files a provisional patent for less
+			- than $200, and then lets another company do the work while he collects
+			- checks. This site introduces his fail-proof process for doing the same. His
+			- techniques for cold calling alone are invaluable. Highly recommended.
+			- •-Guthy-Renker Corporation (www.guthyrenker.com)
+			- (760-773-9022) GRC is the 800-pound infomercial gorilla. It brings in
+			- more than
+			- 4HWW Notes on ECOM AND MVPS
+			- Yahoo shopping cart > PDF with billing/shipping info sent > button on yahoo management page charges all customer credit cards > save PDFs as excel purchase orders and email the purchase orders to product manufactuers who then email it to customers who are paid 90 days later (net-90 terms). His PPC is $700/month, Yahoo $99 for hosting/shopping cart
+			- PRODUCT: maximum $500 to test, automatable within 4 weeks and can't require more than 1 day/week of management
+			- high-ticket items have better ROI?
+			- like copy services and copy courses, in my biz, gives you more room to play. You can spend more on PPC with high end stuff, so you can usually beat competitors that way.
+			- or focus on backend e.g. I've been using $47 ebooks as loss leaders, just to get the customer.
+			- Wholesalers ask for 40% discount and distributors ask for 70% off
+			- -Use smart positioning and distribution
+			- Testing: low-priced book related to product as an advert in niche magazine, need confirmed through orders
+			- *More competing resellers, the faster your product goes extinct. Use a large reseller who move large quantities and agree to maintain advertised pricing
+			- *Exclusivity is useful as you can negotiate better profit margins, marketing in-store, faster payment, etc.
+			- DECIDE HOW YOU WILL SELL/DISTRIBUTE BEFOREHAND
+			- It is illegal to control how much someone sells your product for, but you can dictate
+			- how much they advertise it for. This is done by including a Minimum Advertised
+			- Pricing (MAP) policy in your General Terms and Conditions (GTC), which are agreed
+			- to automatically when a written wholesale order is placed. Sample GTC and order
+			- forms are available at www.fourhourworkweek.com.
+			- Use a niche you are familiar with in order to know what they would buy e.g. student, athlete, psychologists,
+			- -look at habits, hobbies, past and present, books/magazines, websites, newsletters, sunscriptions
+			- Which of identified groups have their own magazines - reachable through one or two of them. Make it a market that spend money on products of some type.
+			- Call magazines, speak to advertising directors, tell them to email their current advertising rate card and include both readership numbers and magazine back-issue samples.
+			- Search back issues for repeat advertisers who sell direct-to-consumer via 800 numbers of websites - the more repeat advertisers > more frequent their ads > more profitable a magazine is for them and thereby me
+			- Pick 2 markets with full-page advertising that costs less than $5000, no fewer than 15k readers
+			- Strive to be largest/best/first in a niche (use muse math on book's companion site for determining market size of a recent product)
+			- Main benefit can be described in one sentence - e.g. 1,000 songs in your pocket
+			- Cost the customer $50-200 - less competition in premium price-range, better perceived value, requires less units/customers, attracts lower-maintenance customers, higher profit margins for safety. Not too high that they have to speak to someone on phone before purchase, aim for 8-10x markup
+			- No longer than 3/4 week to manufacture - keeps costs low, helps adapt to sales demand, recommended is 2 weeks. To find out how long it takes contact manufactures in the niche e.g. www.thomasnet.com. Google product keyword with organisation or association to find appropriate organisations then ask for referrals to contact manufactuers and names of their trade magazines. Request pricing in terms of 500/1k/5k units to ensure proper markup is possible
+			- Should be explainable with good online FAQ
+			- 1) RESELL A PRODUCT (easy but least profitable, fast to set up and to die off due to competition between resellers)
+			- -Profitable lifespan is short unless exclusivity agreement
+			- -Useful for secondary back-end products e.g. iPod covers, car GPS systems, as there is no advertising cost to acquire the customer
+			- Contact manufacturer and request a wholesale pricelist (generally 40% off retail) and terms. If business tax ID number is needed, print off forms from government website and file for an LLC for $100-200
+			- 2) LICENSE A PRODUCT
+			- -Licensor sells rights of product for 3-10% of sale price (usualyl around 40% off retail) for each unit sold (whereas we get 90%+ of profit)
+			- -Licensing is dealmaking intensive, thus creative contract negotiation is essential. Case studies on www.fourhourworkweek.com, from how to sell inventions without prototypes to how to secure rights to products as a newb
+			- 3) PRODUCT CREATION (least complicated and most profitable for most)
+			- -Elance for certain hard prototypes, which is then taken to a contract manufacturer. Generic products from contract manufacturers can also be re-labelling and repurposed e.g. own line of vitamin products in chiropractors office
+			- Information products are time-consuming to duplicate, fast to manufacture and low-cost e.g. low-budget how-to DVD for people who want to do xx
+			- Work out minimal customer base (e.g. to make $500 a month)
+			- Info can be paraphrased, repurposed content from public domain e.g. government docs and material that predates modern copyright law, licensed or pay an expert
+			- -read to top 3 best-selling books on home-page design for creating a good simple website
+			- two CDs (30-90 mins each), 40 page transcription of CDs and 10page quickstart guide for $50-200?
+			- How can you tailor a general skill to your market (niching down) or add to what is being sold successfully in your target magazines? (narrow and deep rather than broad)
+			- What skills are you/your market interested in and would pay to learn?
+			- What experts could you interview and record to create a sellable audio CD? offer them a digital master copy of the interview to do with or sell as they like (this is often enough) and/or offer them a small up-front or ongoing royalty payment. Use Skype with HotRecorder
+			- Do you have a failure-to-success story that could be turned into a how-to product for others?
+			- EXPERT STATUS (basic credibility indicators e.g. having a Masters or Phd)
+			- -join 2/3 related trade organisations with official-sounding names e.g. www.acmet.org Association for Conflict Resolution www.ifge.org International Foundation for Gender Education, can be done in 5 mins with credit card
+			- -read top 3 books on topic (historical New York Times bestseller lists) and summarise each on one page
+			- -give one free 1-3hr seminar at closest Uni with posters to advertise and branches of 2 well-known companies e.g. IBM. Tell them you've spoke at X university and belong to XXX trade organisations. Emphasise you are offering it to them to get additional speaking experience outside academia and will not be selling products or services. Record seminars from two angles for later use as a DVD possibly
+			- -offer to write one or two articles for trade magazines in your topic, citing 1 and 3. if they decline, offer to interview a known expert and write the article - it still gets your name listed as a contributor.
+			- -join ProfNet, which journalists use to find experts to quote for articles. use 1/3/4 to show credibility and this will get you featured in media e.g. BBC news
+			- Find Yoda (3 Days)
+			- Call at least one potential superstar mentor per day for three days. Email only after attempting a phone call. I recommend calling before 8:30 A.M. or after 6:00 P.M. to reduce run-ins with secretaries and other gatekeepers. Have a single question in mind, one that you have researched but have been unable to answer yourself. Shoot for "A" players—CEOs, ultrasuccessful entrepreneurs, famous authors, etc.—and don't aim low to make it less frightening. Use www.contactanycelebrity.com if need be, and base your script on the following.
+			- Unknown answerer: This is Acme Inc. [or "the office of Mentor X"].
+			- You: Hi, this is Tim Ferriss calling for John Grisham, please.30
+			- Answerer: May I ask what this is regarding?
+			- You: Sure. I know this might sound a bit odd,31 but I'm a first-time author and just read his interview in Time Out New York.32 I'm a longtime33 fan and have finally built up the courage to34 call him for one specific piece of advice. It wouldn't take more than two minutes of his time. Is there any way you can help me get through to him?35 I really, really appreciate whatever you can do.
+			- Answerer: Hmmm . . . Just a second. Let me see if he's available. [two minutes later] Here you go. Good luck, [rings to another line]
+			- John Grisham: John Grisham here.
+			- You: Hi, Mr. Grisham. My name is Tim Ferriss. I know this might sound a bit odd, but I'm a first-time author and a longtime fan. I just read your interview in Time Out New York and finally built up the courage to call. I have wanted to ask you for a specific piece of advice for a long time, and it shouldn't take more than two minutes of your time. May I?36
+			- John Grisham: Uh ... OK. Go ahead. I have to be on a call in a few minutes.
+			- You (at the very end of the call): Thank you so much for being so generous with your time. If I have the occasional tough question—very occasional—is there any chance I could keep in touch via e-mail?37
+			- 30. Said casually and with confidence, this alone will get you through surprisingly
+			- often. "I'd like to speak with Mr./Ms. X, please" is a dead giveaway that you don't know
+			- them, if you want to up the chances of getting though but risk looking foolish if they
+			- call the bluff, ask for the target mentor by first name only.
+			- 31. I use this type of lead-in whenever making off-the-wall requests. It softens it and
+			- makes the person curious enough to listen before spitting out an automatic "no."
+			- 32. This answers the questions they'll have in their head: "Who are you and why are
+			- you calling now?" I like to be a "first-time" something to play the sympathy card, and I
+			- find a recent media feature online to cite as the trigger for calling.
+			- 33. I call people I'm familiar with. If you can't call yourself a longtime fan, tell them that
+			- you have followed the mentor's career or business exploits for a certain number of
+			- years.
+			- 34. Don't pretend to be strong. Make it clear you're nervous and they'll lower their
+			- guard. I often do this even if I'm not nervous.
+			- 35. The wording here is critical. Ask them to "help" you do something.
+			- 36. Just rework the gatekeeper paragraph for this, and don't dillydally—get to the point
+			- quickly and ask for permission to pull the trigger.
+			- 37. End the conversation by opening the door for future contact. Start with e-mail and
+			- let the mentoring relationship develop from there.
+			- Confirming Sufficient Market Size
+			- •-Writer's Market (www.writersmarket.com)
+			- Here you'll find a listing of thousands of specialty and niche magazines, including
+			- circulation and subscription numbers. I prefer the print version.
+			- •-Standard Rate and Data Services (www.srds.com)
+			- Check out this resource for annual listings of magazine and company customer
+			- mailing lists available for rent. If you're considering creating a how-to
+			- video for duck hunting, check out the size of customer lists from hunting
+			- gun manufacturers and related magazines first. Use the print version in
+			- libraries instead of paying for the somewhat confusing online access.
+			- Finding Manufacturing or Products to Resell
+			- •-Thomas's Register of Manufacturers (www.thomasnet.com)
+			- (800-699-9822) This is a searchable database of contract manufacturers
+			- for every conceivable product, from underwear and food products to
+			- airplane parts.
+			- •-Dropship Source (www.dropshipsource.com) (877-637-6774) This site
+			- offers an extensive how-to guide for finding manufacturers willing to dropship
+			- product to your customers, which allows you to avoid prepurchasing
+			- inventory. If this fails, just order the product you'd like to resell from a
+			- competitor and Google the "from" shipping address. This will often lead
+			- back to the drop-shipper, who can then be contacted directly.
+			- •-www.ingrambook.com, www.techdata.com
+			- See these two sites for electronics, DVDs, and books.
+			- •-www.housewares.org, www.nationalhardwareshow.com
+			- (847-292-4200) For housewares, hardware, and related talent (on-screen
+			- demonstrators), also consider attending local or state fairs.
+			- •-www.expoeast.com, expowest.com
+			- See these sites for consumables and vitamin products.
+			- Finding Public Domain Information to Repurpose
+			- Be sure to speak with an intellectual property attorney before using apparent
+			- public domain material. If someone modifies 20% of a public domain work
+			- (through abridging and footnotes, for example), their "new" complete work
+			- can be copyrighted. Using it without permission would then be a punishable
+			- infringement. The details can get confusing. Do the beginning research
+			- yourself, but get a pro to look over your findings before moving ahead with
+			- product development.
+			- "Project Gutenberg (www.gutenberg.org)
+			- Project Gutenberg is a digital library of more than 15,000 pieces of literature
+			- considered to be in the public domain.
+			- •-LibriVox (www.librivox.org)
+			- LibriVox is a collection of audiobooks from the public domain that are
+			- available for free download.
+			- Recording Phone Interviews with Experts for CD Products
+			- •-HotRecorder (www.hotrecorder.com)
+			- HotRecorder records any phone call starting from or received by a PC and
+			- can be used in conjunction with Skype (www.skype.com) and other
+			- programs.
+			- Licensing Ideas to Others for Royalties
+			- •~InventRight (www.inventright.com) (800-701-7993) Stephen Key is the
+			- most consistently successful inventor I've ever met, with millions in
+			- royalties from companies like Disney, Nestle, and Coca-Cola. He is not
+			- high-tech but specializes in creating simple products or improving on
+			- existing products and then licensing (renting) his ideas to large
+			- corporations. He comes up with the idea, files a provisional patent for less
+			- than $200, and then lets another company do the work while he collects
+			- checks. This site introduces his fail-proof process for doing the same. His
+			- techniques for cold calling alone are invaluable. Highly recommended.
+			- •-Guthy-Renker Corporation (www.guthyrenker.com)
+			- (760-773-9022) GRC is the 800-pound infomercial gorilla. It brings in
+			- more than $1.3 billion per year in sales with mega-hits like Tony Robbins,
+			- Proactiv Solution, and Winsor Pilates. Don't expect more than a 2-4%
+			- royalty if you make the cut, but the numbers are huge enough to make it
+			- worth a look. Submit your product online.
+			- Trolling Patents for Unexploited Ideas to Turn into Products
+			- "^United States Patent and Trademark Office (www.uspto.gov) (800-
+			- 786-9199)
+			- •-www.autm.net
+			- For licensable technologies developed at universities, see "view all listings"
+			- under "Technology Transfer Offices."
+			- •-www.uiausa.org/Resources/InventorGroups.htm
+			- For inventors' groups and associations, call and ask if members have anything
+			- to license.
+			- Becoming an Expert
+			- •-ProfNet via PR Leads (www.prleads.com/discountpage)
+			- Receive daily leads from journalists looking for experts to cite and interview for media ranging from local outlets to CNN and NY Times. Stop swimming upstream and start responding to stories people are already working on. Mention my name to get 2 months for price of 1.
+			- •-ExpertClick (www.expertclick.com)
+			- This is another secret of the PR pros. Put up an expert profile for media to
+			- see, receive an up-to-date database of top media contacts, and send free
+			- press releases to 12,000 journaUsts, all on one website that gets more than 5
+			- million hits per month. This is how I got on NBC and ended up developing
+			- a prime-time TV show. It works. Mention my name on the phone, or use
+			- "Tim Ferriss $100" online, to get a $100 discount.
+			- TESTING THE MUSE
+			- MICROTESTING (inexpensive adverts to test consumer response)
+			- -Google Adwords for 5 days for $500 or less (for a full 90 day PPC marketing plan visit www.fourhourworkweek.com ) fee each time someone clicks through to your site
+			- (it is illegal to charge customers prior to shipment however many state allow 3/4 weeks for deliver, useful blackhat strategy)
+			- 1) BEST - look at competition and create more compelling offer on basic 1-3 page website
+			- 2) TEST - test offer using 5-day google adwords campaign
+			- 3) DIVEST OR INVEST - cut losses with losers and manufacture the winner(s) for sales rollout
+			- case study - yoga instructor who found rock climbers signing up, therefore yoga instructional DVD with spiral bound manual tailored to that sport?
+			- Firstly find related keywords to product, then visit top 3 websites that consistently appear. How can you differentiate yourself? (credibility indicators e.g. testimonials, better guarantee, better selection, faster/free shipping?)
+			- Secondly create a one-page testimonial-rich ad that emphasises differentiators and product benefits using personal photos/stock photos from stock photo websites. (300-600 word). Collect other intriguing adverts for use as a model, ask clients for testimonials or get pics of others using products. www.pxmethod.com for a good example. free how-to seminars as recommended in the Expert Build are ideal for identifying popular selling points and securing testimonials
+			- *look at slogans of successful products to emulate
+			- eBay testiong - 48 hour with reserve at 50% price, receive bids and see if it goes near target price, cancel last min
+			- Purchase button takes them to page with pricing/shipping/handling (so they dont finalise just to confirm total pricing) and basic contact fields (email and phone)
+			- -next page says unfortunately we are currently on back order but will contact you as soon as we have product in stock. thank you for your patience
+			- OR could use email sign-up and take a percentage of that as an order
+			- Google Adwords campaign with 50-100 search terms, daily budgets set at $50 a day (visit www.google.com/onlinebusiness to understand terminology)
+			- -use specific keywords, aim for second through fourth positioning but no more than $0.20 CPC
+			- -google analytics to track orders and page abandonment rates and www.aweber.com to track email signups
+			- -make ads that focus on differentiators
+			- He creates five groups of 10 search terms each - can to test different domain names, product names or guarantees.
+			- -disable google feature which serves only best-performing ad in order to compare and find best headline/domain name and body text for final ad
+			- (COSTS $250 OR LESS)
+			- 100 specific terms at low CPC perform better than expensive broad kw's. if budget permits, allow related terms and daily expenditure so PPC test costs 1k
+			- Compare CPC cost with hypothetical profit (e.g. 10 purchases x $50 profit per widget minus $200 adwords cost = xxx profit)
+			- OVERTURE is second largest PPC engine
+			- after this setup a yahoo store for $99 a month and contact customers again, then advertise in magazines in future (asking for first-time advertiser discount then citing competing magazine to get another 20% discount at 50% off total for small display add). Order more product with net-30 payment terms then a toll-free number in print ad that forwards to cellphone in order to determine FAQ and compare offer of buy two get one free to normal sale
+			- -if low interest, offer a better guarantee (e.g. double money back)
+			- decides to negotiate a longer-term ad agreement
+			- with the magazine. He sends his sales rep a check for four issues at
+			- 30% of their published rates. He calls to confirm that they received
+			- his check via FedEx and, with check in hand and deadlines looming,
+			- they don't refuse.
+			- put pricing on a separate page so it can be isolated as a testing variable
+			- -low cost domainds www.domainsinseconds.com
+			- -use two providers (one backup) sign up with www.no-ip.com which can redirect traffic (DNS) to backup in 5 mins rather than 24 hours
+			- www.getty.com for stock photos www.freestockphotos.com
+			- ebay store even or shopify?
+			- google checkout or paypal cart (google requires customers to have google ID)
+			- www.offermatica.com www.vertster.com www.optimost.com for testing, which alternates dif versions of homepages to see which is best settings
+			- alexa for competitive site traffic
+			- www.tollfreemax.com for toll free numbers, forwarded to your phone
+			- AUTOMATION
+			- look at McDonald's organisational chart
+			- (and calculate advertising cost per unit)
+			- -Ensure outsourcers are willing to communicate among themselves to solve problem, and give them written permission to make most inexpensive decisions without consulting you first (e.g. start at 100 then move to 400
+			- Phase 1 (0-50 units)
+			- -do it all yourself and put your phone number on site for general questions/order taking in order to learn FAQ
+			- -investigate opening merchant account for later outsourced card processing
+			- Phase 2 - >10 units per week
+			- -add FAQ to website, find local fulfillment companies at www.mfsanet.org or call local printers and ask for recommendations. limit field to those who agree no setup fees and monthly minimums, if not ask for 50% off both and request setup fee be applied as an advance against shipping or other fees. then limit to those who can respond to order status email or customer phone calls. email responses you have used can be copy-paste for them
+			- > sample email responses for fulfillment purposes on website
+			- - also explain you are a startup with small budget, need cash for advertising for more shipment, mention competitors
+			- -ask for three client references and ask where there issues or weaknesses or incidents or disagreements are
+			- -ask for net-30 terms
+			- -use this ideally with smaller operations
+			- Phase 3 - >20 units per week
+			- -end-to-end fulfillment houses that handle it all, interview them about costs and ask for referrals to call centers and credit card processors they've collaborated with for file transfers and problem solving
+			- -need merchant account
+			- Optionally, set up an account with one of the call centers your
+			- new fulfillment center recommends. These will often have toll-free
+			- numbers you can use instead of purchasing your own. Look at the
+			- percentage split of online to phone orders during testing and consider
+			- carefully if the extra revenue from the latter is worth the hassle. It
+			- often isn't. Those who call to order will generally order online if
+			- given no other option.
+			- Before signing on with a call center, get several 800 numbers they
+			- answer for current clients and make test calls, asking difficult
+			- product-related questions and gauging sales abilities. Call each number
+			- at least three times (morning, afternoon, and evening) and note
+			- the make-or-break factor: wait time. The phone should be answered
+			- within three to four rings, and if you are put on hold, the shorter the
+			- wait the better. More than 15 seconds will result in too many abandoned
+			- calls and waste advertising dollars.
+			- -create less decisions for customers, less options e.g. basic or premium, only premium fast shipping, not overnight shipping or expedited as they produce tonnes of anxious phone calls, eliminate phone orders, do not offer international shipments as 10 mins per order for customer forms then product costs bare more with tariffs and duties
+			- find more customers who don't cause problems
+			- raise wholesale min to 12-100 units and require a tax ID number to qualify resellers who are real business people and not time-intensive novices.
+			- refer all potential resellers to an online order form, never negotiate pricing and cite company policy due to problems in teh past
+			- offer low-priced products instead of free products to capture info for follow up sales (e.g. to gauge interest such as email signup). offering free gets the bad customers.
+			- offer lose-win guarantee instead of free trials e.g. if you dont like it we'll pay for brand of your choice, 60 day return, return for full refund including shipping but you can keep product as a gift, lifetime guarantee, return and get twice money bback,
+			- HOW TO LOOK BLUE-CHIP
+			- -dont be CEO, be Vice president, director of xxx, useful in negotiations
+			- -put multiple email and phone contacts on site all forwarded to your email
+			- set up interactive voice response remote receptionist on www.angel.com
+			- end-to-end fulfillment $500+ setup
+			- www.mfpsinc.com www.moultonfulfillment.com www.nationalfulfillment.com
+			- order-taking call centers
+			- www.west.com www.liveops.com www.convergys.com
+			- Closer (convert callers to buyers)
+			- www.inpulseresponse.com www.protocolmarketing www.tritontechnology.com
+			- www.transfirst.com www.paymentech.com www.trustcommerce.com credit card processors interact with fulfillment
+			- www.myaffiliateprogram.com
+			- discount media buying agencies
+			- www.manhmedia.com www.novusprintmedia.com www.mercurymedia.com www.revshare.com www.marketingarchitects.com www.radiodirect.com
+			- Online marketing/research firms
+			- small www.sempo.org
+			- mid www.clicks2cust0mers.com www.workingplanet.com
+			- big www.marketingexperiments.com www.did-it.com (ferisss' team) www.pepperjamsearch.com www.iprospect.com
+			- Full-Service Infomercial Producers
+			- These are the companies that made Oreck Direct, Nutrisystem, Nordic-
+			- Track, and Hooked on Phonics household names. The first has an excellent
+			- DRTV glossary, and both sites offer excellent resources. Don't call unless
+			- you can budget at least $15,000 for a short-form commercial or more than
+			- $50,000 for a long-form infomercial.
+			- •-Hawthorne Direct (www.hawthornedirect.com) (641-472-3800) "-Scriptto-
+			- Screen (www.scripttoscreen.com) (714-558-3971)
+			- Retail and International Product Distribution
+			- Want to get your product on the shelves of Wal-Mart, Costco, Nordstrom,
+			- or the leading department store in Japan? Sometimes it pays to have experts
+			- with relationships get you there.
+			- •-BJ Direct (International) (www.bjgd.com) (949-753-mi)
+			- Celebrity Brokers
+			- Want a celebrity to endorse your product or be a spokesperson? It can cost a
+			- lot less than you think, if you do it right. I know of one clothing endorsement
+			- deal with the best pitcher in Major League Baseball that cost just
+			- $20,000 per year. Here are the brokers who can make it happen.
+			- •-Celeb Brokers (www.celebbrokers.com) (310-268-1476) President Jack
+			- King was the person who first turned me on to this fascinating world. He
+			- knows it all inside and out.
+			- •-Celebrity Endorsement Network (www.celebrityendorsement.com)
+			- (818-225-7090)
+			- Celebrity Finding
+			- •-Contact Any Celebrity (www.contactanycelebrity.com) It is possible to do
+			- it yourself, as I have done many times. This online directory and its helpful
+			- staff will help you find any celebrity in the world.
+			- .3 billion per year in sales with mega-hits like Tony Robbins,
+			- Proactiv Solution, and Winsor Pilates. Don't expect more than a 2-4%
+			- royalty if you make the cut, but the numbers are huge enough to make it
+			- worth a look. Submit your product online.
+			- Trolling Patents for Unexploited Ideas to Turn into Products
+			- "^United States Patent and Trademark Office (www.uspto.gov) (800-
+			- 786-9199)
+			- •-www.autm.net
+			- For licensable technologies developed at universities, see "view all listings"
+			- under "Technology Transfer Offices."
+			- •-www.uiausa.org/Resources/InventorGroups.htm
+			- For inventors' groups and associations, call and ask if members have anything
+			- to license.
+			- Becoming an Expert
+			- •-ProfNet via PR Leads (www.prleads.com/discountpage)
+			- Receive daily leads from journalists looking for experts to cite and interview for media ranging from local outlets to CNN and NY Times. Stop swimming upstream and start responding to stories people are already working on. Mention my name to get 2 months for price of 1.
+			- •-ExpertClick (www.expertclick.com)
+			- This is another secret of the PR pros. Put up an expert profile for media to
+			- see, receive an up-to-date database of top media contacts, and send free
+			- press releases to 12,000 journaUsts, all on one website that gets more than 5
+			- million hits per month. This is how I got on NBC and ended up developing
+			- a prime-time TV show. It works. Mention my name on the phone, or use
+			- "Tim Ferriss
+			- 4HWW Notes on ECOM AND MVPS
+			- Yahoo shopping cart > PDF with billing/shipping info sent > button on yahoo management page charges all customer credit cards > save PDFs as excel purchase orders and email the purchase orders to product manufactuers who then email it to customers who are paid 90 days later (net-90 terms). His PPC is $700/month, Yahoo $99 for hosting/shopping cart
+			- PRODUCT: maximum $500 to test, automatable within 4 weeks and can't require more than 1 day/week of management
+			- high-ticket items have better ROI?
+			- like copy services and copy courses, in my biz, gives you more room to play. You can spend more on PPC with high end stuff, so you can usually beat competitors that way.
+			- or focus on backend e.g. I've been using $47 ebooks as loss leaders, just to get the customer.
+			- Wholesalers ask for 40% discount and distributors ask for 70% off
+			- -Use smart positioning and distribution
+			- Testing: low-priced book related to product as an advert in niche magazine, need confirmed through orders
+			- *More competing resellers, the faster your product goes extinct. Use a large reseller who move large quantities and agree to maintain advertised pricing
+			- *Exclusivity is useful as you can negotiate better profit margins, marketing in-store, faster payment, etc.
+			- DECIDE HOW YOU WILL SELL/DISTRIBUTE BEFOREHAND
+			- It is illegal to control how much someone sells your product for, but you can dictate
+			- how much they advertise it for. This is done by including a Minimum Advertised
+			- Pricing (MAP) policy in your General Terms and Conditions (GTC), which are agreed
+			- to automatically when a written wholesale order is placed. Sample GTC and order
+			- forms are available at www.fourhourworkweek.com.
+			- Use a niche you are familiar with in order to know what they would buy e.g. student, athlete, psychologists,
+			- -look at habits, hobbies, past and present, books/magazines, websites, newsletters, sunscriptions
+			- Which of identified groups have their own magazines - reachable through one or two of them. Make it a market that spend money on products of some type.
+			- Call magazines, speak to advertising directors, tell them to email their current advertising rate card and include both readership numbers and magazine back-issue samples.
+			- Search back issues for repeat advertisers who sell direct-to-consumer via 800 numbers of websites - the more repeat advertisers > more frequent their ads > more profitable a magazine is for them and thereby me
+			- Pick 2 markets with full-page advertising that costs less than $5000, no fewer than 15k readers
+			- Strive to be largest/best/first in a niche (use muse math on book's companion site for determining market size of a recent product)
+			- Main benefit can be described in one sentence - e.g. 1,000 songs in your pocket
+			- Cost the customer $50-200 - less competition in premium price-range, better perceived value, requires less units/customers, attracts lower-maintenance customers, higher profit margins for safety. Not too high that they have to speak to someone on phone before purchase, aim for 8-10x markup
+			- No longer than 3/4 week to manufacture - keeps costs low, helps adapt to sales demand, recommended is 2 weeks. To find out how long it takes contact manufactures in the niche e.g. www.thomasnet.com. Google product keyword with organisation or association to find appropriate organisations then ask for referrals to contact manufactuers and names of their trade magazines. Request pricing in terms of 500/1k/5k units to ensure proper markup is possible
+			- Should be explainable with good online FAQ
+			- 1) RESELL A PRODUCT (easy but least profitable, fast to set up and to die off due to competition between resellers)
+			- -Profitable lifespan is short unless exclusivity agreement
+			- -Useful for secondary back-end products e.g. iPod covers, car GPS systems, as there is no advertising cost to acquire the customer
+			- Contact manufacturer and request a wholesale pricelist (generally 40% off retail) and terms. If business tax ID number is needed, print off forms from government website and file for an LLC for $100-200
+			- 2) LICENSE A PRODUCT
+			- -Licensor sells rights of product for 3-10% of sale price (usualyl around 40% off retail) for each unit sold (whereas we get 90%+ of profit)
+			- -Licensing is dealmaking intensive, thus creative contract negotiation is essential. Case studies on www.fourhourworkweek.com, from how to sell inventions without prototypes to how to secure rights to products as a newb
+			- 3) PRODUCT CREATION (least complicated and most profitable for most)
+			- -Elance for certain hard prototypes, which is then taken to a contract manufacturer. Generic products from contract manufacturers can also be re-labelling and repurposed e.g. own line of vitamin products in chiropractors office
+			- Information products are time-consuming to duplicate, fast to manufacture and low-cost e.g. low-budget how-to DVD for people who want to do xx
+			- Work out minimal customer base (e.g. to make $500 a month)
+			- Info can be paraphrased, repurposed content from public domain e.g. government docs and material that predates modern copyright law, licensed or pay an expert
+			- -read to top 3 best-selling books on home-page design for creating a good simple website
+			- two CDs (30-90 mins each), 40 page transcription of CDs and 10page quickstart guide for $50-200?
+			- How can you tailor a general skill to your market (niching down) or add to what is being sold successfully in your target magazines? (narrow and deep rather than broad)
+			- What skills are you/your market interested in and would pay to learn?
+			- What experts could you interview and record to create a sellable audio CD? offer them a digital master copy of the interview to do with or sell as they like (this is often enough) and/or offer them a small up-front or ongoing royalty payment. Use Skype with HotRecorder
+			- Do you have a failure-to-success story that could be turned into a how-to product for others?
+			- EXPERT STATUS (basic credibility indicators e.g. having a Masters or Phd)
+			- -join 2/3 related trade organisations with official-sounding names e.g. www.acmet.org Association for Conflict Resolution www.ifge.org International Foundation for Gender Education, can be done in 5 mins with credit card
+			- -read top 3 books on topic (historical New York Times bestseller lists) and summarise each on one page
+			- -give one free 1-3hr seminar at closest Uni with posters to advertise and branches of 2 well-known companies e.g. IBM. Tell them you've spoke at X university and belong to XXX trade organisations. Emphasise you are offering it to them to get additional speaking experience outside academia and will not be selling products or services. Record seminars from two angles for later use as a DVD possibly
+			- -offer to write one or two articles for trade magazines in your topic, citing 1 and 3. if they decline, offer to interview a known expert and write the article - it still gets your name listed as a contributor.
+			- -join ProfNet, which journalists use to find experts to quote for articles. use 1/3/4 to show credibility and this will get you featured in media e.g. BBC news
+			- Find Yoda (3 Days)
+			- Call at least one potential superstar mentor per day for three days. Email only after attempting a phone call. I recommend calling before 8:30 A.M. or after 6:00 P.M. to reduce run-ins with secretaries and other gatekeepers. Have a single question in mind, one that you have researched but have been unable to answer yourself. Shoot for "A" players—CEOs, ultrasuccessful entrepreneurs, famous authors, etc.—and don't aim low to make it less frightening. Use www.contactanycelebrity.com if need be, and base your script on the following.
+			- Unknown answerer: This is Acme Inc. [or "the office of Mentor X"].
+			- You: Hi, this is Tim Ferriss calling for John Grisham, please.30
+			- Answerer: May I ask what this is regarding?
+			- You: Sure. I know this might sound a bit odd,31 but I'm a first-time author and just read his interview in Time Out New York.32 I'm a longtime33 fan and have finally built up the courage to34 call him for one specific piece of advice. It wouldn't take more than two minutes of his time. Is there any way you can help me get through to him?35 I really, really appreciate whatever you can do.
+			- Answerer: Hmmm . . . Just a second. Let me see if he's available. [two minutes later] Here you go. Good luck, [rings to another line]
+			- John Grisham: John Grisham here.
+			- You: Hi, Mr. Grisham. My name is Tim Ferriss. I know this might sound a bit odd, but I'm a first-time author and a longtime fan. I just read your interview in Time Out New York and finally built up the courage to call. I have wanted to ask you for a specific piece of advice for a long time, and it shouldn't take more than two minutes of your time. May I?36
+			- John Grisham: Uh ... OK. Go ahead. I have to be on a call in a few minutes.
+			- You (at the very end of the call): Thank you so much for being so generous with your time. If I have the occasional tough question—very occasional—is there any chance I could keep in touch via e-mail?37
+			- 30. Said casually and with confidence, this alone will get you through surprisingly
+			- often. "I'd like to speak with Mr./Ms. X, please" is a dead giveaway that you don't know
+			- them, if you want to up the chances of getting though but risk looking foolish if they
+			- call the bluff, ask for the target mentor by first name only.
+			- 31. I use this type of lead-in whenever making off-the-wall requests. It softens it and
+			- makes the person curious enough to listen before spitting out an automatic "no."
+			- 32. This answers the questions they'll have in their head: "Who are you and why are
+			- you calling now?" I like to be a "first-time" something to play the sympathy card, and I
+			- find a recent media feature online to cite as the trigger for calling.
+			- 33. I call people I'm familiar with. If you can't call yourself a longtime fan, tell them that
+			- you have followed the mentor's career or business exploits for a certain number of
+			- years.
+			- 34. Don't pretend to be strong. Make it clear you're nervous and they'll lower their
+			- guard. I often do this even if I'm not nervous.
+			- 35. The wording here is critical. Ask them to "help" you do something.
+			- 36. Just rework the gatekeeper paragraph for this, and don't dillydally—get to the point
+			- quickly and ask for permission to pull the trigger.
+			- 37. End the conversation by opening the door for future contact. Start with e-mail and
+			- let the mentoring relationship develop from there.
+			- Confirming Sufficient Market Size
+			- •-Writer's Market (www.writersmarket.com)
+			- Here you'll find a listing of thousands of specialty and niche magazines, including
+			- circulation and subscription numbers. I prefer the print version.
+			- •-Standard Rate and Data Services (www.srds.com)
+			- Check out this resource for annual listings of magazine and company customer
+			- mailing lists available for rent. If you're considering creating a how-to
+			- video for duck hunting, check out the size of customer lists from hunting
+			- gun manufacturers and related magazines first. Use the print version in
+			- libraries instead of paying for the somewhat confusing online access.
+			- Finding Manufacturing or Products to Resell
+			- •-Thomas's Register of Manufacturers (www.thomasnet.com)
+			- (800-699-9822) This is a searchable database of contract manufacturers
+			- for every conceivable product, from underwear and food products to
+			- airplane parts.
+			- •-Dropship Source (www.dropshipsource.com) (877-637-6774) This site
+			- offers an extensive how-to guide for finding manufacturers willing to dropship
+			- product to your customers, which allows you to avoid prepurchasing
+			- inventory. If this fails, just order the product you'd like to resell from a
+			- competitor and Google the "from" shipping address. This will often lead
+			- back to the drop-shipper, who can then be contacted directly.
+			- •-www.ingrambook.com, www.techdata.com
+			- See these two sites for electronics, DVDs, and books.
+			- •-www.housewares.org, www.nationalhardwareshow.com
+			- (847-292-4200) For housewares, hardware, and related talent (on-screen
+			- demonstrators), also consider attending local or state fairs.
+			- •-www.expoeast.com, expowest.com
+			- See these sites for consumables and vitamin products.
+			- Finding Public Domain Information to Repurpose
+			- Be sure to speak with an intellectual property attorney before using apparent
+			- public domain material. If someone modifies 20% of a public domain work
+			- (through abridging and footnotes, for example), their "new" complete work
+			- can be copyrighted. Using it without permission would then be a punishable
+			- infringement. The details can get confusing. Do the beginning research
+			- yourself, but get a pro to look over your findings before moving ahead with
+			- product development.
+			- "Project Gutenberg (www.gutenberg.org)
+			- Project Gutenberg is a digital library of more than 15,000 pieces of literature
+			- considered to be in the public domain.
+			- •-LibriVox (www.librivox.org)
+			- LibriVox is a collection of audiobooks from the public domain that are
+			- available for free download.
+			- Recording Phone Interviews with Experts for CD Products
+			- •-HotRecorder (www.hotrecorder.com)
+			- HotRecorder records any phone call starting from or received by a PC and
+			- can be used in conjunction with Skype (www.skype.com) and other
+			- programs.
+			- Licensing Ideas to Others for Royalties
+			- •~InventRight (www.inventright.com) (800-701-7993) Stephen Key is the
+			- most consistently successful inventor I've ever met, with millions in
+			- royalties from companies like Disney, Nestle, and Coca-Cola. He is not
+			- high-tech but specializes in creating simple products or improving on
+			- existing products and then licensing (renting) his ideas to large
+			- corporations. He comes up with the idea, files a provisional patent for less
+			- than $200, and then lets another company do the work while he collects
+			- checks. This site introduces his fail-proof process for doing the same. His
+			- techniques for cold calling alone are invaluable. Highly recommended.
+			- •-Guthy-Renker Corporation (www.guthyrenker.com)
+			- (760-773-9022) GRC is the 800-pound infomercial gorilla. It brings in
+			- more than $1.3 billion per year in sales with mega-hits like Tony Robbins,
+			- Proactiv Solution, and Winsor Pilates. Don't expect more than a 2-4%
+			- royalty if you make the cut, but the numbers are huge enough to make it
+			- worth a look. Submit your product online.
+			- Trolling Patents for Unexploited Ideas to Turn into Products
+			- "^United States Patent and Trademark Office (www.uspto.gov) (800-
+			- 786-9199)
+			- •-www.autm.net
+			- For licensable technologies developed at universities, see "view all listings"
+			- under "Technology Transfer Offices."
+			- •-www.uiausa.org/Resources/InventorGroups.htm
+			- For inventors' groups and associations, call and ask if members have anything
+			- to license.
+			- Becoming an Expert
+			- •-ProfNet via PR Leads (www.prleads.com/discountpage)
+			- Receive daily leads from journalists looking for experts to cite and interview for media ranging from local outlets to CNN and NY Times. Stop swimming upstream and start responding to stories people are already working on. Mention my name to get 2 months for price of 1.
+			- •-ExpertClick (www.expertclick.com)
+			- This is another secret of the PR pros. Put up an expert profile for media to
+			- see, receive an up-to-date database of top media contacts, and send free
+			- press releases to 12,000 journaUsts, all on one website that gets more than 5
+			- million hits per month. This is how I got on NBC and ended up developing
+			- a prime-time TV show. It works. Mention my name on the phone, or use
+			- "Tim Ferriss $100" online, to get a $100 discount.
+			- TESTING THE MUSE
+			- MICROTESTING (inexpensive adverts to test consumer response)
+			- -Google Adwords for 5 days for $500 or less (for a full 90 day PPC marketing plan visit www.fourhourworkweek.com ) fee each time someone clicks through to your site
+			- (it is illegal to charge customers prior to shipment however many state allow 3/4 weeks for deliver, useful blackhat strategy)
+			- 1) BEST - look at competition and create more compelling offer on basic 1-3 page website
+			- 2) TEST - test offer using 5-day google adwords campaign
+			- 3) DIVEST OR INVEST - cut losses with losers and manufacture the winner(s) for sales rollout
+			- case study - yoga instructor who found rock climbers signing up, therefore yoga instructional DVD with spiral bound manual tailored to that sport?
+			- Firstly find related keywords to product, then visit top 3 websites that consistently appear. How can you differentiate yourself? (credibility indicators e.g. testimonials, better guarantee, better selection, faster/free shipping?)
+			- Secondly create a one-page testimonial-rich ad that emphasises differentiators and product benefits using personal photos/stock photos from stock photo websites. (300-600 word). Collect other intriguing adverts for use as a model, ask clients for testimonials or get pics of others using products. www.pxmethod.com for a good example. free how-to seminars as recommended in the Expert Build are ideal for identifying popular selling points and securing testimonials
+			- *look at slogans of successful products to emulate
+			- eBay testiong - 48 hour with reserve at 50% price, receive bids and see if it goes near target price, cancel last min
+			- Purchase button takes them to page with pricing/shipping/handling (so they dont finalise just to confirm total pricing) and basic contact fields (email and phone)
+			- -next page says unfortunately we are currently on back order but will contact you as soon as we have product in stock. thank you for your patience
+			- OR could use email sign-up and take a percentage of that as an order
+			- Google Adwords campaign with 50-100 search terms, daily budgets set at $50 a day (visit www.google.com/onlinebusiness to understand terminology)
+			- -use specific keywords, aim for second through fourth positioning but no more than $0.20 CPC
+			- -google analytics to track orders and page abandonment rates and www.aweber.com to track email signups
+			- -make ads that focus on differentiators
+			- He creates five groups of 10 search terms each - can to test different domain names, product names or guarantees.
+			- -disable google feature which serves only best-performing ad in order to compare and find best headline/domain name and body text for final ad
+			- (COSTS $250 OR LESS)
+			- 100 specific terms at low CPC perform better than expensive broad kw's. if budget permits, allow related terms and daily expenditure so PPC test costs 1k
+			- Compare CPC cost with hypothetical profit (e.g. 10 purchases x $50 profit per widget minus $200 adwords cost = xxx profit)
+			- OVERTURE is second largest PPC engine
+			- after this setup a yahoo store for $99 a month and contact customers again, then advertise in magazines in future (asking for first-time advertiser discount then citing competing magazine to get another 20% discount at 50% off total for small display add). Order more product with net-30 payment terms then a toll-free number in print ad that forwards to cellphone in order to determine FAQ and compare offer of buy two get one free to normal sale
+			- -if low interest, offer a better guarantee (e.g. double money back)
+			- decides to negotiate a longer-term ad agreement
+			- with the magazine. He sends his sales rep a check for four issues at
+			- 30% of their published rates. He calls to confirm that they received
+			- his check via FedEx and, with check in hand and deadlines looming,
+			- they don't refuse.
+			- put pricing on a separate page so it can be isolated as a testing variable
+			- -low cost domainds www.domainsinseconds.com
+			- -use two providers (one backup) sign up with www.no-ip.com which can redirect traffic (DNS) to backup in 5 mins rather than 24 hours
+			- www.getty.com for stock photos www.freestockphotos.com
+			- ebay store even or shopify?
+			- google checkout or paypal cart (google requires customers to have google ID)
+			- www.offermatica.com www.vertster.com www.optimost.com for testing, which alternates dif versions of homepages to see which is best settings
+			- alexa for competitive site traffic
+			- www.tollfreemax.com for toll free numbers, forwarded to your phone
+			- AUTOMATION
+			- look at McDonald's organisational chart
+			- (and calculate advertising cost per unit)
+			- -Ensure outsourcers are willing to communicate among themselves to solve problem, and give them written permission to make most inexpensive decisions without consulting you first (e.g. start at 100 then move to 400
+			- Phase 1 (0-50 units)
+			- -do it all yourself and put your phone number on site for general questions/order taking in order to learn FAQ
+			- -investigate opening merchant account for later outsourced card processing
+			- Phase 2 - >10 units per week
+			- -add FAQ to website, find local fulfillment companies at www.mfsanet.org or call local printers and ask for recommendations. limit field to those who agree no setup fees and monthly minimums, if not ask for 50% off both and request setup fee be applied as an advance against shipping or other fees. then limit to those who can respond to order status email or customer phone calls. email responses you have used can be copy-paste for them
+			- > sample email responses for fulfillment purposes on website
+			- - also explain you are a startup with small budget, need cash for advertising for more shipment, mention competitors
+			- -ask for three client references and ask where there issues or weaknesses or incidents or disagreements are
+			- -ask for net-30 terms
+			- -use this ideally with smaller operations
+			- Phase 3 - >20 units per week
+			- -end-to-end fulfillment houses that handle it all, interview them about costs and ask for referrals to call centers and credit card processors they've collaborated with for file transfers and problem solving
+			- -need merchant account
+			- Optionally, set up an account with one of the call centers your
+			- new fulfillment center recommends. These will often have toll-free
+			- numbers you can use instead of purchasing your own. Look at the
+			- percentage split of online to phone orders during testing and consider
+			- carefully if the extra revenue from the latter is worth the hassle. It
+			- often isn't. Those who call to order will generally order online if
+			- given no other option.
+			- Before signing on with a call center, get several 800 numbers they
+			- answer for current clients and make test calls, asking difficult
+			- product-related questions and gauging sales abilities. Call each number
+			- at least three times (morning, afternoon, and evening) and note
+			- the make-or-break factor: wait time. The phone should be answered
+			- within three to four rings, and if you are put on hold, the shorter the
+			- wait the better. More than 15 seconds will result in too many abandoned
+			- calls and waste advertising dollars.
+			- -create less decisions for customers, less options e.g. basic or premium, only premium fast shipping, not overnight shipping or expedited as they produce tonnes of anxious phone calls, eliminate phone orders, do not offer international shipments as 10 mins per order for customer forms then product costs bare more with tariffs and duties
+			- find more customers who don't cause problems
+			- raise wholesale min to 12-100 units and require a tax ID number to qualify resellers who are real business people and not time-intensive novices.
+			- refer all potential resellers to an online order form, never negotiate pricing and cite company policy due to problems in teh past
+			- offer low-priced products instead of free products to capture info for follow up sales (e.g. to gauge interest such as email signup). offering free gets the bad customers.
+			- offer lose-win guarantee instead of free trials e.g. if you dont like it we'll pay for brand of your choice, 60 day return, return for full refund including shipping but you can keep product as a gift, lifetime guarantee, return and get twice money bback,
+			- HOW TO LOOK BLUE-CHIP
+			- -dont be CEO, be Vice president, director of xxx, useful in negotiations
+			- -put multiple email and phone contacts on site all forwarded to your email
+			- set up interactive voice response remote receptionist on www.angel.com
+			- end-to-end fulfillment $500+ setup
+			- www.mfpsinc.com www.moultonfulfillment.com www.nationalfulfillment.com
+			- order-taking call centers
+			- www.west.com www.liveops.com www.convergys.com
+			- Closer (convert callers to buyers)
+			- www.inpulseresponse.com www.protocolmarketing www.tritontechnology.com
+			- www.transfirst.com www.paymentech.com www.trustcommerce.com credit card processors interact with fulfillment
+			- www.myaffiliateprogram.com
+			- discount media buying agencies
+			- www.manhmedia.com www.novusprintmedia.com www.mercurymedia.com www.revshare.com www.marketingarchitects.com www.radiodirect.com
+			- Online marketing/research firms
+			- small www.sempo.org
+			- mid www.clicks2cust0mers.com www.workingplanet.com
+			- big www.marketingexperiments.com www.did-it.com (ferisss' team) www.pepperjamsearch.com www.iprospect.com
+			- Full-Service Infomercial Producers
+			- These are the companies that made Oreck Direct, Nutrisystem, Nordic-
+			- Track, and Hooked on Phonics household names. The first has an excellent
+			- DRTV glossary, and both sites offer excellent resources. Don't call unless
+			- you can budget at least $15,000 for a short-form commercial or more than
+			- $50,000 for a long-form infomercial.
+			- •-Hawthorne Direct (www.hawthornedirect.com) (641-472-3800) "-Scriptto-
+			- Screen (www.scripttoscreen.com) (714-558-3971)
+			- Retail and International Product Distribution
+			- Want to get your product on the shelves of Wal-Mart, Costco, Nordstrom,
+			- or the leading department store in Japan? Sometimes it pays to have experts
+			- with relationships get you there.
+			- •-BJ Direct (International) (www.bjgd.com) (949-753-mi)
+			- Celebrity Brokers
+			- Want a celebrity to endorse your product or be a spokesperson? It can cost a
+			- lot less than you think, if you do it right. I know of one clothing endorsement
+			- deal with the best pitcher in Major League Baseball that cost just
+			- $20,000 per year. Here are the brokers who can make it happen.
+			- •-Celeb Brokers (www.celebbrokers.com) (310-268-1476) President Jack
+			- King was the person who first turned me on to this fascinating world. He
+			- knows it all inside and out.
+			- •-Celebrity Endorsement Network (www.celebrityendorsement.com)
+			- (818-225-7090)
+			- Celebrity Finding
+			- •-Contact Any Celebrity (www.contactanycelebrity.com) It is possible to do
+			- it yourself, as I have done many times. This online directory and its helpful
+			- staff will help you find any celebrity in the world.
+			- 00" online, to get a
+			- 4HWW Notes on ECOM AND MVPS
+			- Yahoo shopping cart > PDF with billing/shipping info sent > button on yahoo management page charges all customer credit cards > save PDFs as excel purchase orders and email the purchase orders to product manufactuers who then email it to customers who are paid 90 days later (net-90 terms). His PPC is $700/month, Yahoo $99 for hosting/shopping cart
+			- PRODUCT: maximum $500 to test, automatable within 4 weeks and can't require more than 1 day/week of management
+			- high-ticket items have better ROI?
+			- like copy services and copy courses, in my biz, gives you more room to play. You can spend more on PPC with high end stuff, so you can usually beat competitors that way.
+			- or focus on backend e.g. I've been using $47 ebooks as loss leaders, just to get the customer.
+			- Wholesalers ask for 40% discount and distributors ask for 70% off
+			- -Use smart positioning and distribution
+			- Testing: low-priced book related to product as an advert in niche magazine, need confirmed through orders
+			- *More competing resellers, the faster your product goes extinct. Use a large reseller who move large quantities and agree to maintain advertised pricing
+			- *Exclusivity is useful as you can negotiate better profit margins, marketing in-store, faster payment, etc.
+			- DECIDE HOW YOU WILL SELL/DISTRIBUTE BEFOREHAND
+			- It is illegal to control how much someone sells your product for, but you can dictate
+			- how much they advertise it for. This is done by including a Minimum Advertised
+			- Pricing (MAP) policy in your General Terms and Conditions (GTC), which are agreed
+			- to automatically when a written wholesale order is placed. Sample GTC and order
+			- forms are available at www.fourhourworkweek.com.
+			- Use a niche you are familiar with in order to know what they would buy e.g. student, athlete, psychologists,
+			- -look at habits, hobbies, past and present, books/magazines, websites, newsletters, sunscriptions
+			- Which of identified groups have their own magazines - reachable through one or two of them. Make it a market that spend money on products of some type.
+			- Call magazines, speak to advertising directors, tell them to email their current advertising rate card and include both readership numbers and magazine back-issue samples.
+			- Search back issues for repeat advertisers who sell direct-to-consumer via 800 numbers of websites - the more repeat advertisers > more frequent their ads > more profitable a magazine is for them and thereby me
+			- Pick 2 markets with full-page advertising that costs less than $5000, no fewer than 15k readers
+			- Strive to be largest/best/first in a niche (use muse math on book's companion site for determining market size of a recent product)
+			- Main benefit can be described in one sentence - e.g. 1,000 songs in your pocket
+			- Cost the customer $50-200 - less competition in premium price-range, better perceived value, requires less units/customers, attracts lower-maintenance customers, higher profit margins for safety. Not too high that they have to speak to someone on phone before purchase, aim for 8-10x markup
+			- No longer than 3/4 week to manufacture - keeps costs low, helps adapt to sales demand, recommended is 2 weeks. To find out how long it takes contact manufactures in the niche e.g. www.thomasnet.com. Google product keyword with organisation or association to find appropriate organisations then ask for referrals to contact manufactuers and names of their trade magazines. Request pricing in terms of 500/1k/5k units to ensure proper markup is possible
+			- Should be explainable with good online FAQ
+			- 1) RESELL A PRODUCT (easy but least profitable, fast to set up and to die off due to competition between resellers)
+			- -Profitable lifespan is short unless exclusivity agreement
+			- -Useful for secondary back-end products e.g. iPod covers, car GPS systems, as there is no advertising cost to acquire the customer
+			- Contact manufacturer and request a wholesale pricelist (generally 40% off retail) and terms. If business tax ID number is needed, print off forms from government website and file for an LLC for $100-200
+			- 2) LICENSE A PRODUCT
+			- -Licensor sells rights of product for 3-10% of sale price (usualyl around 40% off retail) for each unit sold (whereas we get 90%+ of profit)
+			- -Licensing is dealmaking intensive, thus creative contract negotiation is essential. Case studies on www.fourhourworkweek.com, from how to sell inventions without prototypes to how to secure rights to products as a newb
+			- 3) PRODUCT CREATION (least complicated and most profitable for most)
+			- -Elance for certain hard prototypes, which is then taken to a contract manufacturer. Generic products from contract manufacturers can also be re-labelling and repurposed e.g. own line of vitamin products in chiropractors office
+			- Information products are time-consuming to duplicate, fast to manufacture and low-cost e.g. low-budget how-to DVD for people who want to do xx
+			- Work out minimal customer base (e.g. to make $500 a month)
+			- Info can be paraphrased, repurposed content from public domain e.g. government docs and material that predates modern copyright law, licensed or pay an expert
+			- -read to top 3 best-selling books on home-page design for creating a good simple website
+			- two CDs (30-90 mins each), 40 page transcription of CDs and 10page quickstart guide for $50-200?
+			- How can you tailor a general skill to your market (niching down) or add to what is being sold successfully in your target magazines? (narrow and deep rather than broad)
+			- What skills are you/your market interested in and would pay to learn?
+			- What experts could you interview and record to create a sellable audio CD? offer them a digital master copy of the interview to do with or sell as they like (this is often enough) and/or offer them a small up-front or ongoing royalty payment. Use Skype with HotRecorder
+			- Do you have a failure-to-success story that could be turned into a how-to product for others?
+			- EXPERT STATUS (basic credibility indicators e.g. having a Masters or Phd)
+			- -join 2/3 related trade organisations with official-sounding names e.g. www.acmet.org Association for Conflict Resolution www.ifge.org International Foundation for Gender Education, can be done in 5 mins with credit card
+			- -read top 3 books on topic (historical New York Times bestseller lists) and summarise each on one page
+			- -give one free 1-3hr seminar at closest Uni with posters to advertise and branches of 2 well-known companies e.g. IBM. Tell them you've spoke at X university and belong to XXX trade organisations. Emphasise you are offering it to them to get additional speaking experience outside academia and will not be selling products or services. Record seminars from two angles for later use as a DVD possibly
+			- -offer to write one or two articles for trade magazines in your topic, citing 1 and 3. if they decline, offer to interview a known expert and write the article - it still gets your name listed as a contributor.
+			- -join ProfNet, which journalists use to find experts to quote for articles. use 1/3/4 to show credibility and this will get you featured in media e.g. BBC news
+			- Find Yoda (3 Days)
+			- Call at least one potential superstar mentor per day for three days. Email only after attempting a phone call. I recommend calling before 8:30 A.M. or after 6:00 P.M. to reduce run-ins with secretaries and other gatekeepers. Have a single question in mind, one that you have researched but have been unable to answer yourself. Shoot for "A" players—CEOs, ultrasuccessful entrepreneurs, famous authors, etc.—and don't aim low to make it less frightening. Use www.contactanycelebrity.com if need be, and base your script on the following.
+			- Unknown answerer: This is Acme Inc. [or "the office of Mentor X"].
+			- You: Hi, this is Tim Ferriss calling for John Grisham, please.30
+			- Answerer: May I ask what this is regarding?
+			- You: Sure. I know this might sound a bit odd,31 but I'm a first-time author and just read his interview in Time Out New York.32 I'm a longtime33 fan and have finally built up the courage to34 call him for one specific piece of advice. It wouldn't take more than two minutes of his time. Is there any way you can help me get through to him?35 I really, really appreciate whatever you can do.
+			- Answerer: Hmmm . . . Just a second. Let me see if he's available. [two minutes later] Here you go. Good luck, [rings to another line]
+			- John Grisham: John Grisham here.
+			- You: Hi, Mr. Grisham. My name is Tim Ferriss. I know this might sound a bit odd, but I'm a first-time author and a longtime fan. I just read your interview in Time Out New York and finally built up the courage to call. I have wanted to ask you for a specific piece of advice for a long time, and it shouldn't take more than two minutes of your time. May I?36
+			- John Grisham: Uh ... OK. Go ahead. I have to be on a call in a few minutes.
+			- You (at the very end of the call): Thank you so much for being so generous with your time. If I have the occasional tough question—very occasional—is there any chance I could keep in touch via e-mail?37
+			- 30. Said casually and with confidence, this alone will get you through surprisingly
+			- often. "I'd like to speak with Mr./Ms. X, please" is a dead giveaway that you don't know
+			- them, if you want to up the chances of getting though but risk looking foolish if they
+			- call the bluff, ask for the target mentor by first name only.
+			- 31. I use this type of lead-in whenever making off-the-wall requests. It softens it and
+			- makes the person curious enough to listen before spitting out an automatic "no."
+			- 32. This answers the questions they'll have in their head: "Who are you and why are
+			- you calling now?" I like to be a "first-time" something to play the sympathy card, and I
+			- find a recent media feature online to cite as the trigger for calling.
+			- 33. I call people I'm familiar with. If you can't call yourself a longtime fan, tell them that
+			- you have followed the mentor's career or business exploits for a certain number of
+			- years.
+			- 34. Don't pretend to be strong. Make it clear you're nervous and they'll lower their
+			- guard. I often do this even if I'm not nervous.
+			- 35. The wording here is critical. Ask them to "help" you do something.
+			- 36. Just rework the gatekeeper paragraph for this, and don't dillydally—get to the point
+			- quickly and ask for permission to pull the trigger.
+			- 37. End the conversation by opening the door for future contact. Start with e-mail and
+			- let the mentoring relationship develop from there.
+			- Confirming Sufficient Market Size
+			- •-Writer's Market (www.writersmarket.com)
+			- Here you'll find a listing of thousands of specialty and niche magazines, including
+			- circulation and subscription numbers. I prefer the print version.
+			- •-Standard Rate and Data Services (www.srds.com)
+			- Check out this resource for annual listings of magazine and company customer
+			- mailing lists available for rent. If you're considering creating a how-to
+			- video for duck hunting, check out the size of customer lists from hunting
+			- gun manufacturers and related magazines first. Use the print version in
+			- libraries instead of paying for the somewhat confusing online access.
+			- Finding Manufacturing or Products to Resell
+			- •-Thomas's Register of Manufacturers (www.thomasnet.com)
+			- (800-699-9822) This is a searchable database of contract manufacturers
+			- for every conceivable product, from underwear and food products to
+			- airplane parts.
+			- •-Dropship Source (www.dropshipsource.com) (877-637-6774) This site
+			- offers an extensive how-to guide for finding manufacturers willing to dropship
+			- product to your customers, which allows you to avoid prepurchasing
+			- inventory. If this fails, just order the product you'd like to resell from a
+			- competitor and Google the "from" shipping address. This will often lead
+			- back to the drop-shipper, who can then be contacted directly.
+			- •-www.ingrambook.com, www.techdata.com
+			- See these two sites for electronics, DVDs, and books.
+			- •-www.housewares.org, www.nationalhardwareshow.com
+			- (847-292-4200) For housewares, hardware, and related talent (on-screen
+			- demonstrators), also consider attending local or state fairs.
+			- •-www.expoeast.com, expowest.com
+			- See these sites for consumables and vitamin products.
+			- Finding Public Domain Information to Repurpose
+			- Be sure to speak with an intellectual property attorney before using apparent
+			- public domain material. If someone modifies 20% of a public domain work
+			- (through abridging and footnotes, for example), their "new" complete work
+			- can be copyrighted. Using it without permission would then be a punishable
+			- infringement. The details can get confusing. Do the beginning research
+			- yourself, but get a pro to look over your findings before moving ahead with
+			- product development.
+			- "Project Gutenberg (www.gutenberg.org)
+			- Project Gutenberg is a digital library of more than 15,000 pieces of literature
+			- considered to be in the public domain.
+			- •-LibriVox (www.librivox.org)
+			- LibriVox is a collection of audiobooks from the public domain that are
+			- available for free download.
+			- Recording Phone Interviews with Experts for CD Products
+			- •-HotRecorder (www.hotrecorder.com)
+			- HotRecorder records any phone call starting from or received by a PC and
+			- can be used in conjunction with Skype (www.skype.com) and other
+			- programs.
+			- Licensing Ideas to Others for Royalties
+			- •~InventRight (www.inventright.com) (800-701-7993) Stephen Key is the
+			- most consistently successful inventor I've ever met, with millions in
+			- royalties from companies like Disney, Nestle, and Coca-Cola. He is not
+			- high-tech but specializes in creating simple products or improving on
+			- existing products and then licensing (renting) his ideas to large
+			- corporations. He comes up with the idea, files a provisional patent for less
+			- than $200, and then lets another company do the work while he collects
+			- checks. This site introduces his fail-proof process for doing the same. His
+			- techniques for cold calling alone are invaluable. Highly recommended.
+			- •-Guthy-Renker Corporation (www.guthyrenker.com)
+			- (760-773-9022) GRC is the 800-pound infomercial gorilla. It brings in
+			- more than $1.3 billion per year in sales with mega-hits like Tony Robbins,
+			- Proactiv Solution, and Winsor Pilates. Don't expect more than a 2-4%
+			- royalty if you make the cut, but the numbers are huge enough to make it
+			- worth a look. Submit your product online.
+			- Trolling Patents for Unexploited Ideas to Turn into Products
+			- "^United States Patent and Trademark Office (www.uspto.gov) (800-
+			- 786-9199)
+			- •-www.autm.net
+			- For licensable technologies developed at universities, see "view all listings"
+			- under "Technology Transfer Offices."
+			- •-www.uiausa.org/Resources/InventorGroups.htm
+			- For inventors' groups and associations, call and ask if members have anything
+			- to license.
+			- Becoming an Expert
+			- •-ProfNet via PR Leads (www.prleads.com/discountpage)
+			- Receive daily leads from journalists looking for experts to cite and interview for media ranging from local outlets to CNN and NY Times. Stop swimming upstream and start responding to stories people are already working on. Mention my name to get 2 months for price of 1.
+			- •-ExpertClick (www.expertclick.com)
+			- This is another secret of the PR pros. Put up an expert profile for media to
+			- see, receive an up-to-date database of top media contacts, and send free
+			- press releases to 12,000 journaUsts, all on one website that gets more than 5
+			- million hits per month. This is how I got on NBC and ended up developing
+			- a prime-time TV show. It works. Mention my name on the phone, or use
+			- "Tim Ferriss $100" online, to get a $100 discount.
+			- TESTING THE MUSE
+			- MICROTESTING (inexpensive adverts to test consumer response)
+			- -Google Adwords for 5 days for $500 or less (for a full 90 day PPC marketing plan visit www.fourhourworkweek.com ) fee each time someone clicks through to your site
+			- (it is illegal to charge customers prior to shipment however many state allow 3/4 weeks for deliver, useful blackhat strategy)
+			- 1) BEST - look at competition and create more compelling offer on basic 1-3 page website
+			- 2) TEST - test offer using 5-day google adwords campaign
+			- 3) DIVEST OR INVEST - cut losses with losers and manufacture the winner(s) for sales rollout
+			- case study - yoga instructor who found rock climbers signing up, therefore yoga instructional DVD with spiral bound manual tailored to that sport?
+			- Firstly find related keywords to product, then visit top 3 websites that consistently appear. How can you differentiate yourself? (credibility indicators e.g. testimonials, better guarantee, better selection, faster/free shipping?)
+			- Secondly create a one-page testimonial-rich ad that emphasises differentiators and product benefits using personal photos/stock photos from stock photo websites. (300-600 word). Collect other intriguing adverts for use as a model, ask clients for testimonials or get pics of others using products. www.pxmethod.com for a good example. free how-to seminars as recommended in the Expert Build are ideal for identifying popular selling points and securing testimonials
+			- *look at slogans of successful products to emulate
+			- eBay testiong - 48 hour with reserve at 50% price, receive bids and see if it goes near target price, cancel last min
+			- Purchase button takes them to page with pricing/shipping/handling (so they dont finalise just to confirm total pricing) and basic contact fields (email and phone)
+			- -next page says unfortunately we are currently on back order but will contact you as soon as we have product in stock. thank you for your patience
+			- OR could use email sign-up and take a percentage of that as an order
+			- Google Adwords campaign with 50-100 search terms, daily budgets set at $50 a day (visit www.google.com/onlinebusiness to understand terminology)
+			- -use specific keywords, aim for second through fourth positioning but no more than $0.20 CPC
+			- -google analytics to track orders and page abandonment rates and www.aweber.com to track email signups
+			- -make ads that focus on differentiators
+			- He creates five groups of 10 search terms each - can to test different domain names, product names or guarantees.
+			- -disable google feature which serves only best-performing ad in order to compare and find best headline/domain name and body text for final ad
+			- (COSTS $250 OR LESS)
+			- 100 specific terms at low CPC perform better than expensive broad kw's. if budget permits, allow related terms and daily expenditure so PPC test costs 1k
+			- Compare CPC cost with hypothetical profit (e.g. 10 purchases x $50 profit per widget minus $200 adwords cost = xxx profit)
+			- OVERTURE is second largest PPC engine
+			- after this setup a yahoo store for $99 a month and contact customers again, then advertise in magazines in future (asking for first-time advertiser discount then citing competing magazine to get another 20% discount at 50% off total for small display add). Order more product with net-30 payment terms then a toll-free number in print ad that forwards to cellphone in order to determine FAQ and compare offer of buy two get one free to normal sale
+			- -if low interest, offer a better guarantee (e.g. double money back)
+			- decides to negotiate a longer-term ad agreement
+			- with the magazine. He sends his sales rep a check for four issues at
+			- 30% of their published rates. He calls to confirm that they received
+			- his check via FedEx and, with check in hand and deadlines looming,
+			- they don't refuse.
+			- put pricing on a separate page so it can be isolated as a testing variable
+			- -low cost domainds www.domainsinseconds.com
+			- -use two providers (one backup) sign up with www.no-ip.com which can redirect traffic (DNS) to backup in 5 mins rather than 24 hours
+			- www.getty.com for stock photos www.freestockphotos.com
+			- ebay store even or shopify?
+			- google checkout or paypal cart (google requires customers to have google ID)
+			- www.offermatica.com www.vertster.com www.optimost.com for testing, which alternates dif versions of homepages to see which is best settings
+			- alexa for competitive site traffic
+			- www.tollfreemax.com for toll free numbers, forwarded to your phone
+			- AUTOMATION
+			- look at McDonald's organisational chart
+			- (and calculate advertising cost per unit)
+			- -Ensure outsourcers are willing to communicate among themselves to solve problem, and give them written permission to make most inexpensive decisions without consulting you first (e.g. start at 100 then move to 400
+			- Phase 1 (0-50 units)
+			- -do it all yourself and put your phone number on site for general questions/order taking in order to learn FAQ
+			- -investigate opening merchant account for later outsourced card processing
+			- Phase 2 - >10 units per week
+			- -add FAQ to website, find local fulfillment companies at www.mfsanet.org or call local printers and ask for recommendations. limit field to those who agree no setup fees and monthly minimums, if not ask for 50% off both and request setup fee be applied as an advance against shipping or other fees. then limit to those who can respond to order status email or customer phone calls. email responses you have used can be copy-paste for them
+			- > sample email responses for fulfillment purposes on website
+			- - also explain you are a startup with small budget, need cash for advertising for more shipment, mention competitors
+			- -ask for three client references and ask where there issues or weaknesses or incidents or disagreements are
+			- -ask for net-30 terms
+			- -use this ideally with smaller operations
+			- Phase 3 - >20 units per week
+			- -end-to-end fulfillment houses that handle it all, interview them about costs and ask for referrals to call centers and credit card processors they've collaborated with for file transfers and problem solving
+			- -need merchant account
+			- Optionally, set up an account with one of the call centers your
+			- new fulfillment center recommends. These will often have toll-free
+			- numbers you can use instead of purchasing your own. Look at the
+			- percentage split of online to phone orders during testing and consider
+			- carefully if the extra revenue from the latter is worth the hassle. It
+			- often isn't. Those who call to order will generally order online if
+			- given no other option.
+			- Before signing on with a call center, get several 800 numbers they
+			- answer for current clients and make test calls, asking difficult
+			- product-related questions and gauging sales abilities. Call each number
+			- at least three times (morning, afternoon, and evening) and note
+			- the make-or-break factor: wait time. The phone should be answered
+			- within three to four rings, and if you are put on hold, the shorter the
+			- wait the better. More than 15 seconds will result in too many abandoned
+			- calls and waste advertising dollars.
+			- -create less decisions for customers, less options e.g. basic or premium, only premium fast shipping, not overnight shipping or expedited as they produce tonnes of anxious phone calls, eliminate phone orders, do not offer international shipments as 10 mins per order for customer forms then product costs bare more with tariffs and duties
+			- find more customers who don't cause problems
+			- raise wholesale min to 12-100 units and require a tax ID number to qualify resellers who are real business people and not time-intensive novices.
+			- refer all potential resellers to an online order form, never negotiate pricing and cite company policy due to problems in teh past
+			- offer low-priced products instead of free products to capture info for follow up sales (e.g. to gauge interest such as email signup). offering free gets the bad customers.
+			- offer lose-win guarantee instead of free trials e.g. if you dont like it we'll pay for brand of your choice, 60 day return, return for full refund including shipping but you can keep product as a gift, lifetime guarantee, return and get twice money bback,
+			- HOW TO LOOK BLUE-CHIP
+			- -dont be CEO, be Vice president, director of xxx, useful in negotiations
+			- -put multiple email and phone contacts on site all forwarded to your email
+			- set up interactive voice response remote receptionist on www.angel.com
+			- end-to-end fulfillment $500+ setup
+			- www.mfpsinc.com www.moultonfulfillment.com www.nationalfulfillment.com
+			- order-taking call centers
+			- www.west.com www.liveops.com www.convergys.com
+			- Closer (convert callers to buyers)
+			- www.inpulseresponse.com www.protocolmarketing www.tritontechnology.com
+			- www.transfirst.com www.paymentech.com www.trustcommerce.com credit card processors interact with fulfillment
+			- www.myaffiliateprogram.com
+			- discount media buying agencies
+			- www.manhmedia.com www.novusprintmedia.com www.mercurymedia.com www.revshare.com www.marketingarchitects.com www.radiodirect.com
+			- Online marketing/research firms
+			- small www.sempo.org
+			- mid www.clicks2cust0mers.com www.workingplanet.com
+			- big www.marketingexperiments.com www.did-it.com (ferisss' team) www.pepperjamsearch.com www.iprospect.com
+			- Full-Service Infomercial Producers
+			- These are the companies that made Oreck Direct, Nutrisystem, Nordic-
+			- Track, and Hooked on Phonics household names. The first has an excellent
+			- DRTV glossary, and both sites offer excellent resources. Don't call unless
+			- you can budget at least $15,000 for a short-form commercial or more than
+			- $50,000 for a long-form infomercial.
+			- •-Hawthorne Direct (www.hawthornedirect.com) (641-472-3800) "-Scriptto-
+			- Screen (www.scripttoscreen.com) (714-558-3971)
+			- Retail and International Product Distribution
+			- Want to get your product on the shelves of Wal-Mart, Costco, Nordstrom,
+			- or the leading department store in Japan? Sometimes it pays to have experts
+			- with relationships get you there.
+			- •-BJ Direct (International) (www.bjgd.com) (949-753-mi)
+			- Celebrity Brokers
+			- Want a celebrity to endorse your product or be a spokesperson? It can cost a
+			- lot less than you think, if you do it right. I know of one clothing endorsement
+			- deal with the best pitcher in Major League Baseball that cost just
+			- $20,000 per year. Here are the brokers who can make it happen.
+			- •-Celeb Brokers (www.celebbrokers.com) (310-268-1476) President Jack
+			- King was the person who first turned me on to this fascinating world. He
+			- knows it all inside and out.
+			- •-Celebrity Endorsement Network (www.celebrityendorsement.com)
+			- (818-225-7090)
+			- Celebrity Finding
+			- •-Contact Any Celebrity (www.contactanycelebrity.com) It is possible to do
+			- it yourself, as I have done many times. This online directory and its helpful
+			- staff will help you find any celebrity in the world.
+			- 00 discount.
+			- TESTING THE MUSE
+			- MICROTESTING (inexpensive adverts to test consumer response)
+			- -Google Adwords for 5 days for $500 or less (for a full 90 day PPC marketing plan visit www.fourhourworkweek.com ) fee each time someone clicks through to your site
+			- (it is illegal to charge customers prior to shipment however many state allow 3/4 weeks for deliver, useful blackhat strategy)
+			- 1) BEST - look at competition and create more compelling offer on basic 1-3 page website
+			- 2) TEST - test offer using 5-day google adwords campaign
+			- 3) DIVEST OR INVEST - cut losses with losers and manufacture the winner(s) for sales rollout
+			- case study - yoga instructor who found rock climbers signing up, therefore yoga instructional DVD with spiral bound manual tailored to that sport?
+			- Firstly find related keywords to product, then visit top 3 websites that consistently appear. How can you differentiate yourself? (credibility indicators e.g. testimonials, better guarantee, better selection, faster/free shipping?)
+			- Secondly create a one-page testimonial-rich ad that emphasises differentiators and product benefits using personal photos/stock photos from stock photo websites. (300-600 word). Collect other intriguing adverts for use as a model, ask clients for testimonials or get pics of others using products. www.pxmethod.com for a good example. free how-to seminars as recommended in the Expert Build are ideal for identifying popular selling points and securing testimonials
+			- *look at slogans of successful products to emulate
+			- eBay testiong - 48 hour with reserve at 50% price, receive bids and see if it goes near target price, cancel last min
+			- Purchase button takes them to page with pricing/shipping/handling (so they dont finalise just to confirm total pricing) and basic contact fields (email and phone)
+			- -next page says unfortunately we are currently on back order but will contact you as soon as we have product in stock. thank you for your patience
+			- OR could use email sign-up and take a percentage of that as an order
+			- Google Adwords campaign with 50-100 search terms, daily budgets set at $50 a day (visit www.google.com/onlinebusiness to understand terminology)
+			- -use specific keywords, aim for second through fourth positioning but no more than $0.20 CPC
+			- -google analytics to track orders and page abandonment rates and www.aweber.com to track email signups
+			- -make ads that focus on differentiators
+			- He creates five groups of 10 search terms each - can to test different domain names, product names or guarantees.
+			- -disable google feature which serves only best-performing ad in order to compare and find best headline/domain name and body text for final ad
+			- (COSTS $250 OR LESS)
+			- 100 specific terms at low CPC perform better than expensive broad kw's. if budget permits, allow related terms and daily expenditure so PPC test costs 1k
+			- Compare CPC cost with hypothetical profit (e.g. 10 purchases x $50 profit per widget minus $200 adwords cost = xxx profit)
+			- OVERTURE is second largest PPC engine
+			- after this setup a yahoo store for $99 a month and contact customers again, then advertise in magazines in future (asking for first-time advertiser discount then citing competing magazine to get another 20% discount at 50% off total for small display add). Order more product with net-30 payment terms then a toll-free number in print ad that forwards to cellphone in order to determine FAQ and compare offer of buy two get one free to normal sale
+			- -if low interest, offer a better guarantee (e.g. double money back)
+			- decides to negotiate a longer-term ad agreement
+			- with the magazine. He sends his sales rep a check for four issues at
+			- 30% of their published rates. He calls to confirm that they received
+			- his check via FedEx and, with check in hand and deadlines looming,
+			- they don't refuse.
+			- put pricing on a separate page so it can be isolated as a testing variable
+			- -low cost domainds www.domainsinseconds.com
+			- -use two providers (one backup) sign up with www.no-ip.com which can redirect traffic (DNS) to backup in 5 mins rather than 24 hours
+			- www.getty.com for stock photos www.freestockphotos.com
+			- ebay store even or shopify?
+			- google checkout or paypal cart (google requires customers to have google ID)
+			- www.offermatica.com www.vertster.com www.optimost.com for testing, which alternates dif versions of homepages to see which is best settings
+			- alexa for competitive site traffic
+			- www.tollfreemax.com for toll free numbers, forwarded to your phone
+			- AUTOMATION
+			- look at McDonald's organisational chart
+			- (and calculate advertising cost per unit)
+			- -Ensure outsourcers are willing to communicate among themselves to solve problem, and give them written permission to make most inexpensive decisions without consulting you first (e.g. start at 100 then move to 400
+			- Phase 1 (0-50 units)
+			- -do it all yourself and put your phone number on site for general questions/order taking in order to learn FAQ
+			- -investigate opening merchant account for later outsourced card processing
+			- Phase 2 - >10 units per week
+			- -add FAQ to website, find local fulfillment companies at www.mfsanet.org or call local printers and ask for recommendations. limit field to those who agree no setup fees and monthly minimums, if not ask for 50% off both and request setup fee be applied as an advance against shipping or other fees. then limit to those who can respond to order status email or customer phone calls. email responses you have used can be copy-paste for them
+			- > sample email responses for fulfillment purposes on website
+			- - also explain you are a startup with small budget, need cash for advertising for more shipment, mention competitors
+			- -ask for three client references and ask where there issues or weaknesses or incidents or disagreements are
+			- -ask for net-30 terms
+			- -use this ideally with smaller operations
+			- Phase 3 - >20 units per week
+			- -end-to-end fulfillment houses that handle it all, interview them about costs and ask for referrals to call centers and credit card processors they've collaborated with for file transfers and problem solving
+			- -need merchant account
+			- Optionally, set up an account with one of the call centers your
+			- new fulfillment center recommends. These will often have toll-free
+			- numbers you can use instead of purchasing your own. Look at the
+			- percentage split of online to phone orders during testing and consider
+			- carefully if the extra revenue from the latter is worth the hassle. It
+			- often isn't. Those who call to order will generally order online if
+			- given no other option.
+			- Before signing on with a call center, get several 800 numbers they
+			- answer for current clients and make test calls, asking difficult
+			- product-related questions and gauging sales abilities. Call each number
+			- at least three times (morning, afternoon, and evening) and note
+			- the make-or-break factor: wait time. The phone should be answered
+			- within three to four rings, and if you are put on hold, the shorter the
+			- wait the better. More than 15 seconds will result in too many abandoned
+			- calls and waste advertising dollars.
+			- -create less decisions for customers, less options e.g. basic or premium, only premium fast shipping, not overnight shipping or expedited as they produce tonnes of anxious phone calls, eliminate phone orders, do not offer international shipments as 10 mins per order for customer forms then product costs bare more with tariffs and duties
+			- find more customers who don't cause problems
+			- raise wholesale min to 12-100 units and require a tax ID number to qualify resellers who are real business people and not time-intensive novices.
+			- refer all potential resellers to an online order form, never negotiate pricing and cite company policy due to problems in teh past
+			- offer low-priced products instead of free products to capture info for follow up sales (e.g. to gauge interest such as email signup). offering free gets the bad customers.
+			- offer lose-win guarantee instead of free trials e.g. if you dont like it we'll pay for brand of your choice, 60 day return, return for full refund including shipping but you can keep product as a gift, lifetime guarantee, return and get twice money bback,
+		- ecommerce and mvp
+			- e-commerce and MVP
+			- [http://www.behindthescenesofamuse.com/](http://www.behindthescenesofamuse.com/)
+			- cedonulli
+			- on the flip side:  i never made fuck-all, drop shipping.  for all it’s advantages, you’re also totally exposed and competing against everybody else who ever caught on to the basic principle of arbitrage-via-internets.  you’re still busting your ass, unless or until you get smarter than all the other guys.  as starting somewhere goes though, it’s definitely somewhere.
+			- booshala
+			- To wit, I’ve been importing toys from China to sell to niche markets in the States and it’s proven to be one of the most difficult things I’ve done after doing decently well at real estate and food and beverage. Could never trust the factory to drop ship it, they would just yoink my customers right out from under me.
+			- fucking chinese. amazon and others offer drop ship services and warehousing, i’m sure you already know. the key isn’t ever the angle (like drop shipping) but all the things that come from doing stuff and all the little tricks and bits and people connections and trust and whatnots.
+			- Caramel Communist  Chubby ChaserPosts: 403Joined: May 2010Reputation: 2Post: #76RE: How are you guys making $$$Advice from someone who has been in the game...-Ecommerce is your best friend...come up with a product..I mean anything, t-shirts, key chains, posters, art, clothes, food, and either set up a website with shopping cart or head over to ebay/amazon/overstock.com and set up an account as a merchant..-get your legal shit in-order...you'll need a business tax i.d., corporate structure (sole, llc, corporation, etc), copyrights, trademarks, and p.o. box. Do not use your home address.-supposedly you need to know seo optimization but this shit is so fluff...just set your website up with unique identifiers and save yourself the hassle...-The beauty about ecommerce is that you can turn it over to a fulfillment operator and they will handle all your work for you. Sales, Warehousing, Inventory Control, Quality Control, Shipping and Handling, Receiving even website maintenance. You can be in fucking Costa Rica and have access to all this info and run your business...(This post was last modified: 06-24-2010 04:40 PM by Caramel Communist.)
+			- 06-24-2010 04:39 PM
+			- youngmobileglobal  Alpha MalePosts: 1,361Joined: Aug 2009Reputation: 32Post: #77RE: How are you guys making $$$I've been looking into importing tea from China and replicating a weight loss program for people. I drank a specific type of tea from the south of China and it made me lose like 5 pounds while I was eating like shit and drinking my ass off every weekend.
+			- 06-24-2010 09:56 PM
+			- lilseezie  Recovering BetaPosts: 190Joined: Jan 2010Reputation: 3Post: #78RE: How are you guys making $$$(06-24-2010 04:39 PM)Caramel Communist Wrote:
+				- Advice from someone who has been in the game...-Ecommerce is your best friend...come up with a product..I mean anything, t-shirts, key chains, posters, art, clothes, food, and either set up a website with shopping cart or head over to ebay/amazon/overstock.com and set up an account as a merchant..-get your legal shit in-order...you'll need a business tax i.d., corporate structure (sole, llc, corporation, etc), copyrights, trademarks, and p.o. box.
+				- Do not use your home address.-supposedly you need to know seo optimization but this shit is so fluff...just set your website up with unique identifiers and save yourself the hassle...-The beauty about ecommerce is that you can turn it over to a fulfillment operator and they will handle all your work for you. Sales, Warehousing, Inventory Control, Quality Control, Shipping and Handling, Receiving even website maintenance. You can be in fucking Costa Rica and have access to all this info and run your business...I don't know much about this, but it sounds intriguing.
+				- What about getting the actual product made? Presumably you have to do all the legwork of finding the manufacturer first, getting samples made, etc., then once you've done that you can find a fulfillment operator to take care of everything else? Picking the goods up from the factory, storing it, and shipping it directly to customers? I'm guessing they'd also then handle any returns/exchanges. What are some good websites for finding manufacturers and fulfillment operators?Thanks,LS
+			- 06-25-2010 12:17 AM
+			- El Viajero  Recovering BetaPosts: 169Joined: Aug 2008Reputation: 2Post: #79RE: How are you guys making $$$(06-25-2010 12:17 AM)lilseezie Wrote:  I don't know much about this, but it sounds intriguing. What about getting the actual product made? Presumably you have to do all the legwork of finding the manufacturer first, getting samples made, etc., then once you've done that you can find a fulfillment operator to take care of everything else? Picking the goods up from the factory, storing it, and shipping it directly to customers? I'm guessing they'd also then handle any returns/exchanges. What are some good websites for finding manufacturers and fulfillment operators?Thanks,LSMost people purchase from wholesale distributors who already have sourced the product and will already be located in your country. You can then either buy from them in bulk or sometimes they will dropship to your customer.The best advice I can give for finding your suppliers is to search on google in quotes, "dealer application" + the related product. For example, "dealer application" airsoft provides the first result to http://www.spartanimports.com/content/in...&Itemid=25 which seems to be a legit wholesaler.I have been running an ecommerce business similar to what was described for about 6 years now so I should be able to answer most questions you have.
+			- 06-25-2010 06:33 AM
+			- Caramel Communist  Chubby ChaserPosts: 403Joined: May 2010Reputation: 2Post: #80RE: How are you guys making $$$(06-25-2010 12:17 AM)lilseezie Wrote:  (06-24-2010 04:39 PM)Caramel Communist Wrote:  Advice from someone who has been in the game...-Ecommerce is your best friend...come up with a product..I mean anything, t-shirts, key chains, posters, art, clothes, food, and either set up a website with shopping cart or head over to ebay/amazon/overstock.com and set up an account as a merchant..-get your legal shit in-order...you'll need a business tax i.d., corporate structure (sole, llc, corporation, etc), copyrights, trademarks, and p.o. box. Do not use your home address.-supposedly you need to know seo optimization but this shit is so fluff...just set your website up with unique identifiers and save yourself the hassle...-The beauty about ecommerce is that you can turn it over to a fulfillment operator and they will handle all your work for you. Sales, Warehousing, Inventory Control, Quality Control, Shipping and Handling, Receiving even website maintenance. You can be in fucking Costa Rica and have access to all this info and run your business...I don't know much about this, but it sounds intriguing. What about getting the actual product made? Presumably you have to do all the legwork of finding the manufacturer first, getting samples made, etc., then once you've done that you can find a fulfillment operator to take care of everything else? Picking the goods up from the factory, storing it, and shipping it directly to customers? I'm guessing they'd also then handle any returns/exchanges. What are some good websites for finding manufacturers and fulfillment operators?Thanks,LSYou are a fast learner......-So find a product that will sell or you feel comfortable getting behind-Contact a mfg in either the u.s. or china to mfg for you...beware by going to china all attempts to protect for trademark purposes are waived. Chinese steal all idea's and re-brand-resell- or pirate....-also this is a key stage to look into licensing..and getting a cut instead of proceeding on...the guy that invented the super soaker was getting checks for 9 -10 million every quarter based on licensing....-Test market thru your website or merchant account on overstock-ebay-amazon-sears.com...-Once you have established a nice consistent volume and YOU HAVE LEARNED enuff, turn it over to a full service fulfillment operator who will handle1. returns/refunds/customer service-call center: if you need the call center..2. payment processing3. drop shipping - (receiving goods, quality control, inventory control, pick-pack-ship merchandise direct to consumers4. will allow you access to the systems they use to monitor performance dialy and build your reporting.5. you can literally have these people managing your entire operations and only have to contact once a week by phone, twice for inperson visit a year... obviously daily for emailsTheir are many fulfillment operators in the U.S....many will exist in prime locations of Chicago-Columbus-Cincy/Dayton Ohio-Lousiville - Memphis - Reno-Las Vegas-Phoenix...why? Because they are 24-48 hours of both coast and airplane hubs...You will be billed at a rate for each unit shipped plus a monthly flat charge in most cases..the advantage of this is this gives you operations team without the risk or costs associated with having to buy warehouses, train staff, hr, financing, and everything else that comes with a business..(This post was last modified: 06-25-2010 02:22 PM by Caramel Communist.)
+			- 06-25-2010 02:18 PM
+			- kerouac  Alpha MalePosts: 1,397Joined: Aug 2008Reputation: 7Post: #81RE: How are you guys making $$$What kind of business entity are you guys setting up and in which state? I'm thinking about setting up an LLC in a state that doesn't tax very much so that I can do something similar to what you guys are saying while living abroad. If I set it up in California, it will cost quite a bit just to get started, so I was wondering if any of you had any suggestions??
+			- 06-25-2010 07:49 PM
+			- Vacancier Permanent  True PlayerPosts: 2,005Joined: Mar 2010Reputation: 37Post: #82RE: How are you guys making $$$I'm not in the US but I heard that it is in the state of Nevada where it is the cheapest. I haven't personally looked into that as I don't need to register a biz in the US as I'm not an American so don't quote me on that.
+			- 06-25-2010 11:26 PM
+			- Vacancier Permanent  True PlayerPosts: 2,005Joined: Mar 2010Reputation: 37Post: #83RE: How are you guys making $$$(06-24-2010 09:56 PM)youngmobileglobal Wrote:  I've been looking into importing tea from China and replicating a weight loss program for people. I drank a specific type of tea from the south of China and it made me lose like 5 pounds while I was eating like shit and drinking my ass off every weekend.Do you remember the name/brand of this tea? I might need that for myself.
+			- 06-25-2010 11:27 PM
+			- youngmobileglobal  Alpha MalePosts: 1,361Joined: Aug 2009Reputation: 32Post: #84RE: How are you guys making $$$(06-25-2010 11:27 PM)Vacancier Permanent Wrote:  (06-24-2010 09:56 PM)youngmobileglobal Wrote:  I've been looking into importing tea from China and replicating a weight loss program for people. I drank a specific type of tea from the south of China and it made me lose like 5 pounds while I was eating like shit and drinking my ass off every weekend.Do you remember the name/brand of this tea? I might need that for myself. Pu'er Tea, from Yunnan Province. It is delicious but also expensive.
+			- 06-27-2010 04:51 AM
+			- Vacancier Permanent  True PlayerPosts: 2,005Joined: Mar 2010Reputation: 37Post: #85RE: How are you guys making $$$Just an update in here:I'll post more about this later when I'll get some time, but let me reiterate what I wrote in here a while ago: that offline marketing is still kicking ass big time and can be a gold mine if you promote the right offer to the right market. I'm experiencing this first hand right now with my full page ad in just one magazine. To say that I'm overwhelmed with the response so far, is an understatment. :-)
+			- 07-20-2010 12:41 AM
+			- rumguzzler  Beta OrbiterPosts: 134Joined: Jul 2010Reputation: 0Post: #86RE: How are you guys making $$$Epic thread!I have 4 sources of income - state subsidies for educating myself, i work as a cocktail bartender, a waiter, and I've started as a junior intern at an investment bank.Total income = 2-2½K after taxes a month, work about 60 hours a month not including studies, which I am technically being paid for. So, I'm scamming the government while saving up for an apartment, then I'll be spending half of my remaining school years abroad - in and surviving on:Central America (feb-mar 2011) (TBD) - savingsBA, Argentina (jul-dec 2011) - I count on using my camarero skillsFlorianopolis, Brazil (jan-mar 2012) - savingsTBD Alpine Skiing resort (dec-mar 2012/3) - bartendingNot much chance for glamor, but I don't care if I'm going to come home fluent in 3 more languages, with a notch-count of 50+
+			- 07-20-2010 08:36 AM
+			- hydrogonian  Alpha MalePosts: 1,306Joined: Oct 2009Reputation: 25Post: #87RE: How are you guys making $$$I just want to chime in that for most small businesses, starting a corp or LLC isn't necessary or even beneficial. You will get very little in the way of tax breaks or legal protection, unless you hire legal counsel that specializes in keeping up with the relevant strategies and law, and can help you out with specific needs. If your making small potatoes money, then don't worry about it. It will only amount to extra tax returns to file.The law has made it so that it isn't easy to escape liability or taxes without extreme inconvenience and legal expense. You cant legally escape taxes. If you are making a lot of money, you could start a C corp to keep the money in the corp only taxed at the corp tax rate. But you wont be able to use the money for personal expenses. In all other entities the money will have to pass through as personal income, at the normal tax rate, at the end of the year, I believe. C corps are a pain in the ass to maintain.An S corp will save you maybe a max of 15k per year in tax exempt money, if you make up to around 70k. This may give you an extra 5 k a year or so, if your making that much. If your making less, it will save you less.Most people don't maintain entities properly, or treat them properly as far as business is concerned, and the IRS and courts can therefore legally see right through them, to you, like they didn't even exist.So, don't just go and get an entity because you think its some magic tax saving anti-liability shield. They aren't. Do your research as to what they are good for, and if you actually will benefit from one. As a matter of fact, i recommend just going to see a good accountant or business attorney. They will save you a lot of time in this respect. See the accountant if your motivation is tax savings, and an attorney if your motivation is liability. The best are CPA's who are also attorneys. Remember, there is no attorney-client privilege with a CPA. They can be compelled to testify against you. But not if they are also your attorney.
+			- 07-20-2010 09:07 PM
+			- Vacancier Permanent  True PlayerPosts: 2,005Joined: Mar 2010Reputation: 37Post: #88RE: How are you guys making $$$Good info as usual Hydro. Also, one thing I keep on reading and hearing a lot is if you are an American citizen and are an expat or living abroad, the first US$80K you make outside of the US will be tax free. Anything above will be taxed at regular tax rates (whatever that is in the US). Is this really true? Damn! This is one of the only times/reason I wish I had a US citizenship. So anyone in here who has made it happen for themselves online and are living the internet lifestyle, should fully take advantage of this. And if you haven't yet, this should be enough incentive to make it happen!
+			- 07-21-2010 02:00 AM
+			- oldnemesis  True PlayerPosts: 2,732Joined: May 2010Reputation: 25Post: #89RE: How are you guys making $$$(07-21-2010 02:00 AM)Vacancier Permanent Wrote:  Good info as usual Hydro. Also, one thing I keep on reading and hearing a lot is if you are an American citizen and are an expat or living abroad, the first US$80K you make outside of the US will be tax free.First $91,400 - but they will be tax free for IRS. You'd still have to pay taxes in the country where you received taxable income.(Actually US is the only country which collects taxes from citizens living abroad)Quote:Anything above will be taxed at regular tax rates (whatever that is in the US). Is this really true?Yes, some conditions apply.
+			- 07-21-2010 03:15 AM
+			- Vacancier Permanent  True PlayerPosts: 2,005Joined: Mar 2010Reputation: 37Post: #90RE: How are you guys making $$$Thanks Oldnemesis for the technical info.Cheers.
+			- 07-24-2010 12:45 AM
+			- La Familia  Beta OrbiterPosts: 120Joined: Apr 2010Reputation: 1Post: #91RE: How are you guys making $$$So much of what has been said in this thread is inspiring and what it comes down to is if you really want it, you'll have to work for it.Being in college has taught me that people still have the preconceived notion that work isn't needed to get somewhere, and that leads to major disappointments down the road. I hope to come back to this forum a couple months down the road with a nice, passive cash flow so I can enjoy life without financial stress.Boa sorte meus irmãos
+			- 07-26-2010 10:12 PM
+			- no_one  Male FeministPosts: 1Joined: Sep 2010Reputation: 0Post: #92RE: How are you guys making $$$This post is entirely fictional. Even I am not certain that I exist.But if I do it is not entirely in my interest to say this, but RooshV's site and books have taught me a great deal so I will contribute an idea. It is potentially dangerous in many ways but it might prove useful to someone willing to take the proper precautions.Take advantage of skewed reward/risk premia if you have the stomach to build up capital that you can later use to fund other business ventures, get an education, or pay off debt.For instance a number of US states are medicalizing cannabis and their regulatory, law enforcement, established illegal businessesmen/groups are in states of relative turmoil. If you have a green thumb or are willing to learn how to produce quality product, and you can keep cool when necessary, you can build a nice capitalization nest egg.You can then parlay this in many directions depending on your skillsets, social networking skills, legal/tax/business knowledge, etc. Cash based businesses with low inventories have their obvious uses, as does commercial, industrial, and residential real estate.In fact, back when "liars loans" were easy to get I have heard that some people built up secret fortunes by buying a house, using it to grow for a number of cycles, putting some of the money back into the house as upgrades paid to "understanding" general contractors in cash (a kind of money laundering), and then doing the same again while selling or renting out the older properties. That's just one idea.There is an article from the New Yorker from May '08 (I believe) on the development of the CA medical marijuana market that should get you started brainstorming if you're interested. There are also very detailed threads on other sites related to marijuana production regarding the business aspects of running large operations. You can find those yourself if you want to.My only advise is to not get too greedy, always do your research regarding every aspect of your business, never underestimate anyone, and especially never be low-hanging fruit. Trust me, when if comes to cannabis there are plenty of morons who need to show off their money that can keep the police, thieves, and standover men busy. Let them draw the heat.In short, think like meth Urkel on Breaking Bad and hide in plain sight.Also, computer network engineers are generally in demand all over the world and if you have the right credentials and experience you can practically dictate terms and pay. This is especially true if you are socially adroit and shower regularly.
+			- 09-29-2010 11:14 AM
+			- The following 2 users Like no_one's post:Beyond Borders, Zero Day Game
+			- oldnemesis  True PlayerPosts: 2,732Joined: May 2010Reputation: 25Post: #93RE: How are you guys making $$$(09-29-2010 11:14 AM)no_one Wrote:  Also, computer network engineers are generally in demand all over the world and if you have the right credentials and experience you can practically dictate terms and pay. This is especially true if you are socially adroit and shower regularly.This is very true. You don't even have to be socially adroit, and I didn't find it useful at all - you'll end up doing stuff other engineers don't want to do, like making presentations to other departments about security practices or so.
+			- 09-29-2010 08:33 PM
+			- Dman  Game DenialistPosts: 37Joined: Aug 2008Reputation: 0Post: #94RE: How are you guys making $$$(11-25-2009 04:19 AM)Riker Wrote:  A few of us play poker online. I don't recommend it to anyone though, its not one of those things you can just pickup because your just in it for the money. But if you like it and dedicate yourself to it for a couple years you can make a good income anywhere you have a computer and a internet connection.I used to dabble in poker with a large ROI, I came from a strong chess background. And my advice is if you don't have the same dedication and intelligence it would take to get excellent at chess then don't bother with considering to make serious money in poker.Also other factors to consider, is a few years ago poker was very soft but now it is getting progressively harder to make money. And there is questions over the future, long term where will poker go? Sure it is popular now, but what of the future.... will it die away 5, 10, or 15 years from now? Then all your knowledge will go to waste, as you'll be able to make no more than pro chess players do today.
+			- 10-20-2010 11:46 PM
+			- Roosh  Innovative CasanovaPosts: 7,996Joined: Aug 2008Reputation: 82Post: #95RE: How are you guys making $$$Quote:will it die away 5, 10, or 15 years from now?Isn't that true for just about everything?Rooshhttp://www.rooshv.com
+			- 10-21-2010 04:30 PM
+			- rumguzzler  Beta OrbiterPosts: 134Joined: Jul 2010Reputation: 0Post: #96RE: How are you guys making $$$(10-21-2010 04:30 PM)Roosh Wrote:  Quote:will it die away 5, 10, or 15 years from now?Isn't that true for just about everything?Yes - fundamental law of Economics.
+			- 10-22-2010 05:04 AM
+			- iknowexactly  Alpha MalePosts: 1,462Joined: Sep 2010Reputation: 20Post: #97RE: How are you guys making $$$(10-22-2010 05:04 AM)rumguzzler Wrote:  (10-21-2010 04:30 PM)Roosh Wrote:  Quote:will it die away 5, 10, or 15 years from now?Isn't that true for just about everything?Yes - fundamental law of Economics.Not if there are significant and established barriers to entry. My low-level financial security proves that.Medical careers are the obvious example. MD's have been making more on average than any other profession for decades. The American Medical Association carefully controls the number of med school slots available, and prevents too many para-professionals form getting prescription privileges. Then when someone does break through. ( master's level nurse practitioners) doctors get the law set up so the new practitioners need "supervision" by ( read--pay a cut) to an MD.This is why medicine and engineering are the preferred careers for third-world country upwardly mobile for whom there is no second chance.On the other hand, new, unprotected careers-- like programmers-- can be much more risky. As languages go obsolete, it gets harder and harder to learn new ones as you age. If you're good enough to make your pile young, you're OK. Otherwise you end up in a blue-collar kind of situation.(This post was last modified: 10-29-2010 03:18 AM by iknowexactly.)
+			- 10-29-2010 03:16 AM
+			- manilaguy  Chubby ChaserPosts: 269Joined: Nov 2010Reputation: 1Post: #98RE: How are you guys making $$$got tax?Death and taxes are my specialty, so you could say I am a sure thing.
+			- 11-06-2010 07:38 PM
+			- Wrendan  Male FeministPosts: 10Joined: Nov 2011Reputation: 0Post: #99RE: How are you guys making $$$(09-29-2010 11:14 AM)no_one Wrote:  This post is entirely fictional. Even I am not certain that I exist.But if I do it is not entirely in my interest to say this, but RooshV's site and books have taught me a great deal so I will contribute an idea. It is potentially dangerous in many ways but it might prove useful to someone willing to take the proper precautions.Take advantage of skewed reward/risk premia if you have the stomach to build up capital that you can later use to fund other business ventures, get an education, or pay off debt.For instance a number of US states are medicalizing cannabis and their regulatory, law enforcement, established illegal businessesmen/groups are in states of relative turmoil. If you have a green thumb or are willing to learn how to produce quality product, and you can keep cool when necessary, you can build a nice capitalization nest egg.You can then parlay this in many directions depending on your skillsets, social networking skills, legal/tax/business knowledge, etc. Cash based businesses with low inventories have their obvious uses, as does commercial, industrial, and residential real estate.In fact, back when "liars loans" were easy to get I have heard that some people built up secret fortunes by buying a house, using it to grow for a number of cycles, putting some of the money back into the house as upgrades paid to "understanding" general contractors in cash (a kind of money laundering), and then doing the same again while selling or renting out the older properties. That's just one idea.There is an article from the New Yorker from May '08 (I believe) on the development of the CA medical marijuana market that should get you started brainstorming if you're interested. There are also very detailed threads on other sites related to marijuana production regarding the business aspects of running large operations. You can find those yourself if you want to.My only advise is to not get too greedy, always do your research regarding every aspect of your business, never underestimate anyone, and especially never be low-hanging fruit. Trust me, when if comes to cannabis there are plenty of morons who need to show off their money that can keep the police, thieves, and standover men busy. Let them draw the heat.In short, think like meth Urkel on Breaking Bad and hide in plain sight.Also, computer network engineers are generally in demand all over the world and if you have the right credentials and experience you can practically dictate terms and pay. This is especially true if you are socially adroit and shower regularly.True story... I know of a failed nursery business who decided to help others grow their medical marijuana in their green houses. They set up huge fences around the green houses, cameras and not let people rent tables in their greenhouse. They charge $300 for a table/month. They filled up in the first month... They have 30 tables... they are building new greenhouses as we speak...
+			- 12-16-2011 04:01 PM
+			- The following 1 user Likes Wrendan's post:Beyond Borders
+			- drymarro  BannedPosts: 331Joined: Jan 2011Post: #100RE: How are you guys making $$$I recently opened my business but I pretty much do offline consulting for businesses. What I do is perform SEO and other social media services such as controlling social marketing campaigns. I also get businesses to sign up for hosting through my affiliate link at hostgator and I offer to make them a simple website for free(it takes about an hour and I'll get paid like about $100/commission from hostgator.You can also charge if they require something more advanced... and outsource it. I know a great forum that pretty much deals with just making money online...but I'll be glad to help anyone. PM me here with your Skype and I'll talk to you about strengths and any potential business ideas you can be good at.Least I could do for this great community..note I'm not an expert but I have failed and succeeded in the past couple of months so know a bit about what I am doing.
+			- 12-16-2011 04:57 PM
+		- Vector - RVF commerce
+			-
+				- Valentine joined the room.
+			- [20:58](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147371033872763ocqcY:matrix.org)Valentine made future room history visible to all room members.
+			- [21:00](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147371041073094aUzdt:matrix.org)Valentine changed the topic to "RVF eCommerce"
+			- [21:00](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147371041073095NXkfT:matrix.org)Valentine made future room history visible to all room members, from the point they joined.
+			- [21:00](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147371043473182AJaTf:matrix.org)Valentine changed the room name to "RVF eCommerce"
+			- [21:00](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147371043473184DVfXG:matrix.org)Valentine changed the topic to ""
+			- [23:26](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473719186101859aVqjU:matrix.org)Valentine sent an invitation to rya...@gma... to join the room.
+				- Tuesday
+			- [00:29](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473722958110421nFKwL:matrix.org)@Weekend:matrix.org accepted the invitation for rya...@gma....
+			- [00:29](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473722971110448HRcSR:matrix.org)@Weekend:matrix.org joined the room.
+			- [00:31](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473723069110638yyBTz:matrix.org)@Weekend:matrix.org set a profile picture
+			- [00:31](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473723108110721iXLaO:matrix.org)@Weekend:matrix.org set their display name to Weekend
+			- Valentine
+				- [00:49](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473724150112740zJYhi:matrix.org)I haven't tested this app much myself, it's a pretty new competitor to Slack so let me know if you have any problems with it
+				- [00:49](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473724171112781jDhWD:matrix.org)So you're in Canada at there moment?
+				- [00:51](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473724276113032lqMHL:matrix.org)And yeah, in Toronto at the moment
+				- [00:56](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473724567113680jSsdU:matrix.org)Connectivity cut out and messed up message order
+			- Valentine
+				- [00:59](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473724797114153JAedp:matrix.org)Not been Canada myself. Closest I've been is Arizona lol
+				- [01:01](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473724883114363lRmIg:matrix.org)Made you a moderator so you should be able to invite others and manage this chatroom
+				- [01:02](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473724965114543WNHFW:matrix.org)Are you fully location independent ? Or working towards itV
+				- [01:04](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725083114816SueLC:matrix.org)Right now I work part-time as a security guard, which is basically patrol for 20 mins a night and do my own thing for the rest
+				- [01:05](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725136114912DfYhN:matrix.org)And I've partnered with two pharmacist friends to develop their online pharmacy biz
+				- [01:06](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725183115020xQpys:matrix.org)I'm basically the marketing and web design guy
+				- [01:06](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725217115117dAVZC:matrix.org)I had a quick glance over your datasheets, your eCom biz a t-shirt biz?
+				- [01:10](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725454115653nHcQJ:matrix.org)And drop shipping. Starting a watch brand too soon. So that should be an interesting venture.
+				- [01:13](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725632116048oVQPT:matrix.org)I'll probably start a thread about this on the forum. Preferably only more establish members. But I guess anyone is fine.
+				- [01:14](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725689116180idVgO:matrix.org)By next summer it should be making enough for me to quit
+				- [01:15](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725730116248cfgkh:matrix.org)Cool. I don't know much about dropshipping, my first impression was that the supplier is gonna steal your customers
+				- [01:16](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725767116340LBsKn:matrix.org)Yeah no zero rep, low post guys
+				- [01:16](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725810116437apqee:matrix.org)I run the London tribe as well and we're copying the private forum requirements of 5 reps
+				- [01:17](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725864116571NeySG:matrix.org)You still work in IB or solely on your biz?
+				- [01:18](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725932116713YXEZE:matrix.org)And I still work in IB. Planning to quit in November. Set myself a goal of Jan 1st to become fully location independent.
+				- [01:19](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473725952116749MkEUi:matrix.org)I'm making around 6-7 right now per month from my business, so I could quit but I want to wait a bit
+			- Valentine
+				- [01:22](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473726123117135YmQkE:matrix.org)Gonna slow travel or fast?
+				- [01:23](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473726191117298OrcNo:matrix.org)That's the sort of online income I'd love to generate. Got to slug it through the beginning steps of just optimising the site for the next few months though before delving deep into paid ads
+				- [01:23](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473726236117405WFTPO:matrix.org)How old are you? And how old is the biz?
+				- [01:30](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473726625118189sILgG:matrix.org)And I'm 24. Fairly new business. Lost money in the beginning testing new products etc.
+				- [01:30](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473726648118232KYPdU:matrix.org)I'm still thinking a few stores but I want to try this watch company. Seems like a nice business.
+				- [01:31](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473726662118256grGzs:matrix.org)It's all about testing at the start.
+			- Valentine
+				- [01:36](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473726981118803bRzUP:matrix.org)Met Benoit the other day, he's moving to Poland as well by the end of the year
+				- [01:37](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727069118959MFKwu:matrix.org)If it's a product you're knowledgeable about and passionate, go for it
+				- [01:38](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727095118994mjbCz:matrix.org)Better that than spreading yourself too thin too quickly
+				- [01:39](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727178119115RNelN:matrix.org)What kind of marketing campaign types did you do?
+				- [01:40](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727212119176cDwUw:matrix.org)SEA is a great place to set up shop too btw. Spent a year in Bali last year and it was incredible
+				- [01:41](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727274119283MtmKm:matrix.org)Thailand is great too
+				- [01:42](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727354119399JsEhu:matrix.org)And yeah I was thinking about Thailand. I have a few friends there running businesses as well. Such low overheard
+				- [01:42](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727368119427EhPzl:matrix.org)But I have a few girls in Kiev and Poland so I can't wait to go back!
+				- [01:43](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727389119459PVkqy:matrix.org)Any travel plans for you ?
+				- [01:48](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727718120003bgysv:matrix.org)Took a trip to Prague recently, going to Thailand at the start of next year
+				- [01:49](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727770120084EIPzE:matrix.org)After spending over a year in Bali I've decided to knuckle down on business for a while til I get it to a level I'm happy with
+				- [01:50](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727821120196IPMnU:matrix.org)From then I plan to do a few months at a time to central and eastern Europe
+				- [01:51](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727868120282CTbOR:matrix.org)I wanted to start a house in Eastern Europe
+				- [01:51](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473727906120343IuzeE:matrix.org)Have a few guys who are hustling with ecommerce living in the same house/ condo. Hustle during the day and meet women at night
+				- [01:55](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728100120648DEKUM:matrix.org)5 of us at one point, some working on the same business
+			- Weekend
+				- [01:56](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728166120742oTgPA:matrix.org)Way more fun living with a bunch of guys in a foreign country than by yourself
+				- [01:56](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728182120765vwVMk:matrix.org)Especially when they're intelligent red pill guys
+				- [01:57](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728234120847HuwsO:matrix.org)It didn't work out for us in the end because we were all basically interns working on several projects for one of the guys there
+				- [01:57](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728256120876RRBww:matrix.org)He was a bit of a dick
+				- [01:58](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728288120920WuaKW:matrix.org)But if we were instead a few guys working on our own projects living in the same place then I think it'd work out pretty well
+				- [02:02](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728548121303DYtVK:matrix.org)Almost everyone I think would be mature enough to keep a good work/life balance
+				- [02:02](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728568121343HAtfS:matrix.org)Though meeting up for a drink is totally different to living with them
+				- [02:03](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728602121396hHDyo:matrix.org)I think it's a solid idea though trying to start up a house like that in EE
+				- [02:03](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728639121452tNZtE:matrix.org)I'd think people would grow personally and professionally
+			- Valentine
+				- [02:08](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728900121919SBFSB:matrix.org)It was only 2 months I had when all 5 of us were there but they were easily the best months of the entire year
+				- [02:09](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728945122011dgFTZ:matrix.org)Really made me realise just how varied our interests are though we share the same core beliefs
+				- [02:09](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473728990122105qIFEW:matrix.org)Learned tons about all sorts of niche topics from those guys
+				- [02:10](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473729024122178uWHOd:matrix.org)Plus of course I wouldn't otherwise have had a good wing
+				- [02:10](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473729046122235FTeMu:matrix.org)That certainly helped many a time
+				- [02:11](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473729094122340iTtBv:matrix.org)A support group, as much as people don't want to admit it, is huge. Guys who give eachother advice, tips, hold eachother accountable. Kick each other in the ass etc.. It's big
+			- Valentine
+				- [02:15](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473729315122778nQvPo:matrix.org)My main social circle have decent game but are not red pill or entrepreneurially inclined
+				- [02:16](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473729360122869nlLpl:matrix.org)Made a big difference in my creativity and focus living with a group of guys with the same goals as me
+				- [02:19](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473729541123262UcQBa:matrix.org)It's all good. The forum provides a good bridge to meet like minded fellas
+			- Valentine
+				- [02:22](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473729769123699KaYsg:matrix.org)I think it would be worth a separate thread in the Lifestyle section for this
+				- [02:23](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473729808123774DnkSe:matrix.org)Just copying some of the benefits we've said above and see who bites
+				- [02:27](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$1473730024124192kMyHx:matrix.org)Get a few other guys in here from that. I'm sure a bunch will join.
+				- [13:51](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$14737711162519FypQb:matrix.org)I'll make that thread today, unless you want to!
+			- [14:57](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147377503314541mQxSX:matrix.org)Weekend sent an invitation to mar...@gma... to join the room.
+				- [17:12](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378314042539WGAxM:matrix.org)This guy PM'd you I take it?
+			- Valentine
+				- [17:15](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378332843107ENZqi:matrix.org)Btw settings right now means new members see posts only from the time of joining, not invitation
+			- Weekend
+				- [17:44](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378506748479wsSqf:matrix.org)Wish you could post pictures here.
+				- [17:44](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378507448507IRLPV:matrix.org)Part of the reason I like Slack
+				- [17:45](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378512348658NBezQ:matrix.org)Thoughts on this watch? Ignoring my horrible photoshop of the brand
+			- Valentine
+				- [17:50](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378545149729bqQSH:matrix.org)I love minimalist watches especially those with a black face
+			- Valentine
+				- [17:56](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378579150892GTuFH:matrix.org)They look really good
+				- [17:58](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378590651302eLaIk:matrix.org)You can always split test a few different prices, see what gets the highest ROI
+				- [17:59](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378595851507YGCwE:matrix.org)You dev the site yourself or got a guy?
+				- [18:10](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378662153709dPEXJ:matrix.org)And I do the sites myself. I use the Shopify platform. It's incredible.
+			- [18:12](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378674654112CMwjr:matrix.org)Weekend sent an invitation to i...@tje... to join the room.
+			- [18:17](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378704055088HJWZc:matrix.org)@40077:matrix.org accepted the invitation for i...@tje....
+				- L
+			- [18:17](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378704055091AYHDa:matrix.org)Leo joined the room.
+			- Valentine
+				- L
+			- Leo
+				- [18:20](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378722355781aaquT:matrix.org)Glad to have you with us
+				- L
+			- Leo
+				- [18:21](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378726055907XQGfj:matrix.org)But WooCommerce probably is aswell, just that a new world opened up to me when i strted my shopify
+				- [18:23](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378741456448Gkxms:matrix.org)Yeah they look pretty good
+				- L
+			- Leo
+				- [18:27](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378762857253Kzopn:matrix.org)What's your RVF username btw?
+				- [18:29](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378775857776ZhUxd:matrix.org)Well, I am a professional poker player and have been since 2009, this kind of business, like blogs and such i have been trying for 1 year but never really found something that worked for me and got me going hard. Now, my t-shirt shop has
+			- [18:32](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378794358532CPuVh:matrix.org)@LeoH:matrix.org accepted the invitation for i...@tje....
+			- [18:33](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378802658825Egtqc:matrix.org)LeoH joined the room.
+			- [18:35](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378811359142ocvQf:matrix.org)Weekend kicked @40077:matrix.org.
+			- LeoH
+				- [18:35](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378815159285FIEAB:matrix.org)5/10 no limit only. Made decent money, but I always ended up playing on tilt
+				- [18:36](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378819259433ufeWy:matrix.org)Heads up is the best I think. I like it
+				- [18:37](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378827159745yZitd:matrix.org)I'm what poker players call a "bumhunter", i sit at empty tables waiting for bad players to sit and play, and the time im waiting im using for different stuff, like now this shopify store!
+				- [18:40](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378843060303hbFWv:matrix.org)I forget who you said you're using as your fulfillment provider
+			- LeoH
+				- [18:41](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378847460475DBIrC:matrix.org)Im waiting for them to change shipping rates, £15 for 3 tshirts
+				- [18:41](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378849960547sHNjD:matrix.org)sitting and pressing f5 on my email... hehe
+			- Weekend
+			- Weekend
+				- [18:42](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378854360688OmSiL:matrix.org)And a good Shopify add on
+				- [18:42](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378856960779gKSBn:matrix.org)Cause thats the problem with most, if they are in USA the shipping times are usually not very good
+				- [18:46](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378876661455vOWOp:matrix.org)Hows it going for you?
+				- [18:47](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378882061652OWwvJ:matrix.org)I mentioned to Valentine but I want to launch a watch brand
+				- [18:47](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378887661849TYThY:matrix.org)I had a few good ideas but never followed through. I should though
+			- Valentine
+			- LeoH
+			- Weekend
+				- [18:50](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378900362289BrwQs:matrix.org)My first "niche" is horses and then one more
+				- [18:51](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378908662581WdQey:matrix.org)And is this one Weekend: #2
+				- [18:52](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378913362793ylXhZ:matrix.org)Haven't read the t-shirt thread but this sounds interesting. What's the margins like?
+			- LeoH
+			- Valentine
+			- Weekend
+			- Valentine
+				- [18:55](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378931663510NXBNr:matrix.org)So Click on their name and then click mention or just type eg 'Weekend:' anywhere in your message and it'll work
+				- [18:58](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378953864393XgCNQ:matrix.org)LeoH: I have a few working well right now, but I want to try more and then ultimately launch my watch brand
+				- [19:03](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147378982565542mAfCl:matrix.org)Probably a day or two if you only put a few hours in
+				- [19:07](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147379003066374Ygugf:matrix.org)Is this app available on android ?
+			- Weekend
+			- [19:08](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147379012766777VJhOJ:matrix.org)Weekend sent an invitation to Sha...@gma... to join the room.
+				- [19:10](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147379023767210hgFyu:matrix.org)And damn. Marketing is my weakest point to be honest
+				- [19:11](#/room/%21SSQDouIHqoBFhjsnbc:matrix.org/$147379029267421JYnZV:matrix.org)well i do but only the facebook chat and events, i have some plugin that removes the wal
+	- Fastlane businesses
+		- [METHOD Step-by-Step with CODE] My Twisted Method to $1k+ a week - NOOB friendly
+			- Folks,
+			- This method takes a little thought, but I'm providing you with ALL the
+			- necessary code, and it took me, quite quickly, to over $1k per week.
+			- It's a current earner, so please try and twist it up a bit - no point screwing
+			- it for everyone, lol.
+			- So, onto the method:
+			- Requirements:
+			- 1. A place to upload html files and images (or to insert html code and
+			- images).
+			- 2. An image editing program that will create slices for you (ideal, really, but
+			- NOT an absolute necessity)
+			- 3. Locker embeddable code (I use Content Lock Pro as it can be used with
+			- all networks, supports postbacks, and, imho, is the BEST), if you can't
+			- afford your own self-hosted solution, you WILL leave money on the table,
+			- but you can use free lockers from any gateway Network.
+			- 4. A burning desire to make money, a willingness to work, and a brain
+			- The Overview:
+			- We will be creating our very own "sh***cash" site. People hate
+			- "sh***cash" with a vengeance, for two reasons:
+			- a) It's well-known that they demand completion of offers, often mobile or
+			- costly offers, to obtain files, so, post a "sh***cash" link and people run
+			- the other way.
+			- b) They run "their" offers and no, they do NOT, generously, share a
+			- significant portion of the revenue with YOU.
+			- However, with my twist, YOU will get 100% of the revenue you generate.
+			- You get to choose the offers you display, so you can keep them cost-free
+			- for your visitors, if you like. Remember, ALL the revenue is for YOU.
+			- The Steps:
+			- 1. Find a shared, and wanted, file download which is available on MediaFire,
+			- RapidShare or a similar free downloads site. Paste the link into your
+			- favorite browser.
+			- 2. Use F11 or whichever key is necessary, on your OS, to make your
+			- browser full screen. Use PrintScreen to take a screenshot of the page.
+			- 3. Open your favorite image editing program (I used a very old version of
+			- Photoshop, and ImageReady), and split the images into slices. Use vertical
+			- and horizontal guides to create a rectangle around the download button
+			- area, as that will be one of your slices.
+			- 4. Generate the html and the images, optimised for the web. Make a note
+			- of which slice is the download button.
+			- 5. If you can't slice, ask someone or look up the tuts available on the web,
+			- or just use the full image, it will take longer to load and not look as good,
+			- but it will do!
+			- 6. Open the generated html file and wrap my code -found below- around
+			- the relevant image (the slice that contained the download button).
+			- 7. Either upload the html file and the images folder to your webspace, or
+			- paste the html code into whichever webspace you have (blogger,
+			- wordpress hosted, weebly, etc), upload the images, and make sure all links
+			- in the html point to the new location for the images.
+			- Now, post your link all over the place, use high-trafficked forums full of
+			- people searching for whichever download you chose to share.
+			- Using no "real" traffic-driving methods, I have been making an average of
+			- $200 a day with this method for the past 3 months. I'm lazy when it comes
+			- to traffic-driving, so all I've done is use some Fiverr gigs and microworkers
+			- to post on large forums (mainly found on BigBoards) for me. I also created
+			- two videos - yes, just TWO, told you, I'm lazy!, uploaded them to YT, and
+			- got a bucketload of traffic from there as well.
+			- When I started this method back in February, I used $15 to purchase 3
+			- Fiverr gigs, and made $26, on average, each day. So, week 1, spend was
+			- $15, income was $180!!! Nowadayas, to achieve the $1k+ per week, I'm
+			- spending around $60 a week between Fiverr and microworkers
+			- I'm pretty confident that, if you're not as lazy as I am where traffic-driving
+			- is concerned (I have an excuse, I work almost 24/7 on other stuff, lol), you
+			- could easily generate over $20 a day, in your first few days, without
+			- spending a single dime.
+			- The Secret Code:
+			- This is the code you will need to use to successfully replicate this method.
+			- I wrote this myself, because I needed my own brand of "Special Sauce".
+			- This code gets wrapped around links, images, any content you like, and
+			- then "swaps" on a timer, between the content, by changing attributes of
+			- one lot of content to display, whilst the other lot is made invisible
+			- I might not be great at explaining that concept, but don't worry, I'm going
+			- to release a Demo for you all to see exactly what's going on!
+			- So, you are going to have, for this method, two "forms" of linking the
+			- relevant image (remember? that slice that contained the Download Button
+			- )
+			- In a div set initially to display, you will link to your locker code, so, in this
+			- case, that div will link the Download Button image to your locker, and,
+			- when it's clicked on, your locker will appear.
+			- In a div set initially to be invisible, you will link to the real Download page
+			- on whichever downloads site you're using. So, in this case, this div will link
+			- THE SAME Download Button image to the Url of the downloads page.
+			- When you have linked your image both ways, and placed each one into a
+			- div, only the first will show. When visitors click on the button, the locker
+			- will display but, at the same time, a countdown Timer will start (set for 30
+			- secs in my case). When the countdown ends, the divs will be swapped, so
+			- the button image linked to the locker is no longer there, but it is replaced
+			- with the button image linked to the real download location.
+			- Of course, the "swap" happens WHILST the page is LOCKED, so your
+			- visitors don't know what's happened, until they unlock. When they do, and
+			- they hit the button again, it will take them to MF, RS, wherever.
+			- Without further ado, here's the code you need - it's commented, and is set
+			- to call an example locker - replace for your own. In this code sample, I
+			- have linked the word "TEST", however, after the code I will link to a demo I
+			- created which replicates the complete method, start to finish.
+			- Code:
+			- <html> <head> <meta http-equiv="Content-Language" content="en"> <meta http-equiv="Content-Type" content="text/html;charset=utf-8" /> <title>Your Page Title</title> <!-- Call jQuery because our locker needs it --> <script type="text/javascript" src="https://ajax.googleapis.com/ajax/libs/jquery/1.5.2/jquery.min.js"> </script> </head> <body> <!-- Declare yourFunction --> <script type="text/javascript" language="javascript"> function yourFunction(){ document.getElementById('yourfirDiv').style.display='block'; document.getElementById('yoursecDiv').style.display='none'; } </script> <p>&nbsp;</p> <p>&nbsp;</p> <p>&nbsp;</p> <p align="center"> <h3 align="center"><font color="#0198F1">Welcome</font></h3> <p> <!-- Place the OnClick Link within yoursecDiv. Declare your OnClick Link and set timeout to 3 secs, expressed as 3000 millisecs, to execute yourFunction and swap divs, hiding yoursecDiv and displaying yourfirDiv. Replace yourlockerurl and guid inside single quotes where shown below. --> <div id="yoursecDiv" style="display:block;"><a href="javascript :void(0)" onclick="var fileref=document.createElement('script');fileref.setAttribute('type','text/javascript'); fileref.setAttribute('src', 'http://yourlockerurl.js?guid=123456789');document.body.appendChild(fileref); setTimeout(yourFunction, 3000);">TEST</a></div> <!-- Place the Real Link within yourfirDiv which is set to not display until yourFunction has been executed. --> <div id="yourfirDiv" style="display:none;"><a href="http://www.google.com">TEST</a></div> </body> </html>
+			- The DEMO:
+			- I have created a demo for you all which pretty much replicates EXACTLY
+			- what I am using. For the demo, I have used the MediaFire link which was
+			- posted on this forum, today, for a CPA method (CPASto*m).
+			- As mentioned above, I used a Content Lock Pro locker, just like I do on my
+			- real pages. The links are just links to the CLP homepage, so you can click
+			- on them without fear of having to complete an offer.
+			- I have set this locker to be removed on a one-minute Timer, so this is what
+			- you should do:
+			- Visit the demo page, and wait as long as you wish - nothing will happen.
+			- Once you are bored of waiting, click on the link to download your file. A
+			- locker will pop up, displaying some offers.
+			- Wait as long as you like, nothing further will happen.
+			- When you're bored again, lol, click on one of the offer links. It will open the
+			- CLP homepage in another tab or window.
+			- Return to the "locked" mediafire page and wait for ONE MINUTE.
+			- The locker will be removed. Now, click on that download link again - you will
+			- be taken to the MF page and, if you like, you can download the file
+			- Thanks are welcomed, and appreciated.
+			- Folks, I have been using hundreds of these little twists, some make
+			- autopilot income at a low level, and others are my main breadwinners - it's
+			- up to you to "inspire me" to share.
+			- My current motivation is offering "payback" to BHW, I wouldn't be where I
+			- am today without the information, code snippets, and downright
+			- awesomeness of some of the members, all of which came from this forum
+			- since I joined back in 2008.
+			- The demo can be seen at [http://contentlockpro.com/demomfire](http://contentlockpro.com/demomfire)
+			- PS One other thing. I'm non-violent by nature...BUT...I see one of you idiots
+			- rehashing this into an ebook and selling it on, and I WILL hunt you down and
+			- make you sorry you ever read my threads, LOL
+			- Let's stick to sharing, and helping, for FREE - ok?
+		- A digital facial expression/body language teacher &amp; analyzer.
+			- Some of you have probably heard of Paul Ekman's "Facial Action Coding System" (FACS). (I don't know if anybody's done anything similar for body language.) Although some of Ekman's work is controversial (e.g. does his lie detection training really work? Are there cultural variations in which facial movements convey which emotions?), the FACS itself is a pretty cut-and-dried, empirical way to encode all the things our facial muscles can do.
+			- My product idea is a software tool for training people in both recognizing and projecting facial expressions. Teaching people to recognize them is straightforward; Ekman himself sells a $350 "FACS" manual with the complete coding system. (I've been meaning to buy it.) What would take more effort is for the computer to analyze the user's face and encode it automatically. It would take even more effort to do this well with body language.
+			- If this were done well, it might help teach actors to act, salesmen to look trustworthy, executives to project the right stuff, and players to smile the right way and make sexy eyes. I'm particularly interested in the last application, but I expect businesspeople would be the biggest market.
+		- Amazon - dropshipping from retail companies or ebay
+			-
+				- How to make over $10,000 monthly selling on amazon/dropshipping
+				- Greeting fellow wearers of hats in the color of black. Here are a few tips to help you make massive heaps on amazon, tested and proven by myself, 100% obtainable. This takes no investment to start.
+				- These are just some basic points, if you would like more detail leave a question in the room so everyone can see. I also know tons about ebay too if you need help with that....
+				- My personal Amazon Tips for You
+				- I specialize in media, but you can apply this to any product.
+				- 1. Find an category you want to sell in and start making a note of how much items are selling for, example, if Dark Knight Dvds are selling of an average price of $15. Go to sites such as bestbuy, borders etc and see how much they would be there.
+				- 2. You can list an unlimited amount with no upfront fees on amazon, goodbye FeeBay. I would suggest getting a pro account for $40 a month so you can lower your selling fees.
+				- 3. You don't have to be the lowest price, I've sold thousand of products on their, I've had over 200,000 products listed before, maybe 100 of them were the lowest price. I've sold tons of products that were on the 3rd and forth page.
+				- 4. At first I didn't want to sell on amazon because I went and looked at the lowest price like dang...there's no way I can even come close to that price, I just listed some items to see, a few day later they sold. Don't be intimidated by the low price bandits.
+				- 5. Amazon's super fast loading system. All you need on amazon is the products upc code. It already has the pic description etc. You can mass upload upc codes at one time. I've done 50k uploads at once before...how long do you think it would take to get that many products onto Feebay???
+				- 6. Dropship from any retailer. So once you get the price from the retailer, again just make sure you'lll be profitable after fees. You can use an amazon calculator to find out your costs, google it.
+				- 7. Request payment daily. If you dont' have money to cover the cost of your orders no problem. You can request a cash request straight to your bank account daily from amazon. Usually takes 3-4 days. After you get this money, go online and order your customers product from the lowest priced retailer.
+				- 8. Remember to request when you order from your online retail store, that the price not be seen when you ship it.
+				- 9. Sell items over retail and still make money. You know I seen a seller on amazon that was selling all of his books/cds over retail. I was like this guy can't be making money. Then I looked at his volume of products vs how many sales he was making. Sure enough he was. He was almost always the last guy on the last page. But people were buying!! I think he was selling maybe .5% of his inventory monthly. So lets say he has 100,000 products listed, thats 500 sales monthly. Selling at or over retail and buying cheaper online dropshipping he would have an average profit of $5-10. So he was making anywhere from 2500-5k monthly selling at retail.
+				- I just listed a few tips here, anymore question post them on here and I'll answer them for everyone to see. Yes this works and yes it takes $0 to start up. It's unlimited on how much you can make. There are some sellers on amazon making millions a month. It can and is being done all of the time.
+			- Talking [Method] Amazon to eBay Drop-shipping Done Right! Spoon Fed! *Long/Detailed*
+			- Hello everyone! I lurk most of the time but have been here for a few years. I am a 23 year old college student and have spent the last two years fine tuning a method I learned here on BHW. When I first joined, all of the internet terminology made no sense at all. Reading almost every method confused me. Although, there was one method seemed to make sense to me, which had to do with eBay and Amazon. Having prior eBay selling experience, I decided to give it a try. This method, which many have named the eBay to Amazon Drop-ship method, alone helped me pay for my first two years of college without a doubt. Now, this method has been covered to some extent, but not for a while. I always see misconceptions and false information thrown around from people who have either never used this method or didn't spend enough time with it.
+			- The point of this thread is to give back to the community, clear up a bunch of rumors and help some of you get started if nothing else has worked for you thus far. If you have a question please ask in the thread, PLEASE DO NOT PM ME.
+			- Before I get started, I just wanted to say, I will show a little bit of proof in this post. Although, I will not go out of my way to prove anything to those who don't believe any of this information is true. If you don't want to believe me or take the time to try this method, then just move on. Thanks! Smile
+			- *Disclaimer* - I am from the United States and all of this information is based on this location alone. I have no knowledge of this working elsewhere, although I'm sure someone can confirm if it is possible or not.
+			- Needed for this method - (eBay account, Amazon account, Paypal account, Debit/Credit card)
+			- Part 1 (The Idea): If you don't understand the concept of how this idea works, please search around the forum first. In essence, you are finding items on Amazon that you can sell on eBay with a mark up price, so that after eBay and Paypal fees, you have a net profit left over. If this doesn't make sense, please do some more reading here on BHW.
+			- Part 2 (eBay Acct.): I used my personal eBay account that was created around 3 years before this started, although I don't see the need to obtain an aged account. Just work up slowly to build your selling limits. I started with the lowest selling limits and was upgraded by eBay automatically after a very short amount of time.
+			- Part 3 (Amazon Acct.): You can go two directions with this step. Many sellers elect to only list items that are above the $35 free shipping limit. With this step all you need is your average Amazon account. Although, you may choose to use an Amazon Prime account. If you choose to use an Amazon Prime account, you will ALWAYS end up losing your Prime benefits at some point for reselling activity. I advise that you use a different account if you have a personal one. BUT WAIT, PRIME ACCOUNTS COST MONEY RIGHT?! That doesn't matter. This is quite simple to deal with even though many of the people I see on BHW don't seem to see how easy this is. Not only that, but having a Prime account will help your sales DRAMATICALLY. (See step 6.5 to see why)
+			- Make a new account and sign up for Prime with a 30 day free trial. Directly after this select that you do not want to pay for the 1 year of Amazon Prime after the 30 days are over. After each 30 days expire, repeat this step. I have never lost an Amazon Prime account within those 30 days, the only time I have lost Prime benefits is when I first started and used my own personal Prime account.
+			- SEE, EASY!
+			- Part 4 (Paypal Acct.): Get yourself a verified Paypal account and attach it to your eBay account if it isn't already.
+			- Part 5 (Finding Items): The goal here is to find items on Amazon that you can sell on eBay for a higher price. Consumers are lazy and usually purchase from places they are comfortable with or have used before, this reason alone is why this method is even possible. Many times I see people state that if you see an item selling at a lower price than you would like to sell at on eBay, to move on and find another item. THIS IS A HUGE MISTAKE!
+			- Just because an item sells a few times at a lower price than you would like doesn't mean you should avoid it. Many times, those sellers have been lazy or used automation to set up their listings (I will touch on this in a later step). Therefore, if you provide a more detailed listing and proper title, likely your item will show up for more search results and your item will sell at a higher price. As I just stated, consumers are lazy, if they see an item they think is a good price, they will likely purchase it instead of trying to find a better price. NEARLY 50% OF THE ITEMS I SELL ARE NOT THE LOWEST PRICE ON EBAY.
+			- I set a strict but vague limit for myself when listing items. I must make more than $7 after Paypal and eBay fees. If I find that the item is a hot seller and sells more often, I am fine with making less per item, but never under $5 profit per item. For reference, eBay fees are 10% of the selling value and Paypal fees are around 4%.
+			- Set a specific profit margin and stick to it.
+			- Part 6 (Listing Items): The key to this step is a proper title and a detailed listing. People want to be informed when they look at your listing and most will not message you for further information, they will just move on. This is where I disagree with many other people who use this method. The common belief is the more items you can list, the more money you make. First, selling thousands of items at a time will take a TON of your time when having to deal with customer inquiries and keep orders fulfilled each day. Falling behind on this will hurt your feedback score and reputation.
+			- If you do it the way I do, it is much less stress and easier to contain and maintain. I currently only have around ~150 items listed right now. Partly because I have listed 1000s of items over the past two years and these 150 items are all regular sellers.
+			- Not only do I disagree on listing tons of items, but I disagree in the way many people list their items. There are a ton of automation methods available in the IM community and I strongly advise you don't use them. Any seller I see using these programs have unoptimized titles and listings for their items. I STRONGLY ADVISE YOU DO EACH LISTING BY HAND. Yes, this will take a while but the end result is worth your time and money. You could even outsource this process if you want, as long as it is done correctly.
+			- One last tip is to generally look for items that are not widely known or sold on the internet. Many times, there are suppliers who have connections with popular items and sell at prices you will never reach. Aim for items that you would only find on Amazon and not many other places.
+			- Part 6.5 (Titles/Description/Images): I am going to give you some examples of great titles and how to properly provide a description. Many sellers that list by hand and using automation strictly use the same title Amazon provides for the item as the title on eBay. Once again, THIS IS NOT ENOUGH. For example, if you were to list a Shower Curtain, many times Amazon just states "(Shower curtain+design+size)" in the title. If you want to list one on eBay, you would add those but also includes words like (New, Modern, Bathroom, Bathtub, Classy, Simple, Waterproof, Bath, Decor, etc.). Use as many words as you can until the title is full!
+			- When filling out the description, include as much information as you possibly can. Include size, model #, material, power usage, battery type, etc. the more the better.
+			- Use every image available on Amazon for your item. People love pictures.
+			- THIS IS NOW WHERE HAVING A PRIME ACCOUNT KICKS IN! Prime members get FREE 2-Day Shipping in all of the US.
+			- In your pictures and/or titles, advertise FREE 2-Day Shipping! Buyers will spend more on your items for this alone! Not only are people lazy, but they are impatient!
+			- Part 7 (Ordering): When you make a sale, you now need to buy the item from Amazon. Order your item using your Credit/Debit card and the billing address the card requires. For the shipping address, copy and paste the address of your buyer from eBay. That's it! Very simple.
+			- Part 8 (Misconceptions): By now you might have some questions or concerns. I will try to address them here with ones I commonly see. Later on, I will add more once others respond to the thread.
+			- 1. Will buyers get mad when they see an Amazon box or see the invoice?
+			- I have never in two years and 1800+ feedbacks had a customer be mad about the box. Once or twice I have been asked if the item came from Amazon. Considering I have some common sense and a creative mind, I explained that I use the Amazon shipping service called "Fulfillment by Amazon". This is a real service, but it does not really work the way I am explaining, but hardly no one knows this so it works with customers. Keep in mind I have been asked this twice in two years.
+			- Also, some of you seem to be living in the past. If you have ordered anything from Amazon in the past two years, you would know that almost no items come with invoices whether you select the "Gift" option or not. They stopped doing it to save paper. If you are worried, just select that item each time. Your buyer will never get an invoice.
+			- 2. Isn't this method risky because items can be often Out of Stock on Amazon?
+			- With this method you will find that POPULAR items sell out often. Staying away from these items like I advised will really help with this. Although, you will still experience being out of stock. I have developed a great way of handling this. Some of you may have heard of this, it's called CUSTOMER SERVICE.
+			- Being a nice and understanding seller will help you with this method. If you respond and communicate with your buyers in a timely fashion, this wont be an issue. I will provide an example on how I deal with items being out of stock.
+			- First I message the buyer saying something like, "Hello, I deeply apologize but my supplier misinformed me on how many of these were available for sale. As much as I would like to wait for more to arrive, I felt the best thing to do was to refund you instead. I apologize again and have a nice day." Second, I provide them a refund right away.
+			- Doing this has resulted in ONE negative feedback from a stubborn buyer that was convinced I refunded them only to re-list the item at a higher price, which was not true.
+			- Part 9 (Scaling): As I stated above, the key to this method is acquiring a good amount of high quality, regular selling items. If you need ideas for items to sell, copy and paste the titles of Amazon items into eBay and make the same listings as other buyers but MAKE YOURS BETTER. The total amount you want is up to you. I could easily increase the amount of items I have active, but I like only needing to spend an hour per day fulfilling my orders and communicating with customers. That is the reason this method is so great for someone in college like myself.
+			- Part 10 (Returns): This is another feared part of this method by many people but its not a big deal at all. It is up to you to choose if you allow returns. I choose to offer them to give the customer some confidence in my items. Amazon will accept anything in a return almost so why not? If a customer claims they don't want an item, that means they have to pay return shipping. To complete this, go to your Amazon account a request a return for the item in question. They will give you the address of the return department, in which you give to the buyer. Once Amazon refunds you, you then refund the buyer.
+			- If something is defective with the item, reply quickly to the customer, apologize and state you can provide a free return shipping label along with refund or a free replacement. Then, ask for a return of the item on Amazon, but in this case state that something is wrong with it. They will provide you with a return UPS shipping label for free. Screen capture this label and crop just the label itself. Save as an img file and then send this in an email to the buyer (To find their email, go to the Paypal transaction, it will be there). The reason you use email is because eBay shrinks the label if you try to send it through their message system. Explain that is why you sent the label to their email and explain to them the instructions on how to return the item. From here, refund the buyer or send a replacement after Amazon sends you the refund.
+			- Part 11 (Proof): I am not going to state specific earnings or anything like that. You should know by now that I wouldn't waste my time sharing this detailed tutorial of a method if it didn't work. As I stated above, I paid for two years of junior college with my earnings. For the big skeptics, here is a screen cap of my eBay sales in the last 60 days.
+			- There is no need for more proof than that. The ones who take this information and earn with it will benefit and those who don't believe in it can just move on, doesn't matter to me Smile
+			- I do not think I'm the best at this method, it is simply an explanation of how I have conducted this business over the past couple years. I felt I needed to share my knowledge and clear some things up about it.
+			- I apologize for the length, but it is the only way I know how to teach. I have to be detailed and methodical if I am going to share something like this.
+			- If you have any questions, feel free to ask below, I will check back a couple times a day and ask any questions that you have.
+			- Also, I am personally experimenting with CPA + Advertising and would be happy to share expertise if you are interested in the method I explained today!
+			- Last edited by lewy2k; 01-11-2015 at 06:18 PM.
+			- Talking [Method] Amazon to eBay Drop-shipping Done Right! Spoon Fed! *Long/Detailed*
+			- Hello everyone! I lurk most of the time but have been here for a few years. I am a 23 year old college student and have spent the last two years fine tuning a method I learned here on BHW. When I first joined, all of the internet terminology made no sense at all. Reading almost every method confused me. Although, there was one method seemed to make sense to me, which had to do with eBay and Amazon. Having prior eBay selling experience, I decided to give it a try. This method, which many have named the eBay to Amazon Drop-ship method, alone helped me pay for my first two years of college without a doubt. Now, this method has been covered to some extent, but not for a while. I always see misconceptions and false information thrown around from people who have either never used this method or didn't spend enough time with it.
+			- The point of this thread is to give back to the community, clear up a bunch of rumors and help some of you get started if nothing else has worked for you thus far. If you have a question please ask in the thread, PLEASE DO NOT PM ME.
+			- Before I get started, I just wanted to say, I will show a little bit of proof in this post. Although, I will not go out of my way to prove anything to those who don't believe any of this information is true. If you don't want to believe me or take the time to try this method, then just move on. Thanks! Smile
+			- *Disclaimer* - I am from the United States and all of this information is based on this location alone. I have no knowledge of this working elsewhere, although I'm sure someone can confirm if it is possible or not.
+			- Needed for this method - (eBay account, Amazon account, Paypal account, Debit/Credit card)
+			- Part 1 (The Idea): If you don't understand the concept of how this idea works, please search around the forum first. In essence, you are finding items on Amazon that you can sell on eBay with a mark up price, so that after eBay and Paypal fees, you have a net profit left over. If this doesn't make sense, please do some more reading here on BHW.
+			- Part 2 (eBay Acct.): I used my personal eBay account that was created around 3 years before this started, although I don't see the need to obtain an aged account. Just work up slowly to build your selling limits. I started with the lowest selling limits and was upgraded by eBay automatically after a very short amount of time.
+			- Part 3 (Amazon Acct.): You can go two directions with this step. Many sellers elect to only list items that are above the $35 free shipping limit. With this step all you need is your average Amazon account. Although, you may choose to use an Amazon Prime account. If you choose to use an Amazon Prime account, you will ALWAYS end up losing your Prime benefits at some point for reselling activity. I advise that you use a different account if you have a personal one. BUT WAIT, PRIME ACCOUNTS COST MONEY RIGHT?! That doesn't matter. This is quite simple to deal with even though many of the people I see on BHW don't seem to see how easy this is. Not only that, but having a Prime account will help your sales DRAMATICALLY. (See step 6.5 to see why)
+			- Make a new account and sign up for Prime with a 30 day free trial. Directly after this select that you do not want to pay for the 1 year of Amazon Prime after the 30 days are over. After each 30 days expire, repeat this step. I have never lost an Amazon Prime account within those 30 days, the only time I have lost Prime benefits is when I first started and used my own personal Prime account.
+			- SEE, EASY!
+			- Part 4 (Paypal Acct.): Get yourself a verified Paypal account and attach it to your eBay account if it isn't already.
+			- Part 5 (Finding Items): The goal here is to find items on Amazon that you can sell on eBay for a higher price. Consumers are lazy and usually purchase from places they are comfortable with or have used before, this reason alone is why this method is even possible. Many times I see people state that if you see an item selling at a lower price than you would like to sell at on eBay, to move on and find another item. THIS IS A HUGE MISTAKE!
+			- Just because an item sells a few times at a lower price than you would like doesn't mean you should avoid it. Many times, those sellers have been lazy or used automation to set up their listings (I will touch on this in a later step). Therefore, if you provide a more detailed listing and proper title, likely your item will show up for more search results and your item will sell at a higher price. As I just stated, consumers are lazy, if they see an item they think is a good price, they will likely purchase it instead of trying to find a better price. NEARLY 50% OF THE ITEMS I SELL ARE NOT THE LOWEST PRICE ON EBAY.
+			- I set a strict but vague limit for myself when listing items. I must make more than $7 after Paypal and eBay fees. If I find that the item is a hot seller and sells more often, I am fine with making less per item, but never under $5 profit per item. For reference, eBay fees are 10% of the selling value and Paypal fees are around 4%.
+			- Set a specific profit margin and stick to it.
+			- Part 6 (Listing Items): The key to this step is a proper title and a detailed listing. People want to be informed when they look at your listing and most will not message you for further information, they will just move on. This is where I disagree with many other people who use this method. The common belief is the more items you can list, the more money you make. First, selling thousands of items at a time will take a TON of your time when having to deal with customer inquiries and keep orders fulfilled each day. Falling behind on this will hurt your feedback score and reputation.
+			- If you do it the way I do, it is much less stress and easier to contain and maintain. I currently only have around ~150 items listed right now. Partly because I have listed 1000s of items over the past two years and these 150 items are all regular sellers.
+			- Not only do I disagree on listing tons of items, but I disagree in the way many people list their items. There are a ton of automation methods available in the IM community and I strongly advise you don't use them. Any seller I see using these programs have unoptimized titles and listings for their items. I STRONGLY ADVISE YOU DO EACH LISTING BY HAND. Yes, this will take a while but the end result is worth your time and money. You could even outsource this process if you want, as long as it is done correctly.
+			- One last tip is to generally look for items that are not widely known or sold on the internet. Many times, there are suppliers who have connections with popular items and sell at prices you will never reach. Aim for items that you would only find on Amazon and not many other places.
+			- Part 6.5 (Titles/Description/Images): I am going to give you some examples of great titles and how to properly provide a description. Many sellers that list by hand and using automation strictly use the same title Amazon provides for the item as the title on eBay. Once again, THIS IS NOT ENOUGH. For example, if you were to list a Shower Curtain, many times Amazon just states "(Shower curtain+design+size)" in the title. If you want to list one on eBay, you would add those but also includes words like (New, Modern, Bathroom, Bathtub, Classy, Simple, Waterproof, Bath, Decor, etc.). Use as many words as you can until the title is full!
+			- When filling out the description, include as much information as you possibly can. Include size, model #, material, power usage, battery type, etc. the more the better.
+			- Use every image available on Amazon for your item. People love pictures.
+			- THIS IS NOW WHERE HAVING A PRIME ACCOUNT KICKS IN! Prime members get FREE 2-Day Shipping in all of the US.
+			- In your pictures and/or titles, advertise FREE 2-Day Shipping! Buyers will spend more on your items for this alone! Not only are people lazy, but they are impatient!
+			- Part 7 (Ordering): When you make a sale, you now need to buy the item from Amazon. Order your item using your Credit/Debit card and the billing address the card requires. For the shipping address, copy and paste the address of your buyer from eBay. That's it! Very simple.
+			- Part 8 (Misconceptions): By now you might have some questions or concerns. I will try to address them here with ones I commonly see. Later on, I will add more once others respond to the thread.
+			- 1. Will buyers get mad when they see an Amazon box or see the invoice?
+			- I have never in two years and 1800+ feedbacks had a customer be mad about the box. Once or twice I have been asked if the item came from Amazon. Considering I have some common sense and a creative mind, I explained that I use the Amazon shipping service called "Fulfillment by Amazon". This is a real service, but it does not really work the way I am explaining, but hardly no one knows this so it works with customers. Keep in mind I have been asked this twice in two years.
+			- Also, some of you seem to be living in the past. If you have ordered anything from Amazon in the past two years, you would know that almost no items come with invoices whether you select the "Gift" option or not. They stopped doing it to save paper. If you are worried, just select that item each time. Your buyer will never get an invoice.
+			- 2. Isn't this method risky because items can be often Out of Stock on Amazon?
+			- With this method you will find that POPULAR items sell out often. Staying away from these items like I advised will really help with this. Although, you will still experience being out of stock. I have developed a great way of handling this. Some of you may have heard of this, it's called CUSTOMER SERVICE.
+			- Being a nice and understanding seller will help you with this method. If you respond and communicate with your buyers in a timely fashion, this wont be an issue. I will provide an example on how I deal with items being out of stock.
+			- First I message the buyer saying something like, "Hello, I deeply apologize but my supplier misinformed me on how many of these were available for sale. As much as I would like to wait for more to arrive, I felt the best thing to do was to refund you instead. I apologize again and have a nice day." Second, I provide them a refund right away.
+			- Doing this has resulted in ONE negative feedback from a stubborn buyer that was convinced I refunded them only to re-list the item at a higher price, which was not true.
+			- Part 9 (Scaling): As I stated above, the key to this method is acquiring a good amount of high quality, regular selling items. If you need ideas for items to sell, copy and paste the titles of Amazon items into eBay and make the same listings as other buyers but MAKE YOURS BETTER. The total amount you want is up to you. I could easily increase the amount of items I have active, but I like only needing to spend an hour per day fulfilling my orders and communicating with customers. That is the reason this method is so great for someone in college like myself.
+			- Part 10 (Returns): This is another feared part of this method by many people but its not a big deal at all. It is up to you to choose if you allow returns. I choose to offer them to give the customer some confidence in my items. Amazon will accept anything in a return almost so why not? If a customer claims they don't want an item, that means they have to pay return shipping. To complete this, go to your Amazon account a request a return for the item in question. They will give you the address of the return department, in which you give to the buyer. Once Amazon refunds you, you then refund the buyer.
+			- If something is defective with the item, reply quickly to the customer, apologize and state you can provide a free return shipping label along with refund or a free replacement. Then, ask for a return of the item on Amazon, but in this case state that something is wrong with it. They will provide you with a return UPS shipping label for free. Screen capture this label and crop just the label itself. Save as an img file and then send this in an email to the buyer (To find their email, go to the Paypal transaction, it will be there). The reason you use email is because eBay shrinks the label if you try to send it through their message system. Explain that is why you sent the label to their email and explain to them the instructions on how to return the item. From here, refund the buyer or send a replacement after Amazon sends you the refund.
+			- Part 11 (Proof): I am not going to state specific earnings or anything like that. You should know by now that I wouldn't waste my time sharing this detailed tutorial of a method if it didn't work. As I stated above, I paid for two years of junior college with my earnings. For the big skeptics, here is a screen cap of my eBay sales in the last 60 days.
+			- There is no need for more proof than that. The ones who take this information and earn with it will benefit and those who don't believe in it can just move on, doesn't matter to me Smile
+			- I do not think I'm the best at this method, it is simply an explanation of how I have conducted this business over the past couple years. I felt I needed to share my knowledge and clear some things up about it.
+			- I apologize for the length, but it is the only way I know how to teach. I have to be detailed and methodical if I am going to share something like this.
+			- If you have any questions, feel free to ask below, I will check back a couple times a day and ask any questions that you have.
+			- Also, I am personally experimenting with CPA + Advertising and would be happy to share expertise if you are interested in the method I explained today!
+			- Last edited by lewy2k; 01-11-2015 at 06:18 PM.
+		- Grey Hat Traffic Gen Methods
+			- Creating new domains for free $100 adwords to an adsense site [req proxies/IP changer + prepaid credit cards]
+				- 5: Go to www.co.cc and get a couple free domains to forward to your main domain
+				- 6: Go to godaddy.com and purchase a $9.99 website tonight
+				- 7: A couple hours after you purchase the site, redeem your $100 adwords and $100 yahoo credits
+				- 8: Send the free traffic all to your website
+				- 9: Start over the next day with a new godaddy account and repeat steps 6 - 8
+			- Get 100s of free leads by Lead guys as a sample
+		- Passive income is a job
+			- Everyone wants a passive income.
+			- For the most part, whatever passive income you end up generating, it starts out as VERY ACTIVE INCOME. It's much more active than any job that you're trying to escape from. (something i've discovered)
+			- You're going to do some significant legwork to find a business model that works, make that business work, and make sure it's truly profitable.
+			- The classic 4 hour work week actually talks about a guy who worked 80-100 hours a week for 2 years, losing his health, losing his social connections, before he learned how to optimize what he did. Getting to 5 figure a month profitability didn't happen in 4 hours, but with good systems, he could maintain his ~10,000 hours of blood, sweat, and tears business by only looking at 4 hours a week.
+			- The classics
+			- - Stocks and bonds - You need some coin to get started, and you spend a lot of time doing research. Either you research individual investments, or you research methods, or both
+			- - Real Estate - Finding properties, analyzing, buying, renting, maintaining..lots of people make their money this way. It's not a 40 hour a week job, but it's running a business. You'll be going full steam before you get to the point where you can hire someone to do the day to day
+			- The new stuff
+			- - Affiliate marketing/adsense/advertising - basically you're creating content, and the content compels people to take some action that makes you money. You could be writing about widgets that are sold on Amazon. If you pick the right niche, and the right bundle of low competition key words, then you can build sites, and build links to those sites and you can profit handsomely. But it's a considerable amount upfront time and effort, and often money.
+			- - Dropshipping/e-commerce - essentially the same thing. Finding a market, understanding those customers, attracting those customers, converting the customers, delivering the product, doing the customer service. Drop Shipping is selling stuff, and having the manufacturer/distributor ship it out. E-Commerce, for the purpose of this post, means that you are in charge of everything.
+			- And when you finally create your passive income, income where you're not trading your own time for dollars, you now have to manage what you do.
+			- With financial investments, the market changes.
+			- With real estate, tenants move out (and tear your property up)
+			- With affiliate/advertising income - search engine changes, social media changes, information changes, tons of competitors
+			- With e-commerce/drop shipping - the consumer market changes
+			- And if you have someone doing this for you - you've got to worry about the business, and the business of managing people.
+			- In a sense, there's never a truly passive income, but there's definitely better ways to make money than trading your time for x amount of dollars
+		- Rank and Rent SEO
+			- (doesn't work as well now that SEO is more difficult)
+			- So today i signed for Jr. VIP Membership
+			- In this forum I learned a lot of things: how to make proper website, how to do seo…
+			- So as many of you i had a problem how to make more than £800 or £1500
+			- As it is difficult to find customers they don't trust you so you have to do it cheap
+			- At the end of the day it isn't possible to feed your family for it (I have offline business for me this is a hobby)
+			- And decided to share my method:
+			- I choose 4 offline businesses in different niches (any dentist, solicitors or….. )
+			- (healthy businesses in your city which makes more than £100,000)
+			- Find kw matching domains of course they there taken (i used hxxp://kw(best,az…).co.uk
+			- Created WP website optimised as i could (You can buy website in BHW forum fastest way )
+			- As it all took about 4-5 weeks to set them working properly and write content (4domains)
+			- Created socials pages for each of the website Facebook page, twitter, G+
+			- It took me about 2 weeks, just make it professional as you can (or simply hire somebody)
+			- And started creating backlinks (You can go to the section buy services and will find many working)
+			- Google places i set up with my business address but you can do on your home address
+			- Landline number 800 ….. using voip (£55 for each site you don not have to pay many if won't get calls)
+			- Doing Seo for it to get better ranking making Likes on social, perfect reviews,with videos and so on…
+			- So after about 3 months i started to get calls to those phone lines
+			- My seo results growing and for main keywords 1 page but not top
+			- As i already research all the competition and choose companies which have their sites on 2nd page, 3rd,
+			- 4th pages and send my offer not for managers but for owner of the companies(opponents)
+			- 2nd of the website there in 1 page on google for main keyword and been getting about 3-6 calls a day
+			- Send something like
+			- "As you are first who got this offer to get your site on the top with the links to positions
+			- To great site which is on top Google and all proofs they can check
+			- Just for £5000 "
+			- If they buy i just place the company Logo name in it and sell full set
+			- In 3 days i send about 50 emails for my 2 sites which i think were ready to go
+			- And i Got 6 Phone calls with interest for them. Agreed to meet one buyer for 1 domain in his office
+			- And same evening i get £4500 on my account by bank transfer and change nominet for them
+			- (He asked for discount £500 and i agreed if he pays straight away to account)
+			- In 3 days arrange another appointment and sold one more for £3500 been asking £5000
+			- But they signed seo contract to keep it doing 1 year for £300/monthly
+			- Two others been more difficult to rank in 1st page but on middle 4th month it was done
+			- As i think these there not that popular as first 2 so just get response in 2week
+			- And on meeting we had to made call for voip company to confirm incoming calls with phone numbers
+			- As he was checking numbers, are not related with me (fake calls) so i was safe and got £4500
+			- Last was tricky so have find more buyers using old yellow pages in five weeks one response
+			- With request for meeting and sold with discount £4000
+			- In total:
+			- 1 website - £4000
+			- 2 website - £4500
+			- 3 website - £3500
+			- 4 website - £4500
+			- Total: £16500
+			- Expenses: about £1500 (Domains, servers, some BHW services and some fiverr videos)
+			- Profit: £15K
+			- Guaranteed $10K a month online/offline hybrid method.
+			- I've been combining my offline and online marketing skills for quite sometime now. Im going to show you a method that can make a you limitless money if you rinse and repeat it.It involves local search. The best way of describing this method is by showing you a real life example. This example uses local dentists but you can do it for literally any type of business. The reason I used denists is because here in London they make an absolute fortune which means they have the funds available to invest in advertising their services.What I did was buy up a load of domains. I bought about 50 of them but im just going to show you 2http://dentistinleyton.comhttp://dentistinleytonstone.comSo what I did for the first one was chucked up a wordpress blog on the domain, upload a nice theme and write a quick 200 word article with the domain keyword which is "Dentist in Leyton" In leyton there are about 20 dentists but ill go more into that in a minute. I then stick a few "Advertise Here Banners" in the right side of the margin.What I then did was buy one of these 200 blog comment packages and get the provider to get me 200 links to my TLD with the anchor "Dentist in Leyton"Now the thing you need to remeber is you Obviously want to go for a term that you will rank for and appear on the first page immediately so dont go for anything crazy like "Dentist London" go for something with a bit less competition, like I've done above.Once the site is ranking. I then went to yell.com and made a list of all the dentists in leyton and rang them one by one. I told them I had a site that was ont he first page of google for the keyword "Dentist in Leyton" and was currently getting around 10-15 visitors a day. We're talking ultra targetted traffic.Now 10-15 vistors a day could quite easily be an extra $1000 a day of income for a dentist depending on the work that needs to be done to the persons teeth. So I explain this to the dentist and they like the idea and ask me how much. I tell them it will cost $400 a month but potentially that could bring them in about 20K worth of business in that time. They love the idea and sign up. I get my partner to set up an invoice and get them on a monthly billing plan. I then put their contact details on my site and move onto the next dentist.When I have 3 dentists signed up I close off the signups to that particular site and move onto another location. I don't want to sarurate the site with too many ads because otherwise the dentists start complaining that they are not recieving enough calls so the optimum number i have found to work is about 3 dentists max per location, which is about $1200 per site per month! This whole process takes about a week to set up and doesnt reall require you to be that persuasive. Once the dentists see the potential in what you are providing they are eager to get signed up. Once I saw the protential for this I then set up another 20 sites in another niche.As you can see with about 10 sites you should be able to turn this into a $10k a month business and the money is RECURRING every month. All you need to do is make sure the sites are ranking for the keyword every month and bringing in enough traffic to warrant the dentist to stay hooked. What you might also want to do is get people to mention your site when they speak to the dentist to show the dentist you are actually bringing them in decent leads.Anyway just giving you guys an insight into the power of local search and how you can make money from it.
+		- Sell SEO/Reviews to android developers
+			- Android apps and the Android market has exploded in the last 16 months and it will only continue to grow!
+			- But getting your app ranked is something that can be hard to do when you don't have a lot of traffic and marketing knowledge.
+			- So I went to our good old friend Fiverr and found some good gigs related to Android Apps (ratings/comments) and I have been sending out emails to App developers telling them I can help them rank their apps higher!
+			- Here is the search term I use to find Developers!
+			- site: play.google.com/store/apps/developer?id=there should not be any space after the :Go to a developer's page where you can see all of his apps, pick 1 random app and normally there will be a link called "Email Developer" just copy that!
+			- Then I just used Google Mail to send out the message (use BCC)... I would send 1 email to around 50-100 developers a day.
+			- You can download my "email swipe" here (see the bottom)
+			- I suggest you edit it and just use it to help you create your own... don't be lazy or you will get a low conversion rate!
+			- Fiverr gigs:
+			- [Myhanh3 will [level 2] +10 ratings+ 10 comments + 10 gogle [+1] for your free app on android market/ google play in 3 days for $5, only on fiverr.com](http://fiverr.com/myhanh3/10-ratings-10-comments-for-your-free-app-on-android-market-google-play-in-3-days)
+			- [Myhanh3 will +20 perfect 5 stars ratings for your free android app on android market/google play in 4 days for $5, only on fiverr.com](http://fiverr.com/myhanh3/17-perfect-ratings-for-your-free-android-app-on-android-marketgoogle-play-in-5-days)
+			- [Likhon143 will provide valid 12 android review, install your android app and games, post 12 authentic and positive reviews +12 perfect five star ratings for $5, only on fiverr.com](http://fiverr.com/likhon143/promoting-your-android-apps-n-games-by-9-downloading-rating-and-commenting)
+			- [Likelogopro will give 20 ratings or ten reviews with 5 star for your android app on play store, review android, rating android for $5, only on fiverr.com](http://fiverr.com/likelogopro/design-a-great-logo-design-for-a-business-website-company-design-within-24hours)
+			- [Rehanoni will promptly download your app and give you 12 android review + 12 five star rating,using 2 dfrnt mbl, can be done for 12 difrnt apps, in 22 hrs for $5, only on fiverr.com](http://fiverr.com/rehanoni/provide-15-android-review-install-your-android-app-and-games-post-15-authentic-and-positive-reviews-15-perfect-five-star-ratings)
+			- [Adroid_like will +20 5star ratings for your free android app on android market/google play in 20 hours for $5, only on fiverr.com](http://fiverr.com/adroid_like/20-5star-ratings-for-your-free-android-app-on-android-marketgoogle-play-in-2-days)
+			- [Lea_fr will make your website into an android app, give you the application, a qr code and design logo for $5, only on fiverr.com](http://fiverr.com/lea_fr/make-your-website-into-an-android-app-give-you-the-application-a-qr-code-and-design-logo)
+			- Is Your App not Getting Downloaded Enough???
+			- Do you need more downloads for your android App? If you answered yes, then you MUST read every word in this email!!!!!
+			- Hello,
+			- I was just going through Google Play store and I found your app near the last page of its category. I think it's Amazing that you have managed to create an app! Well done on taking action!
+			- This is a huge market that is growing by the day as more and more people get smart phones.
+			- You have overcome the first challenge which is to create and app, but the second challenge can be very tricky to overcome!
+			- It's not your fault, getting an app posted and reviewed by high traffic App websites is something that is very time-consuming and sometimes doesn't pay off!
+			- But, one thing that does get you more downloads is good ratings and positive reivews!
+			- You will notice that all of the big apps and apps on the front page (of any category) have lots of positive reviews and 5 star ratings!
+			- That is the only way you can rank and get noticed, not only in Google's Play store, but also in the Search Engines for your Keywords because each rating and comment is like a backlink!
+			- I want to help you get more downloads and put your app on the front page where it should be. Your app deserves to be there more than some of the other apps I have seen there!
+			- Normally the only way for getting ratings and good reviews is by promoting your app using services like Facebook PPC, www.onthemob.com, www.mobyaffiliates.com and  app-promo .com!
+			- The only problem is that these services can become very costly very quick - and not everyone can afford to pay $1000 - $10.000 a month to promote an app!
+			- Lucky for you I have been doing lots of research and tests and found a way to generate lots of reivews and positive 5 star ratings without it costing an arm and a leg!
+			- Here is what I can do for you;
+			- You will get 40 or more 5 Star Ratings delivered in less than 5 days for just $59.
+			- This is has been enough to get some apps on the front page in some categories!
+			- Or You can order 80+ 5 Star Ratings and 20 positive Comments delivered in less than 5 days for $109!
+			- With this package, you are guaranteed to see a HUGE improvement on your overall ranking in Google Play store and other android markets... and you stand the chance of getting noticed by the editors and have your app be recommended by the Editors (which would mean 1000s if not 100s of thousands of downloads)!!!!
+			- This is a 1 off limited offer! And you won't get it anywhere else!
+			- Get in touch now and tell me which package you would like to order today!
+			- All the best, may 2013 be a great year for you!
+			- Kind Regards
+			- Caroline L.
+		- Greg/[Xsplat](((63a9acf1-7dea-47be-9ce4-d78297bff186))) current businesses
+			-
+				- AndroPlus
+					- Cream production recipe
+					- Fulfillment (easy mailing)
+					- Website (have backups but easy)
+					- Payment gateway between PayPal (mals-e commerce?)
+					- Creation of multiple PayPal accounts?
+				- Supplements
+					- HCG, dynamite applied topically for erections, cialis powder,
+					- Herbal herpes cream, estrogen in diluted quantities for horniness
+				- STD test kit
+				- Portable bandsaw + chopping jack? wood
+				- CNC carving machines - small standardised ones
+				- 3D printer for chocolate naked women
+				- Greg's creative process:
+					- Research a chemical indepth via academic journals
+					- Find suppliers for a small test run
+					- (optional) Test substance on self
+					- Try to sell it on ebay or similar
+					- SCALING up
+					- Order in bulk or have it synthesised
+					- Create website with zencart
+					- Buy ads or outsource content marketing via forums etc
+	- SweetProcess · Document Your Standard Operating Procedures With Ease
+	- PROGRAMMING
+		- WHEN FINISHED: find out rough cost - odesk/elance
+		- Programmer - keep on monthly retainer or 100% of initial profits up to predetermined amount
+		- html5 interface for survey with sliders/ajax?
+		- jQuery
+		- wordpress DRIP plugin
+		- JavaScript menus 'google'
+		- W3schools - HTML 4/5
+			- [Personal Data Visualization](http://quantifiedself.com/2011/03/personal-data-visualization/) – great links to numerous tools!
+			- [Jaw-Dropping Infographics for Beginners](http://quantifiedself.com/2010/05/jaw-dropping-infographics-for/)
+			- [A Tour Through the Visualization Zoo](http://quantifiedself.com/2010/05/the-visualization-zoo/)
+			- [Visual Inspiration](http://quantifiedself.com/2009/09/visualization-inspiration/)
+		- [http://docs.oracle.com/javase/7/docs/api/index.html](http://docs.oracle.com/javase/7/docs/api/index.html) - API Index (glossary
+		- CURRENT: [http://docs.oracle.com/javase/tutorial/getStarted/intro/definition.html](http://docs.oracle.com/javase/tutorial/getStarted/intro/definition.html)
+		- Packages > Classes > Objects
+		- Objects - state (features)  + methods (behaviour of thing it can do)
+		- [http://www.udacity.com/html_playground](http://www.udacity.com/html_playground)
+		- Find out what each programming language can do - projects, examples, graphics
+		- [http://www.htmldog.com/](http://www.htmldog.com/)
+		- Your homepage is likely called ‘index.php’ with your sidebar being ‘sidebar.php’ and your footer – you guessed it – being ‘footer.php’. Along with ‘header.php’ for the top contents of your website and ‘single.php’ for editing the design of individual blog post pages, these five are the most common that you’ll want to tweak.
+		- For logo and other graphic editing the two free tools I recommend are Pixlr (online) and Photoscape which was recommended by Andrea, though do note that it’s Windows only. If you have the cash to spend on Adobe Photoshop then being able to edit graphics, even basic ones, is another good skill to have in your arsenal down the road.
+		- If you’re looking for custom work for a fee when it comes to blog and logo design then two contacts I highly recommend are Craig Abbott and Dean Martin. Two people that I’ve worked with personally and they both offer freelance design services. Their email addresses are admin@craigabbott.co.uk and deelow@me.com respectively.
+		- HTML Basics
+		- As mentioned above, learning HTML & CSS can be scary, but knowing how to edit the design of websites is a great skill to have. There are actually only a few key elements that you need to be aware of in most cases, which I’ve outlined below.
+		- To insert a link into a post or widget, you can use the following code:
+		- <a href="http://linklocation.com">Link Text</a>
+		- Link location should be substituted for the URL that you want to take people, and Link text is the clickable text that will display on your website.
+		- To add an image to your site use the code:
+		- <img src="http://imageurl.net/image.jpg" alt="Describe the picture">
+		  			- Obviously substituting the URL inside the quotes for whichever image you want to show.
+		  			- To add a line break in your text use the code:
+		  			- <br />
+		- To set specific line break widths you could also style a parapraph tag:
+		- <p style="padding:20px 0 0 0;">Text Goes here</p>
+		- Changing 20px depending on the size of the gap you want to make.
+		- w3schools.com
+		- tiztag.com
+		- Khanacademy
+		- Codeacademy
+		- [http://thenewboston.org/tutorials.php](http://thenewboston.org/tutorials.php)
+		- udacity
+		- VPN and dynamic IP
+		- Programming: udacity, jquery, code igniter
+		- jquery:
+		- http://net.tutsplus.com/articles/web-roundups/jquery-for-absolute-beginners-video-series/
+		- http://net.tutsplus.com/articles/news/the-largest-jquery-class-in-the-world/
+		- I think the second one, although you have to pay, is said to be very good, and its 30 videos, recommend to do the first link above though before jumping into that
+		- [18:27:49] Tom Taila: http://docs.jquery.com/Tutorials official
+		- [18:28:27] Tom Taila: Generally an awesome site tho: http://net.tutsplus.com/
+		- Theme (from scratch) [http://blog.spoongraphics.co.uk/tutorials/how-to-build-a-custom-wordpress-theme-from-scratch](http://blog.spoongraphics.co.uk/tutorials/how-to-build-a-custom-wordpress-theme-from-scratch)
+		- [http://www.kristarella.com/2009/02/css-custom-headers/](http://www.kristarella.com/2009/02/css-custom-headers/)
+		- [http://schema.org/docs/gs.html](http://schema.org/docs/gs.html)
+		- JavaScript slider scrollers
+		- Notepad++
+		- Google+ ping
+		- So it shows up in results with picture
+		- Rel=Author
+		- <a...rel=author..http://www.googleplus.com/aaronsollesse...
+		- e.g. picture or anywhere on a page
+		- For my online shopping cart, I use the service [1ShoppingCart](http://www.1shoppingcart.com/app/?pr=1&id=93920). That what I use to sell tickets to my workshops. You can also use them for doing newsletters if you wish. 1SC has tons of features, most of which I’ve never used, but those features can be helpful if you really want to go the direct sales route and optimize the heck out of it. I don’t use those advanced features because at present I earn more income from other sources than I do from direct sales.
+		- UDACITY CS253
+		- ONE
+- BUSINESS
+    collapsed:: true
+	- MVP/affiliate marketing
+	    collapsed:: true
+		- [quote='teflon' pid='1707980' dateline='1514489403']
+		- I can help a bit.
+		-
+		- You can see why this kind of money is necessary if you break down the steps necessary for testing. Let’s take the example of a Facebook or Native ad. What are the variables? Ad copy, ad image, presell page, offer. It’s a general rule of thumb to throw enough test traffic at just one combination of those variables to equal the payout of the offer in question.
+		-
+		- So let’s take a vertical like Nutra and use a $70 payout as a nice round number. I’m spitballing this number because a Nutra offer typically has two steps: the first step plus an upsell, with the upsell take rare on most reputable offers around 75%. So if the payout for both steps is $40 each, 1.75*40= $70. In reality, an affiliate coming in cold with no proven track record of quality retention will get less than a $40 payout per step, usually 37-38.
+		-
+		- So we need to test every combination of variables to a $70 limit if we want a good solid statistically significant sample. You can “rotate” through these variables equally and efficiently with a program like Voluum, which is what I was using when running my own internal traffic a few years ago. There may be a better program now, but I see Voluum is still out there since they’re a big sponsor at ASW 2018.
+		-
+		- I would say at minimum you want 3 totally different ad copies and 3 totally different ad images appealing to different things (taking different “angles”...read Cashvertising). Then you want at least 2 totally different presell landing pages. Different layouts, colors etc. all of this will funnel down to the offer itself. As a product owner myself, I know there is a lot of variability in how much effort an offer owner puts into making his page convert. So you’ll want to test at least 3 different offers in a single vertical (3 different skin cream offers for example). Of course you’ll need to modify your presells to reflect the correct product names and images.
+		-
+		- So we hav 3*3*2*3 at a minimum which is 54 different combinations. Take 54*70 and you have $3780.
+		-
+		- That’s the price to do the bare minimum test on a campaign. And it’s not even a thorough test to be honest...you would really want more combinations, different demographic/site targeting, over a longer time period (some times of the day are good, some are bad...you could run this test between certain hours and lose all your money, pick different hours and make crazy ROI).
+		-
+		- What you’ll see as you begin to spend money as the campaign goes live is that it’s converting more on particular ad images / ad copy / presells / offers / targeting. The process of paring out the losers from the winners is called optimizing. In this initial stage you are basically guaranteed to lose money but as long as it’s converting there is “traction” and you can optimize down, hopefully eventually reaching profitability.
+		-
+		- From there you enjoy your profits and continue to split test different combinations similar to the winner to increase them. Eventually shit hits the fan. Offers go down, traffic sources change, ads “burn out”. It’s a game of whack a mole.
+		-
+		- All of this assumes you have some idea what you’re doing:
+		- -everything is set up correctly so you don’t go live and send your money into a literal black hole because some site is not coded correctly or software installed correctly
+		- -you have a reasonable idea of the proper CPC/CPM to bid for your ads. For instance if the top bidder is paying 25 cent cpc and you bid a dollar thinking to yourself “that seems low” with no reference point, you will become the top bidder and get a flood of traffic that will smoke your $15k before you can hit refresh. You generally want to start out high enough to get exposure on all the expensive targets without burning through your budget. Chances are the expensive targets are the good ones and if you bid too low you may never run on them, concluding your campaign is a failure. This is where the guidance of your account rep comes in very handy. I never ran on FB, it was a faceless monolith back in the day...but for instance native advertising platforms will give you an account rep that can give you insight as far as bids, good targets etc.
+		-
+		- Now you may get extremely lucky and reach profitability on your first campaign, but then you will have to double down and risk all the old money plus the profit if you want to scale. You’ll put it all on the line every day for a long time. There is no point to dipping your toes in and burning $500, seeing two conversions that give you no actionable data because you’re out of money. You really have to go big or don’t bother.
+		-
+		- I am not going to make any claims or push too hard, I’ve seen how that ends up...these guys come along occasionally and usually end up banned. Just offering some help.
+		- [/quote]
+		-
+	- http://30daystox.com/how-to-build-a-billion-dollar-app/
+	- SEO - Franco says linkbuilding is way too low ROI, only for big brands. PBNs far better
+		- PBN costing £1.5k/month for him, 3-4 links per week
+		- htaccess to block ahrefs, etc and other crawlers which competitors use to check backlinks. but dont block google crawler ofc
+		- then use a collection of new sites which post content
+	- High barriers to entry
+		- If a business can’t be beaten physically (gravel pits), logistically (hotel chain with 100,000 locations), or legally (pharmaceutical patent), you’ve got an edge.
+	- Potential businesses
+		- http://wallstreetplayboys.com/great-businesses-from-expensive-to-cheap/
+	- The Five Ways to Evaluate a City
+		- [source] http://wallstreetplayboys.com/the-five-ways-to-evaluate-a-city/
+		- Economics
+			- For creating a profitable career
+			- After a decade this shouldn't be your first concern
+			- 1) it should take up 80-90% of the value if you’re worth under $1M, 2) it should take less than 20% of the value if you’re a millionaire and 3) it should take up about 33% of the value if you’re having a family.
+		- Demographics
+			- A good rule of thumb is to avoid cities that have male dominated industries. This would be technology, finance and construction. While New York is a rare exception given that media, fashion and many other industries are prevalent there, this basic filter will help you.
+			- The downside? You’re only going to be able to take advantage of this later in life if you’re going to work in Technology/Finance/construction for your first position.
+			- ..
+			- As an example of demographics, you want to search for 1) average age, 2) male/female ratio, 3) race/ethnicity mix, 4) number of universities in the region , 4) percentage of city that is married and 6) political affiliation. All of these will paint a good picture of the type of people you’ll meet. A good resource for information on the population is worldpopulationreview. This is not good enough but it gives you an idea for your beginning research. If the numbers are largely the same as a city you like it’s probably worth a visit. If it is similar to cities you dislike… cross them off the research list.
+		- Weather and Outdoor Activities
+			- This is essentially worth nothing for the younger people. If you have no money, fun shouldn’t be prioritized. Every major city has enough to do for a couple of days a week since you’ll be working the rest of the time anyway! Weather won’t be an important quality in the beginning. But. Fast forward and that changes quickly.
+			-
+			- A decade later… weather and outdoor activities will become the second most important item on the city living test. If the city has the demographics (people you want to be around) the only other big swing factor is the weather and activities. While it would be interesting to *visit* a city that is freezing all the time with beautiful people… it won’t be enjoyable to stay there long-term. For fun our personal preference is a beach city and an active city. This is a preference as there are some people who enjoy skiing more than the beach and others who simply enjoy living in the country with vast amount of acres (we couldn’t do this). A simple example of a dual city set up here would be Miami and New York. Alternatively it could be Los Angeles and Chicago. We are sure there are millions of other examples but this is a good way to think about a dual city living situation.
+		- Taxes
+		- Infrastructure and Laws
+			- Infrastructure and Laws: This is a big one for the younger generation. When you move to a new city, doing everything “right” offers a large return on a percentage basis. Look into: 1) rental laws, 2) public transportation and 3) the services of the city. Rental laws allow you to decide if there are ways to game the city, from rent control to elongating leases for lower monthly payments. Public transportation is self-explanatory as a major city should allow you to move without a car (won’t be using uber black daily like you will in the future). Services determine nightlife and culture, with shorter nightlife you’re looking at day time activities and with a *low-cost* services industry you’re looking at a lower stress city.
+			-
+			- In the future, this changes from rental laws to property tax/rental laws in the eyes of the owner. Public transportation drops off the list as it won’t make a change to your budget and you’ll rarely use it (only to save time). Services become more important as you ramp up the quality of your life and you look to free up valuable time. After all, if services can save you 5-6 hours a week and you can’t make more money to offset the cost… something isn’t working properly (it implies you’re making less than the cost of services!).
+		- Example recommendations
+			- Fun Recommendations (Assumes second stage): Can’t really have this post without recommendations. Remember, this is for people who enjoy cities (and want to remain single). Good cities for this type of person include: Miami, Las Vegas, Dallas/Austin Texas (although Austin is seeing a demographic shift), Los Angeles for those that want to live in California, New York City and Chicago. There is a relatively wide range here since we assume you’ll be less money hungry after succeeding over the first decade. While money motivation used to be high, it dies quite a bit once you make it (assuming your personality is wired for freedom and not materialism). That said everyone has a different lifestyle and those cities offer a wide range. Miami is better for lower stress offset by lower economic opportunities. Vegas is essentially a city similar to LA without the weather (desert version of LA) and lower taxes. Chicago/NYC are good for economics and bad for taxes. To cap it off Texas is essentially Miami with much lower costs and no beach/worse weather.
+	- Three Concepts to Get Rich: Recurring Income, Time of Day vs. Income and the Fixed Cost Game
+		- frugal people focus on the fixed cost game, by assuming that life between your 60-80s is just as valuable as your 30-50s
+		- Recurring Income
+			- This is by far the most important item to understand. Recurring income allows you to invest more aggressively. It allows you ability to buy time since you can wait out a downturn in one of your riskier investments. It also allows you to save consistently on a monthly basis without praying for your year-end bonus to make it up (we’re looking at the Bankers on that one).  Essentially recurring income building is the most important item to get rich since it offers the most stability. This is exactly why millionaires have multiple streams of income (they generally have 7 or so).
+	- Life Traps - incomplete [http://www.wallstreetplayboys.com/explaining-life-traps-and-how-to-spot-people-who-fell-for-them/](http://www.wallstreetplayboys.com/explaining-life-traps-and-how-to-spot-people-who-fell-for-them/)
+		- Instant Gratification Trap
+			- Eg playing games, going to college, dead-end jobs
+			- They will go through the weeds and figure out the following: “Does this actually lead to higher income streams”.
+	- Jordan Peterson on ((63a9ad65-4938-48ad-ba8c-d0a922559ec7))
+		- Episode 877
+			- Marxism is on the surface attractive to compassionate intellectuals, but that's because they were never taught proper history (Mao, Stalin, Castro)
+			- It can't work because humans decide who should give and get what
+			- Why is racial diversity needed? It assumes other races think differently, which is a racist idea
+			- This diversity focus by the Left has the hidden agenda of ensuring intellectual homogeneity, because lefties all are happy with mass diversity
+			- They push Equity not Equality - equality of outcome, not opportunity
+			- 23m
+	- How to make your first dollar
+		- Future ways I can grow this business:
+		-
+			- Look up office managers on LinkedIn and spend time seeing who knew them.
+			- Give away samples to offices for them to have a great experience and then sign them up. A great way to get in the door and meet people.
+			- Get jerky companies to give away jerky in exchange for all the promotion they are getting to the buyers.Really fascinating take-aways during this process:
+		- 1. Real-time communication (skype, gtalk, texting, phone-calls) wins. This was the most effective way in selling vs more passive forms (emails, Facebook/Twitter posts).
+		- 2. Ask for referrals. If someone isn’t interested, ask who is. If someone is interested, just ask for 1 person who else they think will like it. I incentivized this with an extra month of jerky with any successful referral.
+		- 3. Downsells work. If someone didn’t want 3 months which helped me with my goal, I asked if they were okay with just 1 month of jerky.
+		- 4. You can’t sell everyone. With limited time, anyone who did not eat jerky or didn’t care about high-quality specialty jerky wasn’t worth selling to.
+		- 5. Focus on what already works. Quickly, I noticed offices already order snacks AND have larger budgets to expense things (perfect).
+		- 6. Ask people what they want. If people liked a certain type of jerky already, I noted that and will just get them the kinds they like. Why guess? Work backwards from what people already want.
+		- 7. Social media is noisy. I posted twice on both Facebook/Twitter to make sure anybody who knows me has a better chance of finding my jerky. I usually assume one tweet should reach everyone, it doesn’t.
+		- 8. You don’t need to spend a lot of money to start a business. With only 24 hours and $7.99, I got this biz going. You don’t need to spend tons of money and time to validate a business.
+		- 9. The secret to success ... is work. That’s it. It’s hard and tiring but if you want it, you can do anything.
+		- 10. You’ve got to ask. I focused on people who I thought the jerky would genuinely be good for. It is a bit uncomfortable but I noticed that’s generally the case when you aren’t promoting something you believe in.
+		- 11. Build (or maintain) your network. If you complain you don’t have enough people to sell to, build it now. I noticed I hadn’t reached out to many friends in awhile. You have to tend to your “garden” or it will decay.
+		- What it all boils down to is yourself. If you really want it and are willing to work, the lifestyle you want is available to you.
+		- I made $1,000+ in less than 24 hours with Sumo Jerky. If you’re serious about starting a business, we want to get you started today.
+		- With our How To Make A $1,000 a Month Business course, we give you the system, support, and framework to start your own business.
+		- What’s stopping you from starting your business today? Join now.
+	- Ebooks
+		- [](null) Ebooks
+			- Or snippets (<1000 words per chapter,  Ebooks  Or snippets (<1000 words per chapter, $100 setup and max $5 price)http://www.coveractionpro.com/http://ebooktemplatesource.com/free-ebook-covers.htmlhttp://www.myecovermaker.com/Page size = 8.5'' x 11 or 6 x 9, landscape or portraitBody text = arial/helveticaCreate ebook using different word doc for each section/subsection?✓Header 1: (for things like “Introduction”, or “Chapter 1”, etc.): Size 22, bold.✓First Subset: (sometimes called “Header 2”, or “Subheading”. These are for things like “Section 1”, for example): Size 18, italic.✓Second Subset: (for “part 1”): Size 16, italic.✓Third Subset: (if necessary): Size 13, bold✓Body: Size 13, normal.- Header = ebook name, your name- Footer = website address, page numbers, contact info- Graphics/logos = possible every page, or minimalistLook for more x hacks on www.ThisIsMyPassion.com and sign up for the newsletter to receive exclusive life hacks that you will find nowhere else!Here are some ways you can utilize links in your eBook:✓Placing links within the content itself✓A collection of links in a resources section✓Footnoting your content and placing links in the footer of the page✓In the template of your eBook, just like thewww.smartpassiveincome.com link thatyou see directly below in footer✓Checklists✓Practice questions✓Calculators✓Fill-in-the-Blank exercises✓Templates✓Excel Spreadsheets> TAKE IT OUT OF MAIN CONTENT AND ADD IT IN AS A PACKAGE 'BONUS' - pic of self on thank you pageIMAGES1. Don’t go overboard. Images are great, but too many can be annoying and make it seem like you’re just trying to fill up space.2. Make sure the images you use are relevant. Irrelevant images detract from your content and leave people confused.3. Lastly, be sure you’re allowed to use the photos you select. I often use images from www.istockphoto.com just to be sure that it’s okay.google - ebook cover design, ebook design and formattingIf you only get one size for ebook formatting, go with these specifications:600px x 800px + Jpegcorrect any spelling, grammar, or layout issues. Get anyone you can to proofread it for you. The more eyes, the better.> save as pdf OR free tool ORAdobe Acrobat Professional for adding forms, I do recommend, however, setting up your PDF so that the document cannot be changed, edited, or copied, which can be done via Adobe Acrobat, third party software, or sometimes in your word processor in an “advanced options” menu before you convert. Lastly, I would just like to reiterate the power of simply asking your readers to kindly not redistribute or share your eBook with others. You can include this on your Thank You Page at the end of your eBook, or on a separate page - whatever works for you.www.e-junkie.com $5/mo, store ebook on their servers, intergrates dif pay types like Paypal, Google Checkout, Authorize.net, ClickBank, TrialPay and 2CheckOut.- code which puts a “buy now” or “add to cart” button (paste in using HTML) - edit the button✓Ability to create your own discount codes for promotional offers✓A built-in affiliate program✓Ability to integrate with Aweber Email Autoresponder service.PAYMENTSPaypal Website Payments Pro (standard paypal has very small icons for choosing credit/debit card and you want to keep them on own site)The price to use Payments Pro is $30 amonth. Before my eBook went live, I wasreluctant to commit to paying this much, buthaving the capability to easily accept creditcard payments on my own website and havea faster checkout process makes a world of adifference, and I’m sure I made more salesbecause of it. Plus, since I sold my eBook for$29.95, all it took was one sale to make upthe cost for the entire month.Creating a merchant account with GoogleCheckout is another way to accept paymentsfrom your E-Junkie shopping cart.It works in basically the same way as Paypal,except you’ll have to connect a checkingaccount for Google to forward the paymentsto.By integrating both Google Checkout andPaypal, you’re giving your customers themost payment options to choose from. Eventhough most people pay with a credit card(hence the important of Paypal WebsitePayments Pro), some people will find iteasier and safer to pay with these otherservices.EBOOK DESIGN 00 setup and max $5 price)
+		- http://www.coveractionpro.com/
+		- [http://ebooktemplatesource.com/free-ebook-covers.html](http://ebooktemplatesource.com/free-ebook-covers.html)
+		- [http://www.myecovermaker.com/](http://www.myecovermaker.com/)
+		-
+		-
+		-
+		-
+		-
+		- Page size = 8.5'' x 11 or 6 x 9, landscape or portrait
+		- Body text = arial/helvetica
+		-
+		-
+		-
+		-
+		- Create ebook using different word doc for each section/subsection?
+		-
+		-
+		- ✓Header 1: (for things like “Introduction”, or “Chapter 1”, etc.): Size 22, bold.
+		- ✓First Subset: (sometimes called “Header 2”, or “Subheading”. These are for things like “Section 1”, for example): Size 18, italic.
+		- ✓Second Subset: (for “part 1”): Size 16, italic.
+		- ✓Third Subset: (if necessary): Size 13, bold
+		- ✓Body: Size 13, normal.
+		-
+		-
+		-
+		- - Header = ebook name, your name
+		- - Footer = website address, page numbers, contact info
+		- - Graphics/logos = possible every page, or minimalist
+		-
+		-
+		-
+		-
+		-
+		-
+		-
+		- Look for more x hacks on www.ThisIsMyPassion.com and sign up for the newsletter to receive exclusive life hacks that you will find nowhere else!
+		-
+		-
+		- Here are some ways you can utilize links in your eBook:
+		- ✓Placing links within the content itself
+		- ✓A collection of links in a resources section
+		- ✓Footnoting your content and placing links in the footer of the page
+		- ✓In the template of your eBook, just like the
+		- www.smartpassiveincome.com link that
+		- you see directly below in footer
+		-
+		-
+		- ✓Checklists
+		- ✓Practice questions
+		- ✓Calculators
+		- ✓Fill-in-the-Blank exercises
+		- ✓Templates
+		- ✓Excel Spreadsheets
+		- > TAKE IT OUT OF MAIN CONTENT AND ADD IT IN AS A PACKAGE 'BONUS'
+		-
+		-
+		- - pic of self on thank you page
+		-
+		-
+		-
+		-
+		- google - ebook cover design, ebook design and formatting
+		- If you only get one size for ebook formatting, go with these specifications:
+		- 600px x 800px + Jpeg
+		-
+		-
+		-
+		- correct any spelling, grammar, or layout issues. Get anyone you can to proofread it for you. The more eyes, the better.
+		- > save as pdf OR free tool OR
+		- Adobe Acrobat Professional for adding forms,
+		-
+		-
+		-
+		-
+		-
+		- I do recommend, however, setting up your PDF so that the document cannot be changed, edited, or copied, which can be done via Adobe Acrobat, third party software, or sometimes in your word processor in an “advanced options” menu before you convert. Lastly, I would just like to reiterate the power of simply asking your readers to kindly not redistribute or share your eBook with others. You can include this on your Thank You Page at the end of your eBook, or on a separate page - whatever works for you.
+		-
+		-
+		-
+		- [www.e-junkie.com](http://www.e-junkie.com/)
+		- $5/mo, store ebook on their servers, intergrates dif pay types like Paypal, Google Checkout, Authorize.net, ClickBank, TrialPay and 2CheckOut.
+		- - code which puts a “buy now” or “add to cart” button (paste in using HTML)
+		- - edit the button
+		-
+		- ✓Ability to create your own discount codes for promotional offers
+		- ✓A built-in affiliate program
+		- ✓Ability to integrate with Aweber Email Autoresponder service.
+		-
+		-
+		- PAYMENTS
+		-
+		- Paypal Website Payments Pro (standard paypal has very small icons for choosing credit/debit card and you want to keep them on own site)
+		- The price to use Payments Pro is $30 a
+		- month. Before my eBook went live, I was
+		- reluctant to commit to paying this much, but
+		- having the capability to easily accept credit
+		- card payments on my own website and have
+		- a faster checkout process makes a world of a
+		- difference, and I’m sure I made more sales
+		- because of it. Plus, since I sold my eBook for
+		- $29.95, all it took was one sale to make up
+		- the cost for the entire month.
+		-
+		-
+		- Creating a merchant account with Google
+		- Checkout is another way to accept payments
+		- from your E-Junkie shopping cart.
+		- It works in basically the same way as Paypal,
+		- except you’ll have to connect a checking
+		- account for Google to forward the payments
+		- to.
+		- By integrating both Google Checkout and
+		- Paypal, you’re giving your customers the
+		- most payment options to choose from. Even
+		- though most people pay with a credit card
+		- (hence the important of Paypal Website
+		- Payments Pro), some people will find it
+		- easier and safer to pay with these other
+		- services.
+	- [ Danger & Play: on making money online
+		- https://youtu.be/lZ5YGCBfkCo](https://youtu.be/lZ5YGCBfkCo)

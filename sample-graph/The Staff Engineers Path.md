@@ -1,0 +1,6 @@
+-
+- ![The Staff Engineers Path A Guide for Individual Contributors Navigating Growth and Change (Sixth Early Release) (Tanya Reilly).pdf](../assets/The_Staff_Engineers_Path_A_Guide_for_Individual_Contributors_Navigating_Growth_and_Change_(Sixth_Early_Release)_(Tanya_Reilly)_(Z-Library)_1684397078589_0.pdf)
+- Book review
+	- [The Staff Engineer's Path — Book Review | Stanislav Myachenkov](https://smyachenkov.com/posts/book-review-the-staff-engineers-path/)
+	- [The Staff Engineer's Path – Book Review | Hacker News](https://news.ycombinator.com/item?id=35974845)
+	-

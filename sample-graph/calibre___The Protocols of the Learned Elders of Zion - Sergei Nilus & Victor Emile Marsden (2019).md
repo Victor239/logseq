@@ -1,0 +1,11 @@
+tags:: [[New World Order]], [[Zionism]], [[Jewish supremacism]]
+isbn:: 9781947844964
+date:: 2019
+publisher:: Athanatos Publishing Group
+language:: NA
+authors:: [[Sergei Nilus]], [[Victor Emile Marsden]]
+format:: [epub](/home/boss/Vaults/gocryptfs1/Calibre/Calibre-Library/Sergei Nilus/The Protocols of the Learned Elders of Zion (1728)/The Protocols of the Learned Elders of Zio - Sergei Nilus.epub)
+
+- [[Synopsis]]
+	- <p>The general conclusion is that "The Protocols of the Elders of Zion" is a fraudulent fiction, but its impact and effect in the early part of the 1900s was unquestionably real. Originating in Russia, it landed in the English-speaking world where it caused great consternation. Much is made of German anti-semitism, but in fact, there was fertile soil for "The Protocols" across Europe and even in America. In the United States, Henry Ford put his weight behind distributing the book. One of the disturbing elements of the manuscript is that, setting aside the role the Jews are said to play in the unfolding of affairs, there is a great deal described in the book that has come about. It is probably this fact that has kept "The Protocols" in the public eye. The question seems to be: "If it is not the Jews who brought this about, then who?" Considering the Russian source and what was soon to befall Russia, perhaps the most obvious candidate are the Marxists, with the "Protocols" being an attempt to deflect attention away from themselves. Perhaps "the Protocols" were not the minutes of a meeting of Zionists, but rather the minutes of a Bolshevik party meeting. Maybe, some day we will know for sure. In the meantime, for sheer historical value, "The Protocols" is essential reading.</p>
+- [The Protocols of the Learned Elders of Zion](calibre://show-book/Calibre-Library/1728)  {{renderer calibreViewer, special, http://127.0.0.1:3296//#book_id=1728&fmt=epub&library_id=Calibre-Library&mode=read_book}} {{renderer calibreHighlight, false, 2000, http://127.0.0.1:3296/, Calibre-Library, 1728, epub}}
