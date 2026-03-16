@@ -36,9 +36,11 @@
 
 (defn- rebuild-block-refs
   [{:keys [tx-meta db-after db-before]} blocks]
-  (when (or (and (:outliner-op tx-meta) (refs-need-recalculated? tx-meta))
-            (:rtc-tx? tx-meta)
-            (:rtc-op? tx-meta))
+  (when (and (or (and (:outliner-op tx-meta) (refs-need-recalculated? tx-meta))
+                 (:rtc-tx? tx-meta)
+                 (:rtc-op? tx-meta))
+             ;; OPTIMIZATION: Skip per-block refs for paste - handled in batch afterward
+             (not (contains? #{:paste :insert-blocks} (:outliner-op tx-meta))))
     (mapcat (fn [block]
               (when (and (d/entity db-after (:db/id block))
                          ;; don't compute refs for reactions

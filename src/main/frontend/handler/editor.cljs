@@ -1831,6 +1831,33 @@
   (let [ids (set (map :db/id blocks))]
     (some? (some #(ids (:db/id (:block/parent %))) blocks))))
 
+(defn- batch-rebuild-refs-for-blocks!
+  "Efficiently rebuild refs for all pasted blocks in one batch operation"
+  [block-uuids]
+  (when (seq block-uuids)
+    (let [repo (state/get-current-repo)
+          conn (db/get-db repo false)
+          db @conn
+          blocks (keep #(db/entity db [:block/uuid %]) block-uuids)
+          ;; Calculate refs for all blocks in one pass
+          refs-tx (mapcat
+                   (fn [block]
+                     (let [refs (set (outliner-core/rebuild-block-refs db block))
+                           old-refs (set (map :db/id (:block/refs block)))]
+                       (when (not= refs old-refs)
+                         (concat
+                          (when (seq old-refs)
+                            (map (fn [ref-id]
+                                   [:db/retract (:db/id block) :block/refs ref-id])
+                                 old-refs))
+                          (when (seq refs)
+                            (map (fn [ref-id]
+                                   [:db/add (:db/id block) :block/refs ref-id])
+                                 refs))))))
+                   blocks)]
+      (when (seq refs-tx)
+        (db/transact! repo refs-tx {:outliner-op :rebuild-refs-batch})))))
+
 (defn paste-blocks
   "Given a vec of blocks, insert them into the target page.
    keep-uuid?: if true, keep the uuid provided in the block structure."
@@ -1900,6 +1927,10 @@
               result (transact-blocks!)]
         (state/set-block-op-type! nil)
         (when result
+          ;; OPTIMIZATION: Batch rebuild refs for all inserted blocks
+          (let [block-uuids (map :block/uuid (:blocks result))]
+            (when (seq block-uuids)
+              (batch-rebuild-refs-for-blocks! block-uuids)))
           (edit-last-block-after-inserted! result)
           result)))))
 
@@ -2154,6 +2185,14 @@
       (.click trigger)
       (.focus trigger))))
 
+(defn- block-contains-image?
+  "Check if block content contains an image"
+  [content]
+  (when content
+    (or (util/safe-re-find #"!\[.*?\]\(.*?\)" content)                          ; Markdown image
+        (util/safe-re-find #"\[\[.*?\.(png|jpg|jpeg|gif|webp|svg)\]\]" content) ; Wiki-style image link
+        (util/safe-re-find #"\.\./assets/.*?\.(png|jpg|jpeg|gif|webp|svg)" content)))) ; Asset path
+
 (defn move-cross-boundary-up-down
   [direction move-opts]
   (let [input (or (:input move-opts) (state/get-input))
@@ -2192,11 +2231,17 @@
 
                :else
                (let [new-uuid (cljs.core/uuid sibling-block-id)
-                     block (db/entity [:block/uuid new-uuid])]
+                     block (db/entity [:block/uuid new-uuid])
+                     block-content (:block/title block "")
+                     has-image? (block-contains-image? block-content)
+                     ;; If navigating to a block with image, position cursor at end
+                     cursor-pos (if has-image?
+                                  :max
+                                  (or (:pos move-opts)
+                                      (when input [direction (util/get-line-pos (.-value input) (util/get-selection-start input))])
+                                      0))]
                  (edit-block! block
-                              (or (:pos move-opts)
-                                  (when input [direction (util/get-line-pos (.-value input) (util/get-selection-start input))])
-                                  0)
+                              cursor-pos
                               {:container-id container-id
                                :direction direction})))))
           (case direction

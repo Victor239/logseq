@@ -24,7 +24,8 @@
 (defn- paste-text-parseable
   [format text]
   (when-let [editing-block (state/get-edit-block)]
-    (let [page-id (:db/id (:block/page editing-block))
+    (let [start-time (when goog.DEBUG (js/performance.now))
+          page-id (:db/id (:block/page editing-block))
           blocks (block/extract-blocks
                   (mldoc/->edn text format)
                   text format
@@ -38,6 +39,11 @@
                                  (update :block/title (fn [title]
                                                         (let [title' (db-content/replace-tags-with-id-refs title refs)]
                                                           (db-content/title-ref->id-ref title' refs)))))))))]
+      (when start-time
+        (let [elapsed (- (js/performance.now) start-time)]
+          (js/console.log
+           (str "Paste performance: " (.toFixed elapsed 2) "ms for "
+                (count blocks') " blocks"))))
       (editor-handler/paste-blocks blocks' {:keep-uuid? true
                                             :outliner-real-op :paste-text}))))
 

@@ -35,13 +35,14 @@
   [:or [:fn de/entity?] block-map])
 
 (defn ^:api block-with-timestamps
-  [block]
-  (let [updated-at (common-util/time-ms)
-        block (cond->
-               (assoc block :block/updated-at updated-at)
-                (nil? (:block/created-at block))
-                (assoc :block/created-at updated-at))]
-    block))
+  "Add timestamps to a block. Can accept a pre-generated timestamp for batch operations."
+  ([block]
+   (block-with-timestamps block (common-util/time-ms)))
+  ([block now]
+   (cond->
+     (assoc block :block/updated-at now)
+     (nil? (:block/created-at block))
+     (assoc :block/created-at now))))
 
 (defn ^:api block-with-updated-at
   [block]
@@ -720,12 +721,14 @@
                                      (string/blank? (:block/title target-block))
                                      (> (count blocks) 1)))]
     (when (seq blocks)
-      (let [blocks' (let [blocks' (blocks-with-level blocks)]
+      (let [blocks' (let [blocks' (blocks-with-level blocks)
+                          ;; OPTIMIZATION: Generate timestamp once for all blocks in paste
+                          now (common-util/time-ms)]
                       (cond->> (blocks-with-ordered-list-props blocks' target-block sibling?)
                         update-timestamps?
                         (mapv #(dissoc % :block/created-at :block/updated-at))
                         true
-                        (mapv block-with-timestamps)))
+                        (mapv #(block-with-timestamps % now))))
             insert-opts {:sibling? sibling?
                          :replace-empty-target? replace-empty-target?
                          :keep-uuid? keep-uuid?
