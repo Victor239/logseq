@@ -30,6 +30,8 @@
             [frontend.util.cursor :as cursor]
             [goog.functions :refer [debounce]]
             [lambdaisland.glogi :as log]
+            [logseq.common.util :as common-util]
+            [logseq.common.util.block-ref :as block-ref]
             [logseq.common.util.macro :as macro-util]
             [logseq.db :as ldb]
             [logseq.db.frontend.content :as db-content]
@@ -98,6 +100,48 @@
         view-selected-blocks (:view/selected-blocks @state/state)]
     (or (> (count selected-blocks) 1)
         (seq view-selected-blocks))))
+
+(defn- extract-uuid-from-ref
+  "Extracts UUID from block reference ((uuid)) or page reference [[uuid]].
+   Returns UUID string if valid, nil otherwise."
+  [text]
+  (when (string? text)
+    (let [trimmed (string/trim text)]
+      (cond
+        ;; Block reference: ((uuid))
+        (block-ref/block-ref? trimmed)
+        (block-ref/get-block-ref-id trimmed)
+
+        ;; Page reference: [[uuid]]
+        (and (string/starts-with? trimmed "[[")
+             (string/ends-with? trimmed "]]"))
+        (let [content (subs trimmed 2 (- (count trimmed) 2))]
+          (when (re-matches common-util/exactly-uuid-pattern content)
+            content))
+
+        :else nil))))
+
+(defn- handle-node-ref-paste
+  "Handles paste of block/page references in node property dropdowns.
+   Auto-selects the referenced entity if valid."
+  [e block property on-chosen-fn opts]
+  (when-let [clipboard-data (.-clipboardData e)]
+    (when-let [pasted-text (.getData clipboard-data "text/plain")]
+      (when-let [uuid-str (extract-uuid-from-ref pasted-text)]
+        (when-let [entity (model/get-block-by-uuid uuid-str)]
+          (when (:block/title entity)
+            ;; Valid node entity - prevent default paste and auto-select
+            (.preventDefault e)
+            (.stopPropagation e)
+            ;; Call on-chosen with entity ID and selected? = true
+            (on-chosen-fn (:db/id entity) true)
+            ;; Close dropdown if not in multi-select mode
+            (when-not (false? (:exit-edit? opts))
+              (shui/popup-hide!))
+            ;; Show success notification
+            (notification/show!
+             (str "Added " (:block/title entity))
+             :success)))))))
 
 (rum/defc icon-row
   [block editing?]
@@ -773,6 +817,31 @@
                                                                   (set/difference ldb/internal-tags #{:logseq.class/Page}))
                                                        (:db/ident node)))))) nodes)
         classes' (remove (fn [class] (= :logseq.class/Root (:db/ident class))) classes)
+        on-chosen-fn (fn [chosen selected?]
+                       (p/let [add-tag-property? (and (= (:db/ident property) :logseq.property.class/properties) (not (integer? chosen)))
+                               id (if (integer? chosen)
+                                    chosen
+                                    (when-not (string/blank? (string/trim chosen))
+                                      (if (= (:db/ident property) :logseq.property.class/properties)
+                                        (do
+                                          (shui/popup-hide!)
+                                          (state/pub-event! [:editor/new-property {:block block
+                                                                                   :class-schema? true
+                                                                                   :property-key chosen
+                                                                                   :target target}]))
+                                        (<create-page-if-not-exists! block property classes' chosen))))
+                               _ (when (and (integer? id) (not (entity-util/page? (db/entity id))))
+                                   (db-async/<get-block repo id))]
+                         (if id
+                           (p/do!
+                            (add-or-remove-property-value block property id selected? {})
+                            (when (fn? add-new-choice!)
+                              (add-new-choice!
+                               (let [e (db/entity id)]
+                                 {:value (select-keys e [:db/id :block/uuid])
+                                  :label (:block/title e)}))))
+                           (when-not add-tag-property?
+                             (log/error :msg "No :db/id found or created for chosen" :chosen chosen)))))
         opts' (cond->
                (merge
                 opts
@@ -801,33 +870,11 @@
                                                                                   ldb/private-tags)))))
                  :extract-chosen-fn :value
                  :extract-fn (fn [x] (or (:label-value x) (:label x)))
-                 :input-opts input-opts
+                 :input-opts (merge input-opts
+                                    {:on-paste (fn [e]
+                                                 (handle-node-ref-paste e block property on-chosen-fn opts))})
                  :on-input (debounce on-input 50)
-                 :on-chosen (fn [chosen selected?]
-                              (p/let [add-tag-property? (and (= (:db/ident property) :logseq.property.class/properties) (not (integer? chosen)))
-                                      id (if (integer? chosen)
-                                           chosen
-                                           (when-not (string/blank? (string/trim chosen))
-                                             (if (= (:db/ident property) :logseq.property.class/properties)
-                                               (do
-                                                 (shui/popup-hide!)
-                                                 (state/pub-event! [:editor/new-property {:block block
-                                                                                          :class-schema? true
-                                                                                          :property-key chosen
-                                                                                          :target target}]))
-                                               (<create-page-if-not-exists! block property classes' chosen))))
-                                      _ (when (and (integer? id) (not (entity-util/page? (db/entity id))))
-                                          (db-async/<get-block repo id))]
-                                (if id
-                                  (p/do!
-                                   (add-or-remove-property-value block property id selected? {})
-                                   (when (fn? add-new-choice!)
-                                     (add-new-choice!
-                                      (let [e (db/entity id)]
-                                        {:value (select-keys e [:db/id :block/uuid])
-                                         :label (:block/title e)}))))
-                                  (when-not add-tag-property?
-                                    (log/error :msg "No :db/id found or created for chosen" :chosen chosen)))))})
+                 :on-chosen on-chosen-fn})
 
                 (= :block/tags (:db/ident property))
                 (assoc :exact-match-exclude-items
