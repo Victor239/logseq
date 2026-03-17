@@ -29,7 +29,9 @@
 ;; Configuration for re-ranking
 (def config
   {:keyword-weight 0.9
-   :semantic-weight 0.1})
+   :semantic-weight 0.1
+   :original-block-boost 0.03    ; Boost for blocks referenced by others
+   :popularity-weight 0.02})      ; Weight for normalized reference count
 
 (defn- log-score
   [score]
@@ -497,6 +499,13 @@ DROP TRIGGER IF EXISTS blocks_au;
                (filter (fn [{:keys [title]}]
                          (exact-matched? q title)))))))))
 
+(defn- get-block-inbound-refs-count
+  "Get count of blocks that reference this block via :block/_refs. Returns 0 if none."
+  [db block-uuid]
+  (if-let [block (d/entity db [:block/uuid block-uuid])]
+    (count (:block/_refs block))
+    0))
+
 ;; Combine and re-rank results
 (defn combine-results
   [db keyword-results semantic-results]
@@ -506,6 +515,17 @@ DROP TRIGGER IF EXISTS blocks_au;
         k-max (if (seq keyword-scores) (apply max keyword-scores) 1.0)
         all-ids (set/union (set (map :id keyword-results))
                            (set (map :id semantic-results)))
+
+        ;; Pre-compute reference counts for all results (performance optimization)
+        ref-counts (into {}
+                     (keep (fn [id]
+                             (when id
+                               [id (get-block-inbound-refs-count db (uuid id))]))
+                           all-ids))
+        max-ref-count (if (seq (vals ref-counts))
+                        (apply max (vals ref-counts))
+                        1)
+
         merged (map (fn [id]
                       (let [block (when id (d/entity db [:block/uuid (uuid id)]))
                             k-result (first (filter #(= (:id %) id) keyword-results))
@@ -516,10 +536,27 @@ DROP TRIGGER IF EXISTS blocks_au;
                             k-score (or keyword-score 0.0)
                             s-score (or (:semantic-score s-result) 0.0)
                             norm-k-score (normalize-score k-score k-min k-max)
+
+                            ;; Reference-based scoring
+                            ref-count (get ref-counts id 0)
+                            ;; Normalize using log scale to prevent outliers from dominating
+                            norm-ref-score (if (> max-ref-count 0)
+                                             (/ (log-score (inc ref-count))
+                                                (log-score (inc max-ref-count)))
+                                             0.0)
+                            ;; Boost for being an "original" block
+                            is-original? (> ref-count 0)
+                            original-boost (if is-original?
+                                             (:original-block-boost config)
+                                             0.0)
+
                             ;; Weighted combination
                             combined-score (+ (* (:keyword-weight config)
                                                  norm-k-score)
                                               (* (:semantic-weight config) s-score)
+                                              original-boost           ; +0.03 if referenced
+                                              (* (:popularity-weight config)
+                                                 norm-ref-score)       ; up to +0.02
                                               (cond
                                                 (ldb/page? block)
                                                 0.02
