@@ -171,6 +171,53 @@
 
 (defonce *last-header-action-target (atom nil))
 
+;; Rank drag-and-drop reordering
+;; =============================
+;; When the table's primary sort is a :rank property, a drag handle column lets
+;; the user reorder rows; dropping reassigns rank values to reflect the new order.
+
+(defonce ^:private *rank-dragging-id (atom nil))
+
+(defn- rank-reorder!
+  "Moves the dragged row to the target row's position and reassigns the displayed
+  rows' existing rank values (in display order) to the new order. Re-sorting then
+  reproduces the new order; hidden rows are left untouched."
+  [table dragged-id target-id]
+  (let [{:keys [property-ident]} (:rank-drag table)
+        rows (vec (:rows table))]
+    (when (and property-ident dragged-id target-id
+               (not= dragged-id target-id)
+               (some #{dragged-id} rows)
+               (some #{target-id} rows))
+      (let [without (vec (remove #(= % dragged-id) rows))
+            target-idx (first (keep-indexed (fn [i v] (when (= v target-id) i)) without))
+            rows' (vec (concat (subvec without 0 target-idx)
+                               [dragged-id]
+                               (subvec without target-idx)))
+            rank-of (fn [id] (some-> (db/entity id) (get property-ident) :logseq.property/value))
+            display-values (mapv rank-of rows)]
+        (when (every? number? display-values)
+          (let [changed (->> (map vector rows' display-values)
+                             (keep (fn [[id v]]
+                                     (when (not= (rank-of id) v) [id v]))))]
+            (when (seq changed)
+              (db-property-handler/set-blocks-property! property-ident changed))))))))
+
+(defn- rank-drag-handle
+  [_table row]
+  [:button.ls-rank-drag-handle.flex.items-center.justify-center.h-8.w-full.cursor-grab.opacity-40
+   {:title (t :view.table/reorder-column)
+    :draggable true
+    :on-pointer-down util/stop-propagation
+    :on-click util/stop-propagation
+    :on-drag-start (fn [^js e]
+                     (reset! *rank-dragging-id (:db/id row))
+                     (when-let [dt (.-dataTransfer e)]
+                       (set! (.-effectAllowed dt) "move")
+                       (.setData dt "text/plain" (str (:db/id row)))))
+    :on-drag-end (fn [_e] (reset! *rank-dragging-id nil))}
+   (ui/icon "grip-vertical" {:size 15})])
+
 (defn- prevent-view-action-button-focus
   [^js e]
   (let [target (.-target e)]
@@ -894,6 +941,7 @@
       :else
       (case id
         :select 32
+        :rank-drag 36
         :add-property 160
         (:block/title :block/name) 360
         (:block/created-at :block/updated-at) 160
@@ -1084,7 +1132,7 @@
                      {:id (:name column)
                       :value (:id column)
                       :content (table-header-cell table column)
-                      :disabled? (= (:id column) :select)})
+                      :disabled? (contains? #{:select :rank-drag} (:id column))})
         pinned-items (mapv build-item pinned)
         unpinned-items (if show-add-property?
                          (conj (mapv build-item unpinned)
@@ -1254,6 +1302,13 @@
     (shui/table-row
      (merge
       props
+      (when (:rank-drag table)
+        {:on-drag-over (fn [^js e] (when @*rank-dragging-id (.preventDefault e)))
+         :on-drop (fn [^js e]
+                    (when-let [dragged @*rank-dragging-id]
+                      (.preventDefault e)
+                      (rank-reorder! table dragged (:db/id row))
+                      (reset! *rank-dragging-id nil)))})
       {:key (str (:db/id row))
        :tabIndex 0
        :ref *ref
@@ -2604,13 +2659,37 @@
         [row-selection set-row-selection!] (rum/use-state {})
         [last-selected-idx set-last-selected-idx!] (rum/use-state nil)
         columns (sort-columns columns ordered-columns)
+        rank-sort (let [primary (first sorting)
+                        table-like? (not (contains? #{:logseq.property.view/type.gallery
+                                                      :logseq.property.view/type.list} display-type))
+                        prop (when (and primary table-like? (not group-by-property-ident))
+                               (db/entity (:id primary)))]
+                    (when (and prop (= :rank (:logseq.property/type prop)))
+                      {:property-ident (:db/ident prop)
+                       :asc? (:asc? primary)}))
+        columns (if rank-sort
+                  (let [drag-col {:id :rank-drag
+                                  :name (t :view.table/reorder-column)
+                                  :header (fn [_table _column] [:div.h-8])
+                                  :cell (fn [table row _column _style] (rank-drag-handle table row))
+                                  :column-list? false
+                                  :disable-hide? true
+                                  :resizable? false}
+                        [before after] (split-with #(not= :select (:id %)) columns)]
+                    (if (seq after)
+                      ;; insert the drag column right after the :select checkbox
+                      (vec (concat before [(first after) drag-col] (rest after)))
+                      (vec (cons drag-col columns))))
+                  columns)
         select? (first (filter (fn [item] (= (:id item) :select)) columns))
         id? (first (filter (fn [item] (= (:id item) :id)) columns))
         pinned-properties (set (cond->> (map :db/ident (:logseq.property.table/pinned-columns view-entity))
                                  id?
                                  (cons :id)
                                  select?
-                                 (cons :select)))
+                                 (cons :select)
+                                 rank-sort
+                                 (cons :rank-drag)))
         {pinned true unpinned false} (group-by (fn [item]
                                                  (contains? pinned-properties (:id item)))
                                                (remove (fn [column]
@@ -2623,6 +2702,7 @@
                    :data data
                    :full-data full-data
                    :columns columns
+                   :rank-drag rank-sort
                    :state {:sorting sorting
                            :filters filters
                            :row-selection row-selection

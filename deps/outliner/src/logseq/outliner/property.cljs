@@ -170,7 +170,7 @@
 (defn ^:api convert-property-input-string
   [block-type property v-str]
   (let [schema-type (:logseq.property/type property)]
-    (if (and (or (= :number schema-type)
+    (if (and (or (contains? #{:number :rank} schema-type)
                  (and (= (:db/ident property) :logseq.property/default-value)
                       (= :number block-type)))
              (string? v-str))

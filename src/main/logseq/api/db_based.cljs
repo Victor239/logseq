@@ -122,7 +122,7 @@
 
 (defn- schema-type-check!
   [type]
-  (let [valid-types #{:default :number :date :datetime :checkbox :url :node :asset :json :string}]
+  (let [valid-types #{:default :number :date :datetime :checkbox :url :node :asset :rank :json :string}]
     (when-not (contains? valid-types type)
       (throw (ex-info (str "Invalid type, type should be one of: " valid-types) {:type type})))))
 

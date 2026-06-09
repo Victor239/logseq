@@ -725,6 +725,7 @@
     :url (t :property/type-url)
     :node (t :property/type-node)
     :asset (t :property/type-asset)
+    :rank (t :property/type-rank)
     ((comp string/capitalize name) property-type)))
 
 (defn- handle-delete-property!
@@ -752,18 +753,28 @@
           (p/then remove!)))))
 
 (rum/defc property-type-sub-pane
-  [property {:keys [id set-sub-open! _position]}]
-  (let [handle-select! (fn [^js e]
+  [property {:keys [id set-sub-open! owner-block class-schema? _position]}]
+  (let [class-context? (and (ldb/class? owner-block) class-schema?)
+        handle-select! (fn [^js e]
                          (when-let [v (some-> (.-target e) (.-dataset) (.-value))]
                            (p/do!
                             (db-property-handler/upsert-property!
                              (:db/ident property)
                              {:logseq.property/type (keyword v)}
                              {})
+                            ;; A :rank property is bound to the tag page it's configured on;
+                            ;; adding :logseq.property/classes triggers the worker pipeline to
+                            ;; populate ranks for all blocks tagged with that class.
+                            (when (and (= v "rank") class-context?)
+                              (db/transact! (state/get-current-repo)
+                                            [[:db/add (:db/id property) :logseq.property/classes (:db/id owner-block)]]
+                                            {:outliner-op :update-property}))
                             (set-sub-open! false)
                             (restore-root-highlight-item! id))))
         item-props {:on-select handle-select!}
         schema-types (->> db-property-type/user-built-in-property-types
+                          ;; :rank can only be applied from an individual tag page
+                          (remove (fn [type] (and (= type :rank) (not class-context?))))
                           (map (fn [type]
                                  {:label (property-type-label type)
                                   :value type})))]
@@ -826,7 +837,9 @@
                                            (str property-type-label'))
                                    :disabled? disabled?'
                                    :submenu-content (fn [ops]
-                                                      (property-type-sub-pane property ops))}))
+                                                      (property-type-sub-pane property (assoc ops
+                                                                                              :owner-block owner-block
+                                                                                              :class-schema? class-schema?)))}))
 
       (when (and (= property-type :node)
                  (not (contains? #{:logseq.property.class/extends} (:db/ident property))))
@@ -837,6 +850,16 @@
                                    :submenu-content (fn [_ops]
                                                       [:div.px-4
                                                        (class-select property {:default-open? false})])}))
+
+      (when (= property-type :rank)
+        (dropdown-editor-menuitem {:icon :hash
+                                   :disabled? disabled?
+                                   :title (t :property/specify-node-tag)
+                                   :desc ""
+                                   :submenu-content (fn [_ops]
+                                                      [:div.px-4
+                                                       (class-select property {:multiple-choices? false
+                                                                               :default-open? false})])}))
 
       (when (and (contains? db-property-type/default-value-ref-property-types property-type)
                  (not (db-property/many? property))

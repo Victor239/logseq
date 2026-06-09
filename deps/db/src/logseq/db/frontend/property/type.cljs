@@ -18,7 +18,7 @@
 
 (def user-built-in-property-types
   "Valid property types for users in order they appear in the UI"
-  [:default :number :date :datetime :checkbox :url :node :asset])
+  [:default :number :date :datetime :checkbox :url :node :asset :rank])
 
 (def user-allowed-internal-property-types
   "Internal property types that users are allowed to store. These aren't available in the UI
@@ -53,7 +53,8 @@
   "Property value ref types where the refed entity stores its value in
   :logseq.property/value e.g. :number is stored as a number. new value-ref-property-types
   should default to this as it allows for more querying power"
-  #{:number})
+  ;; :rank is a number-backed type whose value is auto-managed (see worker pipeline)
+  #{:number :rank})
 
 (def value-ref-property-types
   "Property value ref types where the refed entities either store their value in
@@ -221,7 +222,10 @@
              node-entity?]
     :asset  [:fn
              {:error/message "should be an asset node"}
-             asset-entity?]}
+             asset-entity?]
+    :rank   [:fn
+             {:error/message "should be a number"}
+             number-entity?]}
    internal-validation-schemas))
 
 (assert (= (set (keys built-in-validation-schemas))
@@ -231,7 +235,7 @@
 
 (def property-types-with-db
   "Property types whose validation fn requires a datascript db"
-  #{:default :url :number :date :node :asset :entity :class :property :page})
+  #{:default :url :number :date :node :asset :rank :entity :class :property :page})
 
 ;; Helper fns
 ;; ==========

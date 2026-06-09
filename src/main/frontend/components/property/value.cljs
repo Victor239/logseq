@@ -130,7 +130,7 @@
 (defn select-type?
   [block property]
   (let [type (:logseq.property/type property)]
-    (or (contains? #{:node :number :date :page :class :property} type)
+    (or (contains? #{:node :number :rank :date :page :class :property} type)
        ;; closed values
         (seq (:property/closed-values property))
         (and (= (:db/ident property) :logseq.property/default-value)
@@ -1322,7 +1322,7 @@
         popup-content (fn content-fn [target]
                         [:div.property-select
                          (case type
-                           (:entity :number :default :url :checkbox)
+                           (:entity :number :rank :default :url :checkbox)
                            (select block property select-opts' opts)
 
                            (:node :class :property :page :date)

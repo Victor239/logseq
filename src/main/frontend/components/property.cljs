@@ -226,6 +226,7 @@
                :else
                (case type
                  :number "number"
+                 :rank "list-numbers"
                  :date "calendar"
                  :datetime "calendar"
                  :checkbox "checkbox"

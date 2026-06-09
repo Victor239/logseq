@@ -25,6 +25,7 @@
       (let [typ (:logseq.property/type property)
             many? (keyword-identical? :db.cardinality/many (get property :db/cardinality))
             number-type? (or (keyword-identical? :number typ)
+                             (keyword-identical? :rank typ)
                              (keyword-identical? :datetime typ))]
         (if many?
           (let [col (->> (if (db-property-type/all-ref-property-types typ) (map db-property/property-value-content v) v)

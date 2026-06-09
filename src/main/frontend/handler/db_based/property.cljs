@@ -25,6 +25,15 @@
    (doseq [[property-id value] properties]
      (outliner-op/set-block-property! block-id property-id value))))
 
+(defn set-blocks-property!
+  "Sets `property-id` to a (possibly different) value on each block, in one
+  transaction. `block-id->value` is a seq of [block-id value] pairs."
+  [property-id block-id->value]
+  (ui-outliner-tx/transact!
+   {:outliner-op :set-block-property}
+   (doseq [[block-id value] block-id->value]
+     (outliner-op/set-block-property! block-id property-id value))))
+
 (defn remove-block-property!
   [block-id property-id]
   (ui-outliner-tx/transact!

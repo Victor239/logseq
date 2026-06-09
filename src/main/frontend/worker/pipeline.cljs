@@ -350,6 +350,121 @@
                         {:db/id eid
                          :logseq.property.comments/blocks (:db/id (:block/parent block))})))))))))
 
+;; Rank property
+;; =============
+;; A :rank property is a number-backed property bound to a single tag (class).
+;; When it's bound, every block tagged with that class is given a sequential rank
+;; (1, 2, 3, ...). Any block that later gains the tag is given highest-rank + 1.
+
+(defn- rank-property?
+  [property]
+  (and property (= :rank (:logseq.property/type property))))
+
+(defn- block-rank-value
+  "The numeric rank stored on `block` for the rank property `property-ident`, or nil."
+  [block property-ident]
+  (some-> (get block property-ident) :logseq.property/value))
+
+(defn- class-object-blocks
+  "All real object blocks tagged with `class-id`, excluding property-value blocks
+  and built-in (db/ident'd) entities."
+  [db class-id]
+  (->> (d/datoms db :avet :block/tags class-id)
+       (keep (fn [d]
+               (let [e (d/entity db (:e d))]
+                 (when (and e
+                            (not (:logseq.property/created-from-property e))
+                            (not (:db/ident e)))
+                   e))))))
+
+(defn- max-rank
+  [db class-id property-ident]
+  (->> (class-object-blocks db class-id)
+       (keep #(block-rank-value % property-ident))
+       (reduce max 0)))
+
+(defn- build-rank-value-tx
+  "Builds [value-block assoc-tx] that sets `block`'s rank property to `rank`."
+  [block property rank]
+  (let [value-block (db-property-build/build-property-value-block
+                     block property rank
+                     {:block-uuid (common-uuid/gen-uuid)})]
+    [value-block
+     (outliner-core/block-with-updated-at
+      {:db/id (:db/id block)
+       (:db/ident property) [:block/uuid (:block/uuid value-block)]})]))
+
+(defn- rank-populate-tx
+  "Binds rank `property-id` to `class-id` and assigns ranks to all currently
+  unranked blocks tagged with the class, continuing from the current max."
+  [db property-id class-id]
+  (let [property (d/entity db property-id)
+        class (d/entity db class-id)]
+    (when (and (rank-property? property) class)
+      (let [property-ident (:db/ident property)
+            bound-class-ids (set (map :db/id (:logseq.property/classes property)))
+            bind-tx (when-not (contains? bound-class-ids class-id)
+                      [[:db/add property-id :logseq.property/classes class-id]])
+            class-prop-ids (set (map :db/id (:logseq.property.class/properties class)))
+            add-to-class-tx (when-not (contains? class-prop-ids property-id)
+                              [[:db/add class-id :logseq.property.class/properties property-id]])
+            start (max-rank db class-id property-ident)
+            unranked (->> (class-object-blocks db class-id)
+                          (remove #(some? (block-rank-value % property-ident)))
+                          (sort-by (juxt :block/created-at :db/id)))
+            value-tx (->> unranked
+                          (map-indexed (fn [idx block]
+                                         (build-rank-value-tx block property (+ start idx 1))))
+                          (apply concat))]
+        (concat bind-tx add-to-class-tx value-tx)))))
+
+(defn- populate-rank-on-bind
+  "When a rank property is bound to a class (either by adding it to the class's
+  properties or by setting the class on the property), populate the class's
+  blocks with ranks."
+  [{:keys [db-after tx-data tx-meta]}]
+  (when-not (or (rtc-tx-or-download-graph? tx-meta) (:undo? tx-meta) (:redo? tx-meta))
+    (let [pairs (->> tx-data
+                     (keep (fn [d]
+                             (when (:added d)
+                               (cond
+                                 (= (:a d) :logseq.property.class/properties)
+                                 (when (rank-property? (d/entity db-after (:v d)))
+                                   [(:v d) (:e d)])
+
+                                 (= (:a d) :logseq.property/classes)
+                                 (when (rank-property? (d/entity db-after (:e d)))
+                                   [(:e d) (:v d)])))))
+                     distinct)]
+      (mapcat (fn [[property-id class-id]] (rank-populate-tx db-after property-id class-id)) pairs))))
+
+(defn- assign-rank-on-tag-additions
+  "When a block gains a tag whose class has a rank property, assign it the next
+  rank (highest + 1). Multiple blocks tagged in one transaction increment in turn."
+  [{:keys [db-after tx-data tx-meta]}]
+  (when-not (or (rtc-tx-or-download-graph? tx-meta) (:undo? tx-meta) (:redo? tx-meta))
+    (let [tag-adds (filter (fn [d] (and (= (:a d) :block/tags) (:added d))) tx-data)]
+      (when (seq tag-adds)
+        (mapcat
+         (fn [[class-id datoms]]
+           (let [rank-props (->> (:logseq.property/_classes (d/entity db-after class-id))
+                                 (filter rank-property?))]
+             (when (seq rank-props)
+               (mapcat
+                (fn [property]
+                  (let [property-ident (:db/ident property)
+                        *next (atom (max-rank db-after class-id property-ident))]
+                    (mapcat
+                     (fn [eid]
+                       (let [block (d/entity db-after eid)]
+                         (when (and block
+                                    (not (:logseq.property/created-from-property block))
+                                    (nil? (block-rank-value block property-ident)))
+                           (build-rank-value-tx block property (swap! *next inc)))))
+                     (distinct (map :e datoms)))))
+                rank-props))))
+         (group-by :v tag-adds))))))
+
 (defn- invoke-hooks-for-imported-graph [conn {:keys [tx-meta] :as tx-report}]
   (let [refs-tx-report (outliner-pipeline/transact-new-db-graph-refs conn tx-report)
         full-tx-data (concat (:tx-data tx-report) (:tx-data refs-tx-report))
@@ -478,6 +593,8 @@
         display-blocks-tx-data (add-missing-properties-to-typed-display-blocks db-after tx-data tx-meta)
         ensure-query-tx-data (ensure-query-property-on-tag-additions tx-report)
         ensure-comments-tx-data (ensure-comments-blocks-property-on-tag-additions tx-report)
+        rank-populate-tx-data (populate-rank-on-bind tx-report)
+        rank-assign-tx-data (assign-rank-on-tag-additions tx-report)
         commands-tx (when-not (or (:undo? tx-meta)
                                   (= :rebase (:outliner-op tx-meta))
                                   (rtc-tx-or-download-graph? tx-meta))
@@ -490,6 +607,8 @@
             display-blocks-tx-data
             ensure-query-tx-data
             ensure-comments-tx-data
+            rank-populate-tx-data
+            rank-assign-tx-data
             commands-tx
             insert-templates-tx
             created-by-tx
